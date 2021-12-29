@@ -10056,3 +10056,18 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  smy20011  
+##### 2346#       发表于 2021-12-29 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54094722&amp;ptid=2039422" target="_blank">Aquila4869 发表于 2021-12-29 23:36</a>
+隔壁隔壁在迪拜的中招打工人反馈，身边统计学
+1-打了疫苗的防感染基本没戏，防重症好使，他们公司最严重的 ...</blockquote>
+现在哪家疫苗都能打穿，症状也确实比较轻。看reddit自己报的症状是嗓子疼，发烧，流鼻涕。
+基本上分不清是季节性过敏，流感或者是新冠。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
