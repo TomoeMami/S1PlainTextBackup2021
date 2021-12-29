@@ -9475,3 +9475,14 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 那国内咋办</blockquote>
 物理隔离应该还是没啥问题
 
+
+
+*****
+
+####  最好不说  
+##### 2291#       发表于 2021-12-29 09:36
+
+<blockquote>Litccc 发表于 2021-12-29 09:21
+那国内咋办</blockquote>
+兵来将挡，水来土掩。物理隔离能防一切变种，欧美被omicron犁了一遍以后说不定Ω都出来了，然后又是一次轮回，让他们自个in waves吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

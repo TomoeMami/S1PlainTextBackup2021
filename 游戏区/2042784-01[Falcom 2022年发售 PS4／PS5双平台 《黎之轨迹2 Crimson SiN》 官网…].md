@@ -1761,3 +1761,12 @@ ps5版至少loading问题可以解决了
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  areklose  
+##### 169#       发表于 2021-12-29 09:38
+
+「他们二人将因为某起事件不得不联手一起行动」！很好，能不能贯穿整作。
+
