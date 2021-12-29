@@ -9189,3 +9189,15 @@ Scientists estimate record U.S. COVID cases attributed to the omicron variant Ov
 
 2021-12-29 07:26 上传
 
+
+
+*****
+
+####  smy20011  
+##### 2269#       发表于 2021-12-29 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083448&amp;ptid=2039422" target="_blank">雪豹 发表于 2021-12-29 07:20</a>
+
+o疫苗论今天拍老师驳斥了：完全没有的事</blockquote>
+这位为啥只发公众号啊，想从电脑上找他的文章真不好找
+
