@@ -9998,3 +9998,15 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 焦虑怪的新文章说了，得了o看起来并不免疫d，
 而且两个一起得也有
 
+
+
+*****
+
+####  暗铁  
+##### 2341#       发表于 2021-12-29 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54091460&amp;ptid=2039422" target="_blank">configxxxx 发表于 2021-12-29 18:40</a>
+
+等人均身边五六个死亡的时候他们就该上点心了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按邓巴数150算，得死一千万人
+
