@@ -4791,3 +4791,24 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 这帮看直播的怕是故意的，真·乐子人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">元始天尊感觉就是故意误导忽悠他的，神仙的生活就是很枯燥啊，得找点乐子，这下喜欢妲己和空大算是传遍了神仙界了
 
+
+
+*****
+
+####  エーデルガルト  
+##### 85946#       发表于 2021-12-29 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088829&amp;ptid=1085254" target="_blank">roxas.sora 发表于 2021-12-29 15:04</a>
+元始天尊感觉就是故意误导忽悠他的，神仙的生活就是很枯燥啊，得找点乐子，这下喜欢妲己和空大算 ...</blockquote>
+又不是第一次空大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 85947#       发表于 2021-12-29 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088969&amp;ptid=1085254" target="_blank">エーデルガルト 发表于 2021-12-29 15:18</a>
+
+又不是第一次空大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太公望选择了弹幕最多的打法
+

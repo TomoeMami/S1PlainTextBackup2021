@@ -14724,3 +14724,48 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 我也是卡在离开境外出口互换局好几天了，不知道是不是年底查的严还是怎么的了 ...</blockquote>
 要么是日本那边接近元旦速度放缓，要么就是等其他货一起上飞机，反正只能等了，去年寄过一次国际EMS貌似都没这么慢
 
+
+
+*****
+
+####  ads147147  
+##### 2727#       发表于 2021-12-29 15:15
+
+对了，今晚有生放送吧？不过很可惜菜宝没能和鲤鱼一起。
+
+不过这两个人生放送怕不是会让直播爆炸。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TRIScRE  
+##### 2728#       发表于 2021-12-29 15:19
+
+<blockquote>ads147147 发表于 2021-12-29 15:15
+对了，今晚有生放送吧？不过很可惜菜宝没能和鲤鱼一起。
+
+不过这两个人生放送怕不是会让直播爆炸。</blockquote>
+应该是明天？
+
+*****
+
+####  starring  
+##### 2729#       发表于 2021-12-29 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088934&amp;ptid=2036367" target="_blank">ads147147 发表于 2021-12-29 15:15</a>
+对了，今晚有生放送吧？不过很可惜菜宝没能和鲤鱼一起。
+
+不过这两个人生放送怕不是会让直播爆炸。</blockquote>
+明晚九点吧，31号还有一个虹星的联合广播
+
+*****
+
+####  lj205  
+##### 2730#       发表于 2021-12-29 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088988&amp;ptid=2036367" target="_blank">starring 发表于 2021-12-29 15:20</a>
+
+明晚九点吧，31号还有一个虹星的联合广播</blockquote>
+是今晚吧？明晚是虹星
+

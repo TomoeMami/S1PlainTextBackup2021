@@ -751,3 +751,37 @@ Britannica之类的百科网站也行，中文维基是最差的选择之一了
 
 美国diversity本质是单一价值观，就想吹不管什么外貌什么种族都有我大美国价值观，亚洲宅男也得擅长爬梯泡妞，农村老奶奶也得支持LGBT，这样才酷才是自己人，否则不管你长啥样你都是异类。
 
+
+
+*****
+
+####  比比巴巴波  
+##### 67#       发表于 2021-12-29 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086591&amp;ptid=2044660" target="_blank">巨魔已被忠诚 发表于 2021-12-29 12:06</a>
+本质赎罪论，正常点的是忏悔自己做过的错事，但是直面内心太难了；不正常的变态赎罪方法论是在道德上通过 ...</blockquote>
+为了赎自己的罪居然幻想我们在新疆做了他们当年做过的事
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  穆阿迪布  
+##### 68#       发表于 2021-12-29 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086073&amp;ptid=2044660" target="_blank">kaiser-william 发表于 2021-12-28 23:32</a>
+有一说一，当年印第安人可是跟着南方邦联奴隶主一起叛乱来着，左友们清算乱世佳人、清算罗伯特李怎么不把这 ...</blockquote>
+右友们为什么不清算一下某绿营曾经的赞助商<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寻梦欢影  
+##### 69#       发表于 2021-12-29 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088409&amp;ptid=2044660" target="_blank">kaiser-william 发表于 2021-12-29 14:28</a>
+
+南北战争双方没法代入中国近代历史
+
+林肯派去接收南方政府的北方官员一个个靠贪腐赚的盆满钵满从而失去民心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最关键南北战争结束后 北方设立的傀儡政府立刻被推翻 恢复原样
+
