@@ -9507,3 +9507,16 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 现阶段国内有几个热点待清零其实是好事，能保持基层的警惕性，如果埃米克隆传播进来，出现目前西安的情况 ...</blockquote>
 没错，如果西安现在是o病毒的话，恐怕早都几千了
 
+
+
+*****
+
+####  REI-000  
+##### 2294#       发表于 2021-12-29 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083628&amp;ptid=2039422" target="_blank">烦死了 发表于 2021-12-29 08:15</a>
+现在试剂不够 检测点排长龙，家用快速测试缺货 数据也就这样了冲不到60万的 ...</blockquote>
+不要小看米帝勇士。昨天（12.27）已经54万了，努力一下，60万可能不用等到1月...
+
+— from Sony Xperia XZ2 Compact, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

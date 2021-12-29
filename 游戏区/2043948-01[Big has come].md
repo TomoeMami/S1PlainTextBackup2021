@@ -8922,3 +8922,16 @@ store.steampowered.com/中国x产x</blockquote>
 
 其实我前几天都能上的，今天看你们说能上了我才发现我上不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ‮agur4kI  
+##### 815#       发表于 2021-12-29 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083115&amp;ptid=2043948" target="_blank"> 天才名名 发表于 2021-12-29 02:36</a> 喷了，禁一个steam就把你们弄的鸡飞狗跳的，真tm菜鸡互啄。  日子会越来越好，但恐怕这德性熬不到那时候。  最优解是赶紧重新投个胎做个人。    -- 来自 有消息提醒的 Stage1官方 Android客户端 </blockquote>
+github被处理了，v2ex是咋地了才被墙的？
+
+臭打游戏出来bb两句就被劝自杀，宁真是极端的像是是境外势力
+我要指控宁给境外势力递刀子煽动矛盾来自: iPhone客户端
+
