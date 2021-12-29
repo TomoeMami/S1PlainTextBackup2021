@@ -4923,3 +4923,15 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这老福除了叫福尔摩斯之外就一股怪味
 
+
+
+*****
+
+####  都谷捻柏  
+##### 85959#       发表于 2021-12-30 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54094893&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-29 23:58:53</a>
+草，日服吧那个舅妈又暗示了，年底剧情有真名溶解，新年从者大家猜到差不多了是个熟人不会真是老福溶解和新 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟人就是句废话，不熟你怎么奶，连方向都没有。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
