@@ -14820,3 +14820,41 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 
 不对..好像是5CH拉板日本人P的图...好像还没卖光...?<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 2736#       发表于 2021-12-29 18:48
+
+<img src="https://img.saraba1st.com/forum/202112/29/184811ng3s2rsidy4gs4lc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211229_184640.jpg</strong> (29.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 18:48 上传
+
+鱼果然在看
+
+*****
+
+####  lj205  
+##### 2737#       发表于 2021-12-29 18:57
+
+水团的衣服真好看
+
+*****
+
+####  蜜梨柑  
+##### 2738#       发表于 2021-12-29 19:01
+
+鱼应该在现地吧，该看看录播有没有拍到了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 2739#       发表于 2021-12-29 19:03
+
+没唱cru-cru，是要等明年tour了么
+
