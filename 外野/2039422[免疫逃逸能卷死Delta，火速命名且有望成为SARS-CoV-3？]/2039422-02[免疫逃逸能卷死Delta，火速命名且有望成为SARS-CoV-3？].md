@@ -9759,3 +9759,22 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 目前这 ...</blockquote>
 打完第三针可能也只有50%不到的保护力，我身边已经有三针bnt一个多月后的确诊病例了。所以说能打尽快打，打完了也别大意
 
+
+
+*****
+
+####  天野银次X美堂蛮  
+##### 2317#       发表于 2021-12-29 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54087114&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-29 12:40</a>
+
+打完第三针可能也只有50%不到的保护力，我身边已经有三针bnt一个多月后的确诊病例了。所以说能打尽快打， ...</blockquote>
+感觉上基本就是降低重症率和死亡率的。。对感染率帮助一般般
+
+*****
+
+####  Coronavirus  
+##### 2318#       发表于 2021-12-29 12:54
+
+你髪日增17万了，卫生部缩短第三针疫苗接种时间区间跟安慰剂似的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Omicron确实猛
+

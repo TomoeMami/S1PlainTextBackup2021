@@ -8959,3 +8959,14 @@ github被处理了，v2ex是咋地了才被墙的？
 虽然是轮子画的，但是居然提前几年就预见到了现在的狗洞大师，足见因人废言不可取啊 ...</blockquote>
 那么，你又是如何不通过狗洞大师找到的这图呢？
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 818#       发表于 2021-12-29 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086808&amp;ptid=2043948" target="_blank">欠损 发表于 2021-12-29 12:19</a>
+那么，你又是如何不通过狗洞大师找到的这图呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用狗洞的又未必是狗洞大师，倒不如说这图本身就是嘲讽狗洞大师的，怎么可能是狗洞大师发的
+
