@@ -9902,3 +9902,42 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 
 看这楼，还以为外国要丸了，结果石油还涨起来了，这是屁话满天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  charse2r  
+##### 2332#       发表于 2021-12-29 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090598&amp;ptid=2039422" target="_blank">点点杠 发表于 2021-12-29 17:23</a>
+
+看这楼，还以为外国要丸了，结果石油还涨起来了，这是屁话满天</blockquote>
+使劲的放水啥不涨
+
+*****
+
+####  totoneko  
+##### 2333#       发表于 2021-12-29 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090466&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-29 17:14</a>
+
+虽然我很期待c99的本子
+
+但真的不知道这一波之后会死多少画师</blockquote>
+决定要开的时候处于疫情谷底，Omicron还没出现呢。
+
+现在骑虎难下，又做不到我们的高效率能说停就停，只能硬着头皮上，传统艺能赌一把。
+
+隔空祝福吧。
+
+死亡率应该不高。
+
+*****
+
+####  creymorgan  
+##### 2334#       发表于 2021-12-29 17:33
+
+<blockquote>langnan88862 发表于 2021-12-29 13:11
+就怕还有更猛的来。O毒株南非先报送，被西方喷成这样。后续估计就算发现新的，也没人报送了。 ...</blockquote>
+入境防疫会报的
+
