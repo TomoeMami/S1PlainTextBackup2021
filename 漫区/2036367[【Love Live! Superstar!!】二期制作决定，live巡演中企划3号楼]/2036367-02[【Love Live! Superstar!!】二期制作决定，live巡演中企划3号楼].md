@@ -14931,3 +14931,38 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 
 鲤鱼～说自己想见打铁的父母<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 2745#       发表于 2021-12-29 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54094092&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-29 22:18</a>
+
+鲤鱼～说想见打铁的父母</blockquote>
+没把，鲤鱼是说 因为是鲨鱼林的老家，可能会见到打铁的父母。
+
+*****
+
+####  CAserlumos  
+##### 2746#       发表于 2021-12-29 22:33
+
+反正都是见父母<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 2747#       发表于 2021-12-29 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54094225&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-29 22:32</a>
+没把，鲤鱼是说 因为是鲨鱼林的老家，可能会见到打铁的父母。</blockquote>
+对反正都是见父母
+
+*****
+
+####  lj205  
+##### 2748#       发表于 2021-12-29 22:42
+
+你团4个人都在水团就外星人在发抖音
+

@@ -7969,3 +7969,24 @@ vt和jp还是有几个虹楼的，最活跃的应该是EN楼
 
 这次虹en引来了数量可观的女粉啊，还都是第一次看v的那种。其中有不少原本是只看三次元男艺人的，甚至还有真xz粉来看了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9672#       发表于 2021-12-29 22:25
+
+ 本帖最后由 渡鸦骑士 于 2021-12-29 22:27 编辑 
+
+我倒是觉得holo粉看虹en女蛮多的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lkjh  
+##### 9673#       发表于 2021-12-29 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54093433&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-12-29 21:23</a>
+
+4chan本质holo大本营</blockquote>
+随便看看感觉还是有不少乐子的 不过外国人都容易暴雷 感觉不对就准备闪了
+
