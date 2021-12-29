@@ -2504,3 +2504,14 @@ co宝又上工辣<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 co宝这月末抱佛脚的模样像极了我<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 4762#       发表于 2021-12-29 10:01
+
+大概能理解为啥破防，但是只是理解，Coco月末硬赶的模样真是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9486,3 +9486,24 @@ alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来de
 那国内咋办</blockquote>
 兵来将挡，水来土掩。物理隔离能防一切变种，欧美被omicron犁了一遍以后说不定Ω都出来了，然后又是一次轮回，让他们自个in waves吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2292#       发表于 2021-12-29 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084421&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-29 09:36</a>
+兵来将挡，水来土掩。物理隔离能防一切变种，欧美被omicron犁了一遍以后说不定Ω都出来了，然后又是一次轮 ...</blockquote>
+现阶段国内有几个热点待清零其实是好事，能保持基层的警惕性，如果埃米克隆传播进来，出现目前西安的情况，要花的清零成本要高出不少。现阶段的手段对付德尔塔毒株就已经很难了。 “病毒学家常荣山在接受8点健闻采访时表示， 在病毒已经扩散且已经传播了四五代的前提下，流调几乎不可能追上疫情传播的速度。现阶段，流调本身已经失去了意义，作用十分有限。 ”
+
+*****
+
+####  66666  
+##### 2293#       发表于 2021-12-29 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084554&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-29 09:46</a>
+
+现阶段国内有几个热点待清零其实是好事，能保持基层的警惕性，如果埃米克隆传播进来，出现目前西安的情况 ...</blockquote>
+没错，如果西安现在是o病毒的话，恐怕早都几千了
+
