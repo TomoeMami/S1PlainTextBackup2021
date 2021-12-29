@@ -8899,3 +8899,17 @@ store.steampowered.com/中国x产x</blockquote>
 捐狗叔凭据就是狗叔嘛，选狗叔就是因为有直接中间人靠谱。捐公益还没证据有个证书有屁用，你自己都承认不 ...</blockquote>
 打滚是小孩的特权，我豁不豁胖也没豁给你看啊，你那么爱翻帖子就多翻一点看看呗，我没必要特意向小孩证明什么，反正任何证据到你这儿都会是假的，钱可以是借来的，照片截图可以是别人的，就好像steam在你的世界里是已经封掉了的一样。公益这事，可以看得出你是真没捐过，问你爹妈借个支付宝捐一笔，然后看看证书你就懂了。至于我捐没捐过你就别操心了，反正你笃定steam会封，到时我自然会拿出单笔10000的票据，你就放宽心好了。
 
+
+
+*****
+
+####  欠损  
+##### 813#       发表于 2021-12-29 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54082527&amp;ptid=2043948" target="_blank">ESAKA!!!! 发表于 2021-12-29 00:45</a>
+
+泥潭扒的，完全没看过轮媒也没兴趣了解出自哪，只觉得这图切中了要害。倒是老兄你对轮媒挺熟悉的样子啊[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是啊，这图和大锅煮兔子图几年前在Google+上面被一帮标着“独立思考”的号天天发，都™看吐了。
+
+妈的老子找个攻略恨不得给我推一万个这种号。
+

@@ -9370,3 +9370,108 @@ b.1.1.529当然和b.1.1.7是同辈，他们有相同的夫系节点。
 
 从7和529来看发现的时间是差很多的。
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 2281#       发表于 2021-12-29 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083465&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2021-12-29 07:27</a>
+
+Scientists estimate record U.S. COVID cases attributed to the omicron variant Over the next month, s ...</blockquote>
+一周更新一下看看趋势？
+
+*****
+
+####  BLTUS  
+##### 2282#       发表于 2021-12-29 09:03
+
+后面对国内是也是重大考验啊，Omicron太能传了。看到土澳亲戚的朋友圈，这种之前搞过清零的地方，比如新南威尔士现在每天破万了，那里还是夏天
+
+*****
+
+####  ak123  
+##### 2283#       发表于 2021-12-29 09:09
+
+<img src="https://img.saraba1st.com/forum/202112/29/090834o28228ytp22pp2p9.jpg" referrerpolicy="no-referrer">
+
+<strong>120.JPG</strong> (18.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-29 09:08 上传
+
+全球新增破纪录的120万，一月应该会轻松破200万每日了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 2284#       发表于 2021-12-29 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 这是发威了啊，世卫还说明年结束疫情，等机械降神吗
+
+*****
+
+####  smy20011  
+##### 2285#       发表于 2021-12-29 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084094&amp;ptid=2039422" target="_blank">soranoguiji 发表于 2021-12-29 09:10</a>
+
+这是发威了啊，世卫还说明年结束疫情，等机械降神吗</blockquote>
+这波看起来两个月左右结束了，如果按照omicron的传播速度来看，基本上应传尽传了
+
+*****
+
+####  不是橘子皮  
+##### 2286#       发表于 2021-12-29 09:19
+
+<blockquote>引用第2283楼soranoguiji于2021-12-29 09:10发表的  :
+
+这是发威了啊，世卫还说明年结束疫情，等机械降神吗</blockquote>
+@soranoguiji
+
+死的差不多了，剩下的都有抗体了吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
+
+*****
+
+####  罗莉控  
+##### 2287#       发表于 2021-12-29 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083732&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 08:31</a>
+
+https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
+
+这篇文章的结论在这里</blockquote>
+alpha叫B.1.1.7,delta叫B.1.617.2,omicron是B.1.1.529.从编号就能看出来delta是B.1的子孙，omicron和delta都是B.1.1的子孙
+
+*****
+
+####  Alexmacau8  
+##### 2288#       发表于 2021-12-29 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084094&amp;ptid=2039422" target="_blank">soranoguiji 发表于 2021-12-29 09:10</a>
+这是发威了啊，世卫还说明年结束疫情，等机械降神吗</blockquote>
+没事，楼上就有看简化版进化树推断病毒毒力的大神，形势一片大好。另外，“埃米克隆广谱疫苗说”这说法12月初就有了，欧洲媒体已经轮过一轮了，不过现在已经开始发现不对劲了。。。。微博那几位专家们，吃屎都赶不上热乎的。
+
+*****
+
+####  Litccc  
+##### 2289#       发表于 2021-12-29 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084155&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-29 09:16</a>
+这波看起来两个月左右结束了，如果按照omicron的传播速度来看，基本上应传尽传了 ...</blockquote>
+那国内咋办<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2290#       发表于 2021-12-29 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084214&amp;ptid=2039422" target="_blank">Litccc 发表于 2021-12-29 09:21</a>
+
+那国内咋办</blockquote>
+物理隔离应该还是没啥问题
+

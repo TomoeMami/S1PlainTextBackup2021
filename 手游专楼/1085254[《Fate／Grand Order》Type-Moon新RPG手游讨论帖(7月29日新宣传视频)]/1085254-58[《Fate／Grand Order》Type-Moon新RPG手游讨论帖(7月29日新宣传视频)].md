@@ -4556,3 +4556,31 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定被背刺的是所长。
 
+
+
+*****
+
+####  UNISONIA  
+##### 85926#       发表于 2021-12-29 09:02
+
+阿菌这波弄巧成拙，现在公主也有Beast IV的适应性了
+
+*****
+
+####  zakki  
+##### 85927#       发表于 2021-12-29 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084013&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-29 09:02</a>
+阿菌这波弄巧成拙，现在公主也有Beast IV的适应性了</blockquote>
+公主不爱人类，只爱志贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且只要把fgo按死不让公主出来就行，反正月姬世界也没有beast
+
+*****
+
+####  UNISONIA  
+##### 85928#       发表于 2021-12-29 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54084141&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-29 09:15</a>
+
+公主不爱人类，只爱志贵而且只要把fgo按死不让公主出来就行，反正月姬世界也没有beast ...</blockquote>
+长发的那位连志贵都不爱（旧设可能对Ciel有点兴趣），把人类看成自己动动手指就能碾碎的尘芥
+
