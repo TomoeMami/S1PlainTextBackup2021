@@ -11378,3 +11378,39 @@ The data includes patients whose primary diagnosis is not COVID, and the prop ..
 
 加麻大魁北克已经宣布允许任何工作场所和岗位可以让阳性患者继续工作，没有任何隔离要求，基本官方认定就是大号流感了，反正你死了也跟我政府无关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  charse2r  
+##### 2458#       发表于 2021-12-30 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102324&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 15:57</a>
+
+这玩意包含了所有住院测出covid的人，比如你骨折了，入院测covid，如果中了，你也算新冠住院。
+
+发布这张 ...</blockquote>
+那咋“骨折”的也变多了呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOGmk2  
+##### 2459#       发表于 2021-12-30 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102933&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-30 16:42</a>
+
+加麻大魁北克已经宣布允许任何工作场所和岗位可以让阳性患者继续工作，没有任何隔离要求，基本官方认定就是 ...</blockquote>
+坐等白骑士攒够变异点一波ADE全面收割
+
+*****
+
+####  最好不说  
+##### 2460#       发表于 2021-12-30 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102933&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-30 16:42</a>
+
+加麻大魁北克已经宣布允许任何工作场所和岗位可以让阳性患者继续工作，没有任何隔离要求，基本官方认定就是 ...</blockquote>
+当地时间12月28日，英国东英吉利大学传染病学专家保罗·亨特（Paul Hunter）在接受BBC采访时表示，新冠病毒只是冠状病毒中的一种，其他冠状病毒通常每年左右都会产生新变体，新冠病毒也不例外——实际上新冠病毒会成为引起普通感冒的另一病因。我们不需要每日报告普通感冒的病因，新冠病毒也是。一旦奥密克戎变异株的问题得到解决，限制可能会放松，可能会在复活节之后。我们必须让新冠检测结果呈阳性的人可以过上正常生活，就好比他们只是患上了普通感冒。必须在某一时间取消自我隔离措施，因为新冠永远都会存在。
+
+以后就是covid lives matter了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

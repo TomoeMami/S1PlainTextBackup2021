@@ -8229,3 +8229,12 @@ v版魔怔是不是因为杏奴多的缘故？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感想：不如V8
 
+
+
+*****
+
+####  bluebaby  
+##### 9685#       发表于 2021-12-30 16:55
+
+特地跑去v8看一眼，确实不如v8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

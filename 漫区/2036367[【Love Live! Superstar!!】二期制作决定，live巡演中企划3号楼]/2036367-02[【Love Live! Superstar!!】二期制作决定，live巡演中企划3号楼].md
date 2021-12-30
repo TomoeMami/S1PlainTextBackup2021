@@ -16299,3 +16299,26 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 原来鲤鱼念what a wonderful dream也是日式英语念法<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 2874#       发表于 2021-12-30 16:48
+
+我记得鱼之前事务所都把她放在coser 那栏的，虽然现在基本上是走歌手这条路
+
+*****
+
+####  player3960  
+##### 2875#       发表于 2021-12-30 16:53
+
+鲤鱼在转自己以前参加漫展的cos旧照，看给孩子馋的，我觉得疫情还少去为妙，以后什么时候事务所能给开个绿灯就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 2876#       发表于 2021-12-30 16:56
+
+我倒是觉得可以试试多上综艺，憨憨外人角色还是挺吃香的
+

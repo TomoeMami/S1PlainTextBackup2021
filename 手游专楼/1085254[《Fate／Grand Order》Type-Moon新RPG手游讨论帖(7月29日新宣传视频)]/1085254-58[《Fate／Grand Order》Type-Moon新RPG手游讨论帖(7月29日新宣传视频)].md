@@ -5304,3 +5304,65 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 
 然后马上发现认错人了
 
+
+
+*****
+
+####  snakeling  
+##### 85996#       发表于 2021-12-30 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102923&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-30 16:42</a>
+
+对小玉有啊，看到就叫妲己
+
+然后马上发现认错人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">C狐不是一直认自己是妲己吗
+
+*****
+
+####  gpx234mqx  
+##### 85997#       发表于 2021-12-30 16:47
+
+ 本帖最后由 gpx234mqx 于 2021-12-30 16:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102972&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-12-30 16:45</a>
+
+C狐不是一直认自己是妲己吗</blockquote>
+没啊，不管CCC还是废狗都否认自己是妲己啊
+
+不过小玉有倾国模式，只要马斯它有国有权就会发动
+
+*****
+
+####  khxooo  
+##### 85998#       发表于 2021-12-30 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102972&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-12-30 16:45</a>
+C狐不是一直认自己是妲己吗</blockquote>
+没有啊，这次剧情有说狐狸因为妲己而风评被害，都大吐苦水了
+
+*****
+
+####  gpx234mqx  
+##### 85999#       发表于 2021-12-30 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103022&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-12-30 16:48</a>
+
+没有啊，这次剧情有说狐狸因为妲己而风评被害，都大吐苦水了</blockquote>
+ccc里也说了不要把她和妲己那个狐狸相提并论
+
+*****
+
+####  zakki  
+##### 86000#       发表于 2021-12-30 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102805&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-30 16:32</a>
+新所长是个好人，你们不要咒他死啊</blockquote>
+所长死的概率太大了，主要是咕哒那件所长服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86001#       发表于 2021-12-30 16:58
+
+话说你月C99只卖月姬还是有这么多人排队，今年真是你月月姬元年或者说从fate开始转向其他ip的元年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
