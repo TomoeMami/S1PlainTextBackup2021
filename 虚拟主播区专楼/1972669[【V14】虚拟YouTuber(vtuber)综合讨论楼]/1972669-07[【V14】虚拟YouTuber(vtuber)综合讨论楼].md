@@ -8185,3 +8185,38 @@ v版魔怔是不是因为杏奴多的缘故？<img src="https://static.saraba1st
 v版魔怔是不是因为杏奴多的缘故？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，感谢您给我为人的优越感
 
+
+
+*****
+
+####  cheatdeath3  
+##### 9682#       发表于 2021-12-30 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102369&amp;ptid=1972669" target="_blank">空集 发表于 2021-12-30 16:00</a>
+
+自己照照镜子什么魔怔人样，年末了属于又失败的过了一年来论坛找存在感了也挺可怜的，感谢 ...</blockquote>
+小人不懂规矩，扰了大人看管的雅兴，搞得连转播都没得看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|。没有意思的话就不要强行回了.|
+| nian1538|-2||
+
+查看全部评分
+
+*****
+
+####  空集  
+##### 9683#       发表于 2021-12-30 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102481&amp;ptid=1972669" target="_blank">cheatdeath3 发表于 2021-12-30 16:08</a>
+
+小人不懂规矩，扰了大人看管的雅兴，搞得连转播都没得看了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">。。。。。下次努力想点更有意思的话吧 你着的这个点 在一种喷人兴致的角度上都让我杨威了。。你去V8进修一下那套话术可能都强点
+

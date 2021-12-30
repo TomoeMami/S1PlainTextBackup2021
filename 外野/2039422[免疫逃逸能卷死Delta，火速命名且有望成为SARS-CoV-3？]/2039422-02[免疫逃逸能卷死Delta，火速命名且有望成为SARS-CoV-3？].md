@@ -11272,3 +11272,58 @@ NHS绝赞爆仓中</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  pushare  
+##### 2448#       发表于 2021-12-30 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102324&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 15:57</a>
+这玩意包含了所有住院测出covid的人，比如你骨折了，入院测covid，如果中了，你也算新冠住院。
+发布这张 ...</blockquote>
+要转就转全吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+The data includes patients whose primary diagnosis is not COVID, and the proportion may be higher with Omicron. Nonetheless, a COVID diagnosis adds to the NHS burden, whatever the primary diagnosis.
+
+*****
+
+####  smy20011  
+##### 2449#       发表于 2021-12-30 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102415&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-30 16:04</a>
+要转就转全吧
+
+The data includes patients whose primary diagnosis is not COVID, and the prop ...</blockquote>
+那也转一下呼吸机人数什么的，我手机没有长截图功能
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  jxwats1  
+##### 2450#       发表于 2021-12-30 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102324&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 15:57</a>
+这玩意包含了所有住院测出covid的人，比如你骨折了，入院测covid，如果中了，你也算新冠住院。
+发布这张 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">标准确实是这样没错，可是整个*趋势*还是可靠的啊？新一轮感染并不会提高或者降低真正因新冠入院的患者比例
+
+*****
+
+####  smy20011  
+##### 2451#       发表于 2021-12-30 16:12
+
+讨论死亡的可以再等等，毕竟从感染到死亡也需要几周的时间。可以关注icu病床数
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  最好不说  
+##### 2452#       发表于 2021-12-30 16:17
+
+<blockquote>ZZY19941124 发表于 2021-12-30 15:28
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
+弱是相对于delta的弱，相较于原始株和alpha毒力肯定是增强了的，鼓吹mild的都是这个逻辑，比德尔塔弱＝弱鸡变种＝大号流感＝广谱疫苗，共存派的联想唯有在这一层可以如此跃进
+
