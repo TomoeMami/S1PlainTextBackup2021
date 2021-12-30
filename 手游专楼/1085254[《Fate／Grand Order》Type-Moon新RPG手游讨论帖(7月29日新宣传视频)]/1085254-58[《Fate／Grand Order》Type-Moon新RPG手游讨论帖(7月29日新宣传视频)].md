@@ -5150,3 +5150,31 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 
 批着医生皮的盖总不管谁的声音我觉得都挺怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 85981#       发表于 2021-12-30 12:12
+
+连所罗门壳揭开谜底后都是杉田单人配，医生壳按理说也应该是杉田才是<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 85982#       发表于 2021-12-30 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099189&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-30 11:57</a>
+
+那猜下明天的剧情，小芬奇寿命结束，人王出现，指认老福，老福溶解？不过非解包党的舅舅一般不太可能知道剧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出个新class的老福本体
+
+*****
+
+####  KOBI  
+##### 85983#       发表于 2021-12-30 13:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后日基有人奶姆尼耶尔
+
+这位老哥是很合适没错但里面能是谁啊。。
+

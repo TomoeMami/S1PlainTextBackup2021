@@ -12506,3 +12506,15 @@ Q娃木瓜如果觉得木瓜不好吃那该咋办呢<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那么是不是可以看免费无修。
 
+
+
+*****
+
+####  lydia5989  
+##### 2442#       发表于 2021-12-30 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54093966&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-12-29 22:06</a>
+
+题外话，刚才在某社交平台上有小道消息说爱奇艺不买明年Q娃了，也不知道是不是真的？ ...</blockquote>
+海贼王还活蹦乱跳的前提下，东映动画打包的政策不会变，除非两边没一个
+

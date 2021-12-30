@@ -10726,3 +10726,52 @@ https://www.reuters.com/business/healthcare-pharmaceuticals/south-africa-detects
 如果不是南非先爆发的，那就得解释在这种传染力下，为什么没有任何一个机构能测的出来新变种 ...</blockquote>
 不，按照现在的爆发曲线，如果是在南非变种的南非的曲线已经很早爆了，现在的曲线更像压着的那种
 
+
+
+*****
+
+####  smy20011  
+##### 2404#       发表于 2021-12-30 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099963&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 12:56</a>
+
+不，按照现在的爆发曲线，如果是在南非变种的南非的曲线已经很早爆了，现在的曲线更像压着的那种 ...</blockquote>
+你是说涨的要比现在快？
+
+*****
+
+####  lexi  
+##### 2405#       发表于 2021-12-30 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098557&amp;ptid=2039422" target="_blank">ak123 发表于 2021-12-30 11:19</a>
+
+坐火箭喽</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/30/131122qxa1mqx8zahaxhqr.jpg" referrerpolicy="no-referrer">
+
+<strong>www.jpg</strong> (42.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202112/30/131122lcth6tcj3jjspott.jpg" referrerpolicy="no-referrer">
+
+<strong>USA.jpg</strong> (42.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 13:11 上传
+
+已经修正为160万+了，顺便，美帝也新增了46万just flu病例……比过去两年的单日最高峰值33.5万例，嗯，也就发生在前天，猛增40%<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 2406#       发表于 2021-12-30 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099060&amp;ptid=2039422" target="_blank">liquer 发表于 2021-12-30 11:48</a>
+
+子陵在听歌这位已经鼓吹得o等于广谱疫苗了︎，还有啥可关注的啊，唯一遗憾的就是没法把这厮送出去“接种” ...</blockquote>
+他是福奇太医的弟子啊， 之前又因为鼓吹瑞德西韦拿到吉利德offer<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
