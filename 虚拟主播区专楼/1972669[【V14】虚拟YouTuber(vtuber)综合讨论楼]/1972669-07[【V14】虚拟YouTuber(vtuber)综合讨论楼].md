@@ -8921,3 +8921,17 @@ by hnn杂谈
 
 不过看报道roa应该是想告个人名誉，我估计法院可不会管什么vtuber跟中之人切割，可能把账号直接当网名之类的，然后比照对普通网络kol不开盒的侮辱诽谤处理，让交个材料证明这个号后面是这个人那个号后面是那个人就完事了，国内应该也有类似案例，可能也没有想的那么特殊
 
+
+
+*****
+
+####  空集  
+##### 9761#       发表于 2021-12-30 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54106018&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-30 20:36</a>
+
+不正当竞争那个思路是指完全切割背后人的属性，单纯把roa这个形象当纯商标去告商誉损失
+
+不过看报道roa应 ...</blockquote>
+确实，我作为管人痴可能也想太多了。不过刚才看朝日新闻那文里对管人身份的重要性的描述也是略生草，不知道是不是真的诉状里也有这样表述。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
