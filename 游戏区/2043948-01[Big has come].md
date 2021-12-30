@@ -9476,3 +9476,17 @@ ZZ问题的无意义在于你只能通过结果去猜,甚至不知道真正的�
 说明你还是看过一些东西的. 但是对比起来做为中国辩解的视频播放和推送力, 之间的差距你也知道的. 网友只 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就不聊了，刚才的底气呢？你在这求粉饰于耳目易，不就是假以国器制人么？到底谁特么在这挑拨关系和稀泥，我说你1450你还谦虚，你说得对，你早该去外野了，有本事你外野开一贴，接着聊啊，我倒想看看外野是向着你还是向着我。
 
+
+
+*****
+
+####  epilogue  
+##### 858#       发表于 2021-12-31 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108026&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:17</a>
+
+...怎么着, 没理可讲摆烂了? 
+
+当年我在油管上骂台巴子时候, 你这个账号还没注册呢. 墙的策略不是我定的, ...</blockquote>
+U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也配谈限流？真的脸都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

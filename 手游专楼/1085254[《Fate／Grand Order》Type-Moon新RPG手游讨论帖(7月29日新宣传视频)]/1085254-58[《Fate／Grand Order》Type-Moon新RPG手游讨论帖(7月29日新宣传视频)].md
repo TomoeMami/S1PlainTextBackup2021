@@ -5389,3 +5389,15 @@ ccc里也说了不要把她和妲己那个狐狸相提并论
 可是里面好像混了点黑历史的东西？</blockquote>
 还有真月谭吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  都谷捻柏  
+##### 86004#       发表于 2021-12-31 05:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54105007&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-30 19:17</a>
+
+还有真月谭吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对月姬R来说，以前有的而现在暂时没有的东西不都是黑历史吗
+

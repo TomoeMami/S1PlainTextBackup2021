@@ -11643,3 +11643,95 @@ Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron c
 
 结果呢。。
 
+
+
+*****
+
+####  江涵  
+##### 2480#       发表于 2021-12-31 01:41
+
+<blockquote>xv88 发表于 2021-12-31 01:11
+辉瑞特效药厉害吗？看说的很好</blockquote>
+本质阻断药，最大的问题是在检测能力卡瓶颈的情况下如何让人知道自己已经感染并且及时吃药
+
+*****
+
+####  smy20011  
+##### 2481#       发表于 2021-12-31 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109240&amp;ptid=2039422" target="_blank">江涵 发表于 2021-12-31 01:41</a>
+
+本质阻断药，最大的问题是在检测能力卡瓶颈的情况下如何让人知道自己已经感染并且及时吃药 ...</blockquote>
+好像副作用比较厉害
+
+*****
+
+####  母星  
+##### 2482#       发表于 2021-12-31 01:59
+
+ 本帖最后由 母星 于 2021-12-31 02:04 编辑 
+<blockquote>smy20011 发表于 2021-12-31 01:35
+但是进化是以种群为单位进行研究 而不是种群的某个基因型进行研究
+
+要不然的话 进化论应该不成立的
+
+即使某 ...</blockquote>
+要是把新冠病毒的各个种群合并到一起来讨论，那也没法否定毒力增强的演化路径呀。两年以来新冠病毒作为一个物种（不讨论病毒算不算物种）而言，有出现过比2年前整体毒力更低的现象吗？
+
+*****
+
+####  filo916  
+##### 2483#       发表于 2021-12-31 02:29
+
+香港<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2484#       发表于 2021-12-31 02:41
+
+ 本帖最后由 smy20011 于 2021-12-31 02:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109337&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 01:59</a>
+
+要是把新冠病毒的各个种群合并到一起来讨论，那也没法否定毒力增强的演化路径呀。两年以来新冠病毒作为一 ...</blockquote>
+这里的毒力更强，指的是每一代比上一代更强，还是每一代都比原始的强呢？
+
+比如存在一个这样的演化序列，每一代都比上一代更弱，但是都比原始的毒株强，你认为这样的病毒算是“毒力增强”么？
+
+*****
+
+####  Alexmacau8  
+##### 2485#       发表于 2021-12-31 02:52
+
+ 本帖最后由 Alexmacau8 于 2021-12-31 02:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109048&amp;ptid=2039422" target="_blank">xv88 发表于 2021-12-31 01:11</a>
+
+辉瑞特效药厉害吗？看说的很好</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帮辉瑞炒股的玩意儿，老美精英从来没信过，包括疫苗。 真在上层圈子里的都相信单抗，阿川就接受过鸡尾酒疗法，前期单抗还只能从康复者血液提取，金贵得不得了；不过还好老美反正感染基数大，康复者够多，供应稳定。
+
+奥米克隆刚被发现时候欧美异常的封城反应就是因为发现单抗不行了……现在嘛，mild～就过去了
+
+*****
+
+####  Alexmacau8  
+##### 2486#       发表于 2021-12-31 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109538&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 02:41</a>
+这里的毒力更强，指的是每一代比上一代更强，还是每一代都比原始的强呢？
+
+比如存在一个这样的演化序列， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也别死扣字眼了，突变重组是随机的，只有积累足够有利突变得毒株才能存活下来，不见得毒力一定愈来愈强或者愈来愈弱；奥米克隆如果不是点了传播性，卷的过delta？ 没优势的毒株早卷没了。
+
+*****
+
+####  smy20011  
+##### 2487#       发表于 2021-12-31 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109577&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-31 02:56</a>
+
+也别死扣字眼了，突变重组是随机的，只有积累足够有利突变得毒株才能存活下来，不见得毒力一定愈 ...</blockquote>
+可以确定的是，传播力一代比一代强，但是毒力我更倾向于随机分布。
+
+但是铁口直断毒力肯定是更强/更弱的，我觉得没有依据
+
