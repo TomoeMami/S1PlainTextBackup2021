@@ -15758,3 +15758,138 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来<img src
 
 这方面还挺像唯的
 
+
+
+*****
+
+####  zylwz  
+##### 2823#       发表于 2021-12-30 11:41
+
+大号幼女草
+
+想想经纪人发的日常推 好像这个形容还挺贴切的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 2824#       发表于 2021-12-30 11:42
+
+鱼叫就是牙牙学语吗，害蛮贴切<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zskg  
+##### 2825#       发表于 2021-12-30 11:43
+
+<blockquote>shamanda 发表于 2021-12-30 11:36
+那tm的是因为你们截罪证的人截的一条黑料九条唱跳好不好？你们要追着他说摩天轮打单截那一条不就行了？截 ...</blockquote>
+你怎么那么喜欢缩小化，因为他不止传了谣言还说了其他的，所以其他的就不能截是吧，完整的截图出来不是能让人更好的了解他前后言论以便粉丝避雷吗？你真是反扣帽子味溢出了。
+
+*****
+
+####  shamanda  
+##### 2826#       发表于 2021-12-30 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098891&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 11:38</a>
+你寄吧谁啊谁跟你都是了
+
+这话题都该过去了你非得冲进来打滚找喷 别tm说得好像谁没事干不喷点什么不舒服一 ...</blockquote>
+我冲进来打滚找喷？我客观的回答了为什么要挂，因为那个截图让路人看不下去了，并不是一定要给车西出头，一群人不就喷上来了吗？那反正快放假了也没啥事，就辩辩呗。我注册的时候估计有些人还没出生呢，还能在乎这些饭圈破事啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TRIScRE|-1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  ads147147  
+##### 2827#       发表于 2021-12-30 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098907&amp;ptid=2036367" target="_blank">saya1892 发表于 2021-12-30 11:39</a>
+
+ANN那广播几个女人混在一起说话好可怕，根本分不出来
+
+虽然平时鱼看着像大号幼女，但伊达在说自己 ...</blockquote>
+霓虹那个压抑氛围，估计只有霓虹金自己才读空气读得出来，纯上海人当然自由的多了，就算紧张可能也和其他人紧张的东西不一样。
+
+说起来鲤鱼这个日语虚拟机宕机设定实在是太方便了，大不了就当宕机没听懂或者说不出来处理，很容易下台阶。
+
+*****
+
+####  cybernetics31  
+##### 2828#       发表于 2021-12-30 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上台表演啥的我估计鱼都已经习以为常了
+
+*****
+
+####  zskg  
+##### 2829#       发表于 2021-12-30 11:47
+
+<blockquote>shamanda 发表于 2021-12-30 11:45
+我冲进来打滚找喷？我客观的回答了为什么要挂，因为那个截图让路人看不下去了，并不是一定要给车西出头， ...</blockquote>
+草，典中典了属于是，下场写小作文的纯路人，摆资历的所谓老资格，这资历还是网站的注册时间，能不能别现眼了
+
+*****
+
+####  一个陆仁贾  
+##### 2830#       发表于 2021-12-30 11:47
+
+挺好的，靠吃破坏了空气中的紧张氛围<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  player3960  
+##### 2831#       发表于 2021-12-30 11:48
+
+来了来了，都开始论资排辈了，tmd,s1怎么变成这么个样子.JPG<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 2832#       发表于 2021-12-30 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1老巨魔能不能有点老巨魔的风范啊  摆论坛注册时间的资历也太蠢了
+
+*****
+
+####  stygian  
+##### 2833#       发表于 2021-12-30 11:50
+
+用本音的小宫和sks我分不太清，其他人还行，都有特点(或者已经听的足够多能分得出来了)
+
+我觉得昨天最乐的还是前面刚说完成吉思汗后脚打铁刚开个头说回老家很期待，你鲤鱼姐直接来一句牛舌全场爆笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋狐  
+##### 2834#       发表于 2021-12-30 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">捏麻麻地，典中典和套buff一样占全了，什么活体教科书
+
+*****
+
+####  稀勢のささ  
+##### 2835#       发表于 2021-12-30 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我悟了 这是已经达到乐自己境界的老巨魔
+
+*****
+
+####  cybernetics31  
+##### 2836#       发表于 2021-12-30 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上来就说吃的也难怪逢田姐之前说鲤鱼有趣了
+

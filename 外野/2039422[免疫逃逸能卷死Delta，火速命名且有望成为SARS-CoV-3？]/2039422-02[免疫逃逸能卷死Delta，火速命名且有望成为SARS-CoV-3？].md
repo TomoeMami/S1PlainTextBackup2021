@@ -10499,3 +10499,146 @@ CDC预测未来四周死于新冠人数可能达到4.4万</blockquote>
 子陵又在那阴阳怪气国内疫苗没用了，我奇怪就算是防重症到现在国内也没死过人，他哪来的信心鄙视国内疫苗 ...</blockquote>
 跟楼里某位一样，从开始的MRNA无敌论转进到畜群免疫魔怔人了核心思想就是我们药丸
 
+
+
+*****
+
+####  琉璃  
+##### 2384#       发表于 2021-12-30 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097676&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 10:18</a>
+
+如果不是南非先爆发的，那就得解释在这种传染力下，为什么没有任何一个机构能测的出来新变种 ...</blockquote>
+南非其实也没有检测出来吧？
+
+没记错的话好像是孔雀明王大老师写的索引从上传数据库中抓出来的。
+
+*****
+
+####  creymorgan  
+##### 2385#       发表于 2021-12-30 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098179&amp;ptid=2039422" target="_blank">atomhappy 发表于 2021-12-30 10:55</a>
+
+还一种更阴谋论的可能，就是先测出来上报了，会被污名化，所以发达国家测出来了也会先压着等冷头青上报。 ...</blockquote>
+反过来说，他们会对入境检测更积极。
+
+就像1918年英法德自己瞒着不报，然后拼命转载西班牙新闻。
+
+*****
+
+####  jxwats1  
+##### 2386#       发表于 2021-12-30 11:44
+
+子陵在听歌经典言论赏析
+
+1. （转载Alex Sigal的研究，研究中四名未接种疫苗入组人员感染omicron后只有一个产生了足够中和Delta的抗体）
+
+读者评论-意思是感染Omicron等同于接种广谱疫苗了？
+
+子陵回复：-是的
+
+2. （转载lancet上发表的长期后遗症队列的随访数据，表明12个月后49%有至少一项后遗症）
+
+子陵评论：之前每天都有人留言讲ADE；最近都讲COVID-19“后遗症”了。目前全世界最好后遗症随访研究之一来自中国中日友好医院，研究发现绝大多数COVID-19患者恢复良好，无后遗症。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2387#       发表于 2021-12-30 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098968&amp;ptid=2039422" target="_blank">琉璃 发表于 2021-12-30 11:43</a>
+
+南非其实也没有检测出来吧？
+
+没记错的话好像是孔雀明王大老师写的索引从上传数据库中抓出来的。 ...</blockquote>
+[https://www.reuters.com/business ... numbers-2021-11-25/](https://www.reuters.com/business/healthcare-pharmaceuticals/south-africa-detects-new-covid-19-variant-small-numbers-2021-11-25/)
+
+Omicron不是南非先报的？
+
+*****
+
+####  smy20011  
+##### 2388#       发表于 2021-12-30 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098132&amp;ptid=2039422" target="_blank">李天宝 发表于 2021-12-30 10:52</a>
+
+美国这世界第一的感染数量也没有测出来什么有名气的新变种，别的地方测不出来有啥好奇怪的，就美国会“不 ...</blockquote>
+但是感染数量总不能说谎
+
+如果不是南非先爆发，那么其他地区的某一主要变种肯定不是omicron
+
+而且如果在其他地区先爆发的话，感染数量应该领先南非先上扬
+
+*****
+
+####  liquer  
+##### 2389#       发表于 2021-12-30 11:48
+
+子陵在听歌这位已经鼓吹得o等于广谱疫苗了︎，还有啥可关注的啊，唯一遗憾的就是没法把这厮送出去“接种”然后别回来了
+
+*****
+
+####  琉璃  
+##### 2390#       发表于 2021-12-30 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099004&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 11:45</a>
+
+https://www.reuters.com/business/healthcare-pharmaceuticals/south-africa-detects-new-covid-19-vari ...</blockquote>
+南非先报。但原因不是南非查出来，而是孔雀明王大老师抓数据抓出来的。
+
+*****
+
+####  琉璃  
+##### 2391#       发表于 2021-12-30 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098238&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-30 11:00</a>
+
+在共存派看来只要不放开国门和白皮一起in waves国内疫苗就永远是落后于版本的，不管打的是灭活还是mRNA， ...</blockquote>
+导致疫苗落后版本的原因还不是那票白皮非要整活？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alexmacau8  
+##### 2392#       发表于 2021-12-30 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099038&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 11:47</a>
+但是感染数量总不能说谎
+
+如果不是南非先爆发，那么其他地区的某一主要变种肯定不是omicron</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要明白非洲大陆的情况，南非尚有检测测序能力，其他地方都是黑洞。而且埃米克隆的发现很大细节完全复刻了武汉的一些情况。毕竟没有测序没有辨别也就没有新变种。
+
+*****
+
+####  smy20011  
+##### 2393#       发表于 2021-12-30 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099100&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 11:52</a>
+
+你要明白非洲大陆的情况，南非尚有检测测序能力，其他地方都是黑洞。而且埃米克隆的发现很大细节 ...</blockquote>
+也就是说非洲先爆发，但是南非是第一个检测出来的？
+
+*****
+
+####  Alexmacau8  
+##### 2394#       发表于 2021-12-30 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099060&amp;ptid=2039422" target="_blank">liquer 发表于 2021-12-30 11:48</a>
+子陵在听歌这位已经鼓吹得o等于广谱疫苗了︎，还有啥可关注的啊，唯一遗憾的就是没法把这厮送出去“接种” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这哥们肉身在美国吧，看微博，前两天还在北加滑雪。
+
+*****
+
+####  三菱自工  
+##### 2395#       发表于 2021-12-30 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098893&amp;ptid=2039422" target="_blank">中二骚年 发表于 2021-12-30 11:38</a>
+跟楼里某位一样，从开始的MRNA无敌论转进到畜群免疫魔怔人了。核心思想就是我们药丸
+
+ ...</blockquote>
+错，核心思想还是老掉牙的中药丸。
+
+—— 来自 vivo V2031A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
