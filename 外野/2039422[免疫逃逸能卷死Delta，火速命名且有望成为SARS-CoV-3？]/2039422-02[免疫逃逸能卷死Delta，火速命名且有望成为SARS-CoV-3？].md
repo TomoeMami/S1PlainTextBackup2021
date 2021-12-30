@@ -10324,3 +10324,35 @@ CDC预测未来四周死于新冠人数可能达到4.4万
 也是疫苗拉偏手吧</blockquote>
 很有可能 毕竟豪登省爆出来的 发源地不一定就是豪登省
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2369#       发表于 2021-12-30 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097152&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 09:39</a>
+不用测核酸了，几乎100%的Omicron感染，回家喝热水躺平就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不认目前事实确实是这样，上周有个NHS专家说，埃米克隆传播力远超感冒（common cold），根本挡不住。 现在算是验证了，身边已经两个人中招了，还好疫苗防重症效果还可以，都没什么事。
+
+*****
+
+####  Alexmacau8  
+##### 2370#       发表于 2021-12-30 10:14
+
+ 本帖最后由 Alexmacau8 于 2021-12-30 10:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096873&amp;ptid=2039422" target="_blank">武男 发表于 2021-12-30 09:17</a>
+
+让美联储一边加息一边买到肆拾万亿美刀就可以了啊，不过虽然吹风美国日本化了，真这样的话华尔街那帮人坐 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">印钞搞QE还真是找日本人学的，凭美元霸权，印到极致了
+
+
+
+*****
+
+####  smy20011  
+##### 2371#       发表于 2021-12-30 10:18
+
+如果不是南非先爆发的，那就得解释在这种传染力下，为什么没有任何一个机构能测的出来新变种
+

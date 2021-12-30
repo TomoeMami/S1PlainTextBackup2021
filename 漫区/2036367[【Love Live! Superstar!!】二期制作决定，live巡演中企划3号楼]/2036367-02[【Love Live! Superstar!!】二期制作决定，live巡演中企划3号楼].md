@@ -15183,3 +15183,150 @@ ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://stati
 没办法，看的偶像少，上一个知道的粉丝不让黑的偶像就是肖战了</blockquote>
 笑了，肖战哪件事拿不出证据?外面那个什么成海是因为大家想黑所以建楼?哦，平白无故拿摩天轮四处叫唤，别人反驳就是不让黑，好大的b脸，那我可不可以说是你家人干这行的所以你觉得其他人也是这样，千万别反驳，别饭圈不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 2769#       发表于 2021-12-30 10:03
+
+即使在遍地巨魔的S1，这种瓜都看不懂、抓不住重点只会扣帽子的也是最低档的选手吧
+
+*****
+
+####  kata魂  
+##### 2770#       发表于 2021-12-30 10:03
+
+还有想黑的，我之前就说了，想黑直接黑。
+
+为啥，这里是s1啊，又不是纯良地，但尼玛的想黑又jb怪外抹角的，说自己不是黑只是看不爽群体。怎么喷粪前还得喷点香水掩饰一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 2771#       发表于 2021-12-30 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了，还以为突然这么多是讨论广播呢，瓜都没吃懂
+
+*****
+
+####  shamanda  
+##### 2772#       发表于 2021-12-30 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097422&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-12-30 09:58</a>
+笑了，肖战哪件事拿不出证据?外面那个什么成海是因为大家想黑所以建楼?哦，平白无故拿摩天轮四处叫唤，别 ...</blockquote>
+不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是摩天轮是假的。前面你们整理的那个黑屁合集，里面也只有一条提到了以前的黑料，而且说的是不管是真是假，其他不都是在黑屁唱功长相日文嘛？不知道你们粉丝为什么整天要把这件事情放嘴上，嫌谣言传得不够广？
+
+*****
+
+####  D麦林  
+##### 2773#       发表于 2021-12-30 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097541&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:07</a>
+不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是摩天轮是假的。前面你们整理的那个黑屁合集，里 ...</blockquote>
+你就说他提没提谣言吧
+提了 那扯别的干嘛
+
+*****
+
+####  shamanda  
+##### 2774#       发表于 2021-12-30 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097583&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 10:10</a>
+你就说他提没提谣言吧
+提了 那扯别的干嘛</blockquote>
+艹了，我又没提过，还要给别人背锅不成？
+
+*****
+
+####  a92063256  
+##### 2775#       发表于 2021-12-30 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097541&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:07</a>
+
+不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是摩天轮是假的。前面你们整理的那个黑屁合集，里 ...</blockquote>
+整天把这件事放在嘴上：指坛友回复你时提了一句
+
+歪曲事实还是有一手
+
+*****
+
+####  stygian  
+##### 2776#       发表于 2021-12-30 10:14
+
+给我整不会了，我觉得你们对黑屁这词大概认知有所不同
+
+晚上生放之前本楼能清净吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zskg  
+##### 2777#       发表于 2021-12-30 10:14
+
+<blockquote>shamanda 发表于 2021-12-30 10:07
+不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是摩天轮是假的。前面你们整理的那个黑屁合集，里 ...</blockquote>
+“我们那经常黑屁鲤鱼的群”，那你前面会写那些也不奇怪了，一开始还装啥吃瓜路人然后写小作文下场扣帽子呢，演技拙劣。
+
+*****
+
+####  kata魂  
+##### 2778#       发表于 2021-12-30 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097541&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:07</a>
+
+不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是摩天轮是假的。前面你们整理的那个黑屁合集，里 ...</blockquote>
+那你的意思是我之前说的还蛮纯良的，应该再加点料呗
+
+散发谣言的知道是谣言这很奇怪吗?
+
+不是谣言谁散发啊，嫌散发不够广不就是你们这群体开始散发的吗?
+
+被打脸了，大家开始不相信了
+
+‘’哦，我这是假的，你们居然认真了。‘’
+
+咱活着能干脆点吗，说点话还tm别别扭扭的，要是怕被清算就别黑屁，黑屁了就老子喜欢黑，你们怎么着
+
+*****
+
+####  shamanda  
+##### 2779#       发表于 2021-12-30 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097620&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-30 10:13</a>
+整天把这件事放在嘴上：指坛友回复你时提了一句
+
+歪曲事实还是有一手</blockquote>
+你去搜我所有回复，有提过一句吗？你们回复我的时候提了多少遍？到底是谁在扩散这个谣言？你们真的是粉丝嘛？
+
+*****
+
+####  cybernetics31  
+##### 2780#       发表于 2021-12-30 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎哟喂，还不是粉丝都扣上头了，没啥好讨论，举报再见
+
+*****
+
+####  a92063256  
+##### 2781#       发表于 2021-12-30 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097645&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:15</a>
+
+你去搜我所有回复，有提过一句吗？你们回复我的时候提了多少遍？到底是谁在扩散这个谣言？你们真的是粉丝 ...</blockquote>
+回复你总共也就一次啊？你要不回去数数？
+
+而且<blockquote>不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是...</blockquote>
+这个算不算提？
+
+*****
+
+####  nufawneafg  
+##### 2782#       发表于 2021-12-30 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097541&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:07</a>
+不要噶黑，即使是我们那经常黑屁鲤鱼的群里，主流认知也是摩天轮是假的。前面你们整理的那个黑屁合集，里 ...</blockquote>
+就一句，既然都是在道德底线和法律底线中间的灰色部分长袖善舞，还分啥你对我错啊。
+黑屁比饭圈更高尚？搁这比较啥阶数呢。
+天天整得好像受了天大的委屈，孽力回馈我只能说。
+闲着没事干，线下直接ttk比较好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

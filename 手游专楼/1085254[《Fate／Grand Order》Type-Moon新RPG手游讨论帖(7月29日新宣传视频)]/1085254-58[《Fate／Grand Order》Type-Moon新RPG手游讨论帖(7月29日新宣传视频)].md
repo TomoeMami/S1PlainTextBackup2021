@@ -4987,3 +4987,18 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 不是外星人吗？</blockquote>
 其实有一点可以佐证，不过也不是解包是远古的猜测了，老福的画师在fgo只画了三个人，老福，提妈，盖提亚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  الطائر  
+##### 85965#       发表于 2021-12-30 10:17
+
+福尔摩斯名推理：医生不可信
+
+莫里亚蒂名推理：福尔摩斯不可信，迦勒底有内鬼
+
+盖提亚名推理：迦勒底有内鬼
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
