@@ -10138,3 +10138,12 @@ The data includes patients whose primary diagnosis is not COVID, and the proport
 
 下一个变种点出ADE，躺平的就真躺平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  arsenalfcc  
+##### 2351#       发表于 2021-12-30 08:09
+
+阿尔特塔又新冠阳性了，之前几个月就得过一次。
+

@@ -4968,3 +4968,12 @@ B站动态看见一个观影团连观影特典都整出来了
 
 蕉还是一如既往的开头牛逼最后被破防。精神面可能是99组里面倒数的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 383#       发表于 2021-12-30 08:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧场版里大家都在反杀，只有大场奈奈1V1还是没赢过（虽然刷了时髦值
+
