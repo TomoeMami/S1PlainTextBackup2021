@@ -11086,3 +11086,31 @@ o病毒是不是潜伏期更短而且因为呼吸道更容易被攻击所以检�
 之前楼里好像说O病毒攻击呼吸道高于攻击肺部，从检测角度是不是更容易被检测到了 ...</blockquote>
 日本那边有预印本，O株在人类上呼吸道气液界面的感染效率特别高
 
+
+
+*****
+
+####  pushare  
+##### 2432#       发表于 2021-12-30 14:48
+
+BNOnews：Paris issues outdoor mask mandate
+
+*****
+
+####  huanyanqia  
+##### 2433#       发表于 2021-12-30 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100486&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 13:35</a>
+这个是因为旧型号的PCR快筛包没有更新版本，还是因为新病毒机理不容易被检出？ ...</blockquote>
+应该是版本没更新，但是更新版本的快筛包仍需要非常非常长的时间去制作和铺开。
+
+*****
+
+####  米村正二  
+##### 2434#       发表于 2021-12-30 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101398&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-30 14:48</a>
+
+BNOnews：Paris issues outdoor mask mandate</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黄马甲穿起来，带兄弟们再冲一次吧
+

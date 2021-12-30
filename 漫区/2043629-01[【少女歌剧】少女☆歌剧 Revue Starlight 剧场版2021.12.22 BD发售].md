@@ -5064,3 +5064,29 @@ B站动态看见一个观影团连观影特典都整出来了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  werkeytom  
+##### 391#       发表于 2021-12-30 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54071453&amp;ptid=2043629" target="_blank">尚风悦 发表于 2021-12-28 09:37</a>
+
+突然意识到，迷宫最后那一场，那个高台和无限落下的玫瑰
+
+古川哥哥你到底看了多少遍思春期默示录啊 ...</blockquote>
+我第一遍看到那里也是这个感觉，构思那个场景时古川脑海里的概念和印象肯定是少革，已经是高调情书了
+
+*****
+
+####  污陨血红  
+##### 392#       发表于 2021-12-30 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101184&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2021-12-30 14:31</a>
+
+精髓在于流泪后众人鼓掌，但是无人察觉到真心，抬起头来是回应掌声的强颜欢笑（怎么这么扭）
+
+  -- 来自 有 ...</blockquote>
+所以说除了发色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太正统了，精髓都对上了
+
