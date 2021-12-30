@@ -5276,3 +5276,31 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 
 反正都是瞎奶，既然图标是九尾，我能不能奶个纣王新所长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 85993#       发表于 2021-12-30 16:32
+
+新所长是个好人，你们不要咒他死啊
+
+*****
+
+####  snakeling  
+##### 85994#       发表于 2021-12-30 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不玩日服的问件事，杀狐是假的，问题是真狐狸确实在啊，同时有太公和C狐有特殊对话吗？
+
+*****
+
+####  gpx234mqx  
+##### 85995#       发表于 2021-12-30 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102835&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-12-30 16:34</a>
+
+不玩日服的问件事，杀狐是假的，问题是真狐狸确实在啊，同时有太公和C狐有特殊对话吗？ ...</blockquote>
+对小玉有啊，看到就叫妲己
+
+然后马上发现认错人了
+

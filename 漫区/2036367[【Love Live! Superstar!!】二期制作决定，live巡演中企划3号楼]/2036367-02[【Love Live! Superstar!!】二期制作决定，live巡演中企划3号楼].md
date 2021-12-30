@@ -16290,3 +16290,12 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 除了kyan和ainyan还算稳其他人都跑的鬼一样<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">明天怕是要完犊子
 
+
+
+*****
+
+####  lj205  
+##### 2873#       发表于 2021-12-30 16:37
+
+原来鲤鱼念what a wonderful dream也是日式英语念法<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

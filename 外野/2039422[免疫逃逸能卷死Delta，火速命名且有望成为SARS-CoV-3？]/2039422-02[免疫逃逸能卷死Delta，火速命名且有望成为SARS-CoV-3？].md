@@ -11327,3 +11327,54 @@ The data includes patients whose primary diagnosis is not COVID, and the prop ..
 虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
 弱是相对于delta的弱，相较于原始株和alpha毒力肯定是增强了的，鼓吹mild的都是这个逻辑，比德尔塔弱＝弱鸡变种＝大号流感＝广谱疫苗，共存派的联想唯有在这一层可以如此跃进
 
+
+
+*****
+
+####  卡普空  
+##### 2453#       发表于 2021-12-30 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102059&amp;ptid=2039422" target="_blank">yuandi0120 发表于 2021-12-30 15:38</a>
+
+总觉着在这么无限量的培养皿支持的变异下去ade迟早要来
+
+—— 来自 HUAWEI VOG-AL00, Android 10 ...</blockquote>
+我毫不怀疑，很难想象这玩意将来会突然就不见了，这辈子能不能结束疫情我觉得希望都很渺茫
+
+*****
+
+####  KOGmk2  
+##### 2454#       发表于 2021-12-30 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101720&amp;ptid=2039422" target="_blank">ak123 发表于 2021-12-30 15:10</a>
+
+这波疫情炸裂还有个侧面体现就是，越来越多本来保护很好的up也开始得冠了,接下来三个月半数米国人口中招 ...</blockquote>
+按奥米克隆这爆炸级的传染力,一个月差不多就该有上亿米国佬确诊了
+
+*****
+
+####  KOGmk2  
+##### 2455#       发表于 2021-12-30 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101945&amp;ptid=2039422" target="_blank">ZZY19941124 发表于 2021-12-30 15:28</a>
+
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
+新冠录得死亡平均对应的是12-14天确诊人数,这十几天欧米确诊每天攀登新高峰,如果死亡比例不变的话,大概半个月之后美人希每天至少死5K+
+
+*****
+
+####  KOGmk2  
+##### 2456#       发表于 2021-12-30 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102811&amp;ptid=2039422" target="_blank">卡普空 发表于 2021-12-30 16:32</a>
+
+我毫不怀疑，很难想象这玩意将来会突然就不见了，这辈子能不能结束疫情我觉得希望都很渺茫 ...</blockquote>
+流感自从上个世纪初大杀特杀以来每年固定收割......新冠大概率也是如此了......
+
+*****
+
+####  66666  
+##### 2457#       发表于 2021-12-30 16:42
+
+加麻大魁北克已经宣布允许任何工作场所和岗位可以让阳性患者继续工作，没有任何隔离要求，基本官方认定就是大号流感了，反正你死了也跟我政府无关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

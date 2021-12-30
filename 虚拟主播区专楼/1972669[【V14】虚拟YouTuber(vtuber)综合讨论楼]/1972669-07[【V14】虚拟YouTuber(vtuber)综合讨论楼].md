@@ -8220,3 +8220,12 @@ v版魔怔是不是因为杏奴多的缘故？</blockquote>
 小人不懂规矩，扰了大人看管的雅兴，搞得连转播都没得看了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">。。。。。下次努力想点更有意思的话吧 你着的这个点 在一种喷人兴致的角度上都让我杨威了。。你去V8进修一下那套话术可能都强点
 
+
+
+*****
+
+####  硫黄  
+##### 9684#       发表于 2021-12-30 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感想：不如V8
+
