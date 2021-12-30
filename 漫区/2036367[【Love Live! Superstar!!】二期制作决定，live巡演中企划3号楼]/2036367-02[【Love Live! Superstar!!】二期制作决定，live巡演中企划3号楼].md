@@ -15963,3 +15963,61 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2843#       发表于 2021-12-30 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099437&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-30 12:14</a>
+@一个陆仁贾
+
+拿有钱说事还能说到说到，毕竟真金白银要是买了周边碟片再黑也可以说有点道理。论资排辈算年 ...</blockquote>
+你说的这种太温柔了，我是指那种“我花了钱买live门票所以我做什么违反现场规定、恶心周围阿宅都是对的”
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zskg  
+##### 2844#       发表于 2021-12-30 12:23
+
+有一说一，感谢这位老哥嗷，用活灵活现的小丑行径让我这几天被甲方折磨的心灵感受到了一些愉悦。
+
+*****
+
+####  starring  
+##### 2845#       发表于 2021-12-30 12:23
+
+ 本帖最后由 starring 于 2021-12-30 12:34 编辑 
+
+人多了不太听得懂这广播，有几个有趣的地方
+
+鲤鱼的日语变好了，现在一个人的时候也是说日语，想见小百合的父母，空气嘉宾pay子和nako ；还有菜宝用中文介绍角色，被问是不是向秀打听了要用别的语言介绍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+菜宝的声音听着跟平时自己的直播不一样，一开始我都没认出来
+
+*****
+
+####  cat1230  
+##### 2846#       发表于 2021-12-30 12:24
+
+这种不提了，我记得水团的光路在国内就搞的非常尴尬，韩国的就很漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  stygian  
+##### 2847#       发表于 2021-12-30 12:31
+
+今天倒数视频是诶女士
+
+*****
+
+####  cybernetics31  
+##### 2848#       发表于 2021-12-30 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前国内水团那个call的表现只留下静安动物园这个戏称了
+
