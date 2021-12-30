@@ -10147,3 +10147,12 @@ The data includes patients whose primary diagnosis is not COVID, and the proport
 
 阿尔特塔又新冠阳性了，之前几个月就得过一次。
 
+
+
+*****
+
+####  豪福  
+##### 2352#       发表于 2021-12-30 08:28
+
+奥密克戎能卷赢德尔塔必定是传染力更猛
+
