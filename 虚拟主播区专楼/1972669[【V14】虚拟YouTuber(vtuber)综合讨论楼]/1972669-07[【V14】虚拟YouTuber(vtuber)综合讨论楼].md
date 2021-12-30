@@ -8629,3 +8629,49 @@ mrra！
 
 看了眼推特，这应该是铁胜诉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宫藤芳佳  
+##### 9732#       发表于 2021-12-30 19:02
+
+Marpril也学老爱停了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 9733#       发表于 2021-12-30 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干烂裁狗也行
+
+*****
+
+####  flyskywalker92  
+##### 9734#       发表于 2021-12-30 19:03
+
+听说裁狗要死了 真的假的
+
+*****
+
+####  ihihihihi  
+##### 9735#       发表于 2021-12-30 19:04
+
+裁狗k48
+
+*****
+
+####  hulaoda007  
+##### 9736#       发表于 2021-12-30 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">Roa回归直播里，可以让mrra和梦见月也回归吗？
+
+*****
+
+####  free  
+##### 9737#       发表于 2021-12-30 19:12
+
+[https://www.youtube.com/watch?v=7Jitzb3wHrM](https://www.youtube.com/watch?v=7Jitzb3wHrM)
+
+「深海フェス 2021」~エルセとさめのぽき主催オンラインライブ~
+

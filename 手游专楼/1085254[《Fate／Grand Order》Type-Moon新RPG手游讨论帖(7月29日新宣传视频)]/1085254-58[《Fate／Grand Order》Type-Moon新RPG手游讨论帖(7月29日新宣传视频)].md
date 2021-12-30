@@ -5378,3 +5378,14 @@ ccc里也说了不要把她和妲己那个狐狸相提并论
 话说你月C99只卖月姬还是有这么多人排队，今年真是你月月姬元年或者说从fate开始转向其他ip的元年了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是里面好像混了点黑历史的东西？
 
+
+
+*****
+
+####  zakki  
+##### 86003#       发表于 2021-12-30 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54104671&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-30 18:57</a>
+可是里面好像混了点黑历史的东西？</blockquote>
+还有真月谭吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
