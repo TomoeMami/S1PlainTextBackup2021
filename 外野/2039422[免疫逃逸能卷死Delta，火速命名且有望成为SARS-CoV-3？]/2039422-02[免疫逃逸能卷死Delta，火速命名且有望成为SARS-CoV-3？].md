@@ -10183,3 +10183,58 @@ CDC预测未来四周死于新冠人数可能达到4.4万
 
 我忽然想起当年床破说死多少就是胜利。。。那个数字是多少？？现在回头想想。床破真的诚实啊。。。。= =
 
+
+
+*****
+
+####  jxwats1  
+##### 2356#       发表于 2021-12-30 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096687&amp;ptid=2039422" target="_blank">ztgmeteor 发表于 2021-12-30 09:01</a>
+
+坐标大温，这里检测点已经爆满了，不预约去检测只会给你一个rapid test的小盒子让你自己回家测，但那玩意准 ...</blockquote>
+
+我这也是，检测点排长队…明明半年前都没人排队的
+
+前些天基本已经实锤了两针疫苗对防传染没卵用。现在只能希望你症状不严重，早日康复<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 2357#       发表于 2021-12-30 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090598&amp;ptid=2039422" target="_blank">点点杠 发表于 2021-12-29 17:23</a>
+
+看这楼，还以为外国要丸了，结果石油还涨起来了，这是屁话满天</blockquote>
+大哥您是昂撒婆罗门嘛？
+
+*****
+
+####  ztgmeteor  
+##### 2358#       发表于 2021-12-30 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096776&amp;ptid=2039422" target="_blank">jxwats1 发表于 2021-12-30 09:09</a>
+我这也是，检测点排长队…明明半年前都没人排队的
+
+前些天基本已经实锤了两针疫苗对防传染没卵用。现在只 ...</blockquote>
+呜呜呜谢谢谭友<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 2359#       发表于 2021-12-30 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090930&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-29 17:53</a>
+
+因为华尔街已经接受了广谱人传人疫苗的安利，形式一片大好，但两周以后呢？ ...</blockquote>
+让美联储一边加息一边买到肆拾万亿美刀就可以了啊，不过虽然吹风美国日本化了，真这样的话华尔街那帮人坐得住嘛？
+
+*****
+
+####  66666  
+##### 2360#       发表于 2021-12-30 09:23
+
+根据**在年终对于新冠疫情影响美国人均寿命的时候就说过，别看新冠死亡率还不算非常高，但他会积压其他疾病重症如癌症中晚期、中风等的医疗资源
+
+这会使得整体人均医疗资源大幅下降，导致人均逾期寿命急剧降低，所谓把O病毒当人传人的疫苗，只能说如果你是富人随时随地能得到24小时VIP医疗抢救和护理的那确实是，如果是普通人那就只能祈祷自己别死在家里了
+
