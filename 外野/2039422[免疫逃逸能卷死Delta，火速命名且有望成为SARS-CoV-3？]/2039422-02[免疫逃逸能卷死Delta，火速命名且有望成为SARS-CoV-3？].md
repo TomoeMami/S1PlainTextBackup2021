@@ -11114,3 +11114,32 @@ BNOnews：Paris issues outdoor mask mandate
 BNOnews：Paris issues outdoor mask mandate</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黄马甲穿起来，带兄弟们再冲一次吧
 
+
+
+*****
+
+####  creymorgan  
+##### 2435#       发表于 2021-12-30 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101398&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-30 14:48</a>
+
+BNOnews：Paris issues outdoor mask mandate</blockquote>
+啥，已经占领了还没投降？难道要给半张常任票？
+
+得全力阻止新冠开发核武器了。
+
+*****
+
+####  ak123  
+##### 2436#       发表于 2021-12-30 15:10
+
+<img src="https://img.saraba1st.com/forum/202112/30/150802l5j9lmckffkdcwf9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211230150736.png</strong> (19.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 15:08 上传
+
+这波疫情炸裂还有个侧面体现就是，越来越多本来保护很好的up也开始得冠了,接下来三个月半数米国人口中招应该是大概率事件<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -5231,3 +5231,19 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 
 人类最古的谋杀案受害者 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 85989#       发表于 2021-12-30 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097657&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-12-30 10:17</a>
+
+福尔摩斯名推理：医生不可信
+
+莫里亚蒂名推理：福尔摩斯不可信
+
+神秘Archer名推理：可靠的同伴是内鬼</blockquote>
+就不能不止一个内鬼吗？
+
