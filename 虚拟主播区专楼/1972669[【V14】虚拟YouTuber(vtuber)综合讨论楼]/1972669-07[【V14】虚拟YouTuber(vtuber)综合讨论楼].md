@@ -9029,3 +9029,36 @@ V综有没有枪民懂哥讲一哈👉パカエル / Pakael这个人apex什么�
 
 ワロタ
 
+
+
+*****
+
+####  poipanchao  
+##### 9769#       发表于 2021-12-30 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107979&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-12-30 23:13</a>
+
+V综有没有枪民懂哥讲一哈👉パカエル / Pakael这个人apex什么水平。</blockquote>
+SOLO大师，有指挥有枪力
+
+可能是猩猩之下第一人(VTUBER限定）（反正我是觉得比白雪和海藻头强）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 2|🆗|
+
+查看全部评分
+
+*****
+
+####  OldGlory  
+##### 9770#       发表于 2021-12-30 23:38
+
+谷歌法务感觉不是必胜客<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

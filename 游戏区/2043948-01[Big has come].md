@@ -9407,3 +9407,72 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 
 真的是狗洞钻久了看什么都以为是狗洞
 
+
+
+*****
+
+####  solarcool  
+##### 853#       发表于 2021-12-30 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108084&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:22</a>
+
+怎么了? 一边狗洞纯度更高是吗? 到底怎么算狗洞? 是自我意识的吗? 不是用了工具就狗洞了吗, 商业策略屏蔽 ...</blockquote>
+一些日本公司确实用锁ip之类的商业策略。但人家只要光明正大翻就是了，我们不光要钻狗洞还要加密钻，您钻出自豪感了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 854#       发表于 2021-12-30 23:27
+
+ 本帖最后由 afer 于 2021-12-30 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108026&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:17</a>
+
+...怎么着, 没理可讲摆烂了? 
+
+当年我在油管上骂台巴子时候, 你这个账号还没注册呢. 墙的策略不是我定的, ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没，那个你观刚发现的特么上古的YY中美开战的页游我早就去吐槽过中国闲着没事跟你们打干嘛，老外挨个点赞，我也没看见给我咋样，确实有限流，但有勇气的也有很多啊，你咋不说了呢？巴铁和中东的好多人都帮过我忙，还有美国人帮过我，咋这些人就不能争取了就只看那些不行的？
+
+反正人家台巴子去哪就封哪呗，当鸵鸟多快乐？到底你也是没辙吧？你有办法吗？你想影响steam官方影响不了吧？你弄一个独立出来的平台和管理员还有中文社区又没人干是吧？那我问你你起码和steam官方交流过么？有没有任何进行过文宣和努力的证据啊？没有的话我说您只消灭不生产是不是还冤枉你了？落后人家文宣这么大一头有这么多的差距是不是还得天天自我感觉良好了？您是想不出办法，我们想得出办法的您也不给钱不给位置不给权啊？您扯了这么半天不还是人家台巴子说啥就能封啥么？哈哈。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+到底我就问你，这群人在沟通上努力过了么？每次都是steam莫名其妙之后努力来这里沟通，搞得一头雾水，什么时候咱们有过文化方面的产出，主动去影响steam这类大平台让他们去解决和他们毫无关系的政治话题？我都不想问你这难吗？我想问你这有吗？！一个小平台有狗洞确实不可怕，可怕的是每次都有一群自以为是的瞎子、聋子、蠢货身在其位不谋其职，身不在其位而不言其害，假以国器制人，畏敌而损己威，让我特么不寒而栗。
+
+*****
+
+####  LHO  
+##### 855#       发表于 2021-12-30 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108128&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-30 23:27</a>
+
+没，那个你观刚发现的特么上古的YY中美开战的页游我早就去吐槽过中国闲着没事跟你们打干嘛，老外 ...</blockquote>
+说明你还是看过一些东西的. 但是对比起来做为中国辩解的视频播放和推送力, 之间的差距你也知道的. 网友只要是中文相关, 上去被推送到的一定是轮子或者1450的东西, 我知道很多人在为之抗争, 我也在其中, 但是在整个话语体系背后的公司都有意识形态下作用甚微.
+
+就中国网友普遍的认知水平和粉丝二极管的思路, 只要开放,我都想象到那种割裂之争成什么样子, 比现在男女割裂一定可怕多了. 这也是大概为什么对开放互联网这块上面那么保守的原因, 猜的. 作为管理这方面策略的人, 当你知道油管推特都是这个德行的时候, 现在有一个可以直连的美国社区网站上出现大量的问题, 你会怎么做?
+
+当然了上面都是ZZ问题, 说真的我不想讨论ZZ问题, 真要讨论去外野吧, 因为我认为这个问题讨论没有用,这是游戏区, 我之所以在帖子说P大个事并给出了相关工具的描述,就是希望有遇到困扰的玩家能找到解决办法, 以普通人普通玩家的角度.
+
+ZZ问题的无意义在于你只能通过结果去猜,甚至不知道真正的流程和策略是什么, 然后发泄情绪, 没有任何意义.
+
+你上面后来回复的帖子里的百度脚本的事, 我真的不知道, 之后可能去了解一下. 不聊了睡了.
+
+*****
+
+####  afer  
+##### 856#       发表于 2021-12-30 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108084&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:22</a>
+
+怎么了? 一边狗洞纯度更高是吗? 到底怎么算狗洞? 是自我意识的吗? 不是用了工具就狗洞了吗, 商业策略屏蔽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给了某些境外宣传的小工具空间，让他们能盗取我们电脑里的秘密，给那些来路不明的企业交钱，然后还让他们没法保证我们数据的安全。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没让我觉得屈辱，但有些人应该为这些结果屈辱，却反以为荣啊。
+
+*****
+
+####  afer  
+##### 857#       发表于 2021-12-30 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108242&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:41</a>
+
+说明你还是看过一些东西的. 但是对比起来做为中国辩解的视频播放和推送力, 之间的差距你也知道的. 网友只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就不聊了，刚才的底气呢？你在这求粉饰于耳目易，不就是假以国器制人么？到底谁特么在这挑拨关系和稀泥，我说你1450你还谦虚，你说得对，你早该去外野了，有本事你外野开一贴，接着聊啊，我倒想看看外野是向着你还是向着我。
+
