@@ -11610,3 +11610,36 @@ Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron c
 
 真的病毒上脑 脑控老外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2478#       发表于 2021-12-31 01:35
+
+ 本帖最后由 smy20011 于 2021-12-31 01:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109076&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 01:15</a>
+
+所以，关键问题在于Omicron的毒力比起B.1.1或者原始珠，究竟是减弱还是增强了。如果是增强了，那么2年来 ...</blockquote>
+但是进化是以种群为单位进行研究 而不是种群的某个基因型进行研究
+
+要不然的话 进化论应该不成立的
+
+即使某个性状被种群淘汰 依然还会有极少数没被淘汰的个体存在这个性状 这种情况下没法定义自然选择吧
+
+来自wiki:
+
+进化，又称演化（英语：evolution），指的是生物的可遗传性状在世代间的改变[1][2]，操作定义是种群内基因频率的改变。
+
+*****
+
+####  渊鲤  
+##### 2479#       发表于 2021-12-31 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109048&amp;ptid=2039422" target="_blank">xv88 发表于 2021-12-31 01:11</a>
+
+辉瑞特效药厉害吗？看说的很好</blockquote>
+从杀生丸大神开始的瑞德西韦到MRNA疫苗到现在 哪个药效果不好了。。。。
+
+结果呢。。
+
