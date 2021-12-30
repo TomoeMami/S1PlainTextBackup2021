@@ -10156,3 +10156,30 @@ The data includes patients whose primary diagnosis is not COVID, and the proport
 
 奥密克戎能卷赢德尔塔必定是传染力更猛
 
+
+
+*****
+
+####  66666  
+##### 2353#       发表于 2021-12-30 08:58
+
+CDC预测未来四周死于新冠人数可能达到4.4万
+
+*****
+
+####  ztgmeteor  
+##### 2354#       发表于 2021-12-30 09:01
+
+坐标大温，这里检测点已经爆满了，不预约去检测只会给你一个rapid test的小盒子让你自己回家测，但那玩意准确率说是60%～70%，我寻思着也就比掷硬币好点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+目前四肢疼痛+喉咙干痒，我们一个小组4人当中已经有3个确诊了，还剩我这个没跟他们共处过但在他们用过的办公室里待过的人了，就这现在也开始出现症状了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+半夜2点多订了周五下午1点的核酸，今天早上起来觉得时间有点晚，看能不能改订个提前点的，结果8点爬起来一看，md未来72小时又都订满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+绝赞自我隔离中，听天由命。
+哦对了，疫苗没啥卵用，我们4个人都是两针疫苗接种完全。
+
+*****
+
+####  天野银次X美堂蛮  
+##### 2355#       发表于 2021-12-30 09:02
+
+我忽然想起当年床破说死多少就是胜利。。。那个数字是多少？？现在回头想想。床破真的诚实啊。。。。= =
+
