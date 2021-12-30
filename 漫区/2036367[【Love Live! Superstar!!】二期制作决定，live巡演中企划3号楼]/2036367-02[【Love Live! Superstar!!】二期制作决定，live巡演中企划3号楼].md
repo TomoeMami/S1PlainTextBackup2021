@@ -15116,3 +15116,70 @@ ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://stati
 很正常，昨天主要是西西那个主人的任务的截图太tm离谱了。车西被鲤鱼厨和松雾大佐拿捏也不是一天两天了，平 ...</blockquote>
 搞清楚点，之前车西承诺过会管理他所谓的群友。但西西发现还是经常有人在黑，他就记录了下来，就是图里所谓的次数。后来车西管不了退群了，刚好鱼的群问到代购相关的事，想退货，发现退货麻烦，西西就说不退那到时候可以打差评。之后就是这个博主发博开团了，哪里有错你可以指出。
 
+
+
+*****
+
+####  kata魂  
+##### 2762#       发表于 2021-12-30 09:46
+
+ 本帖最后由 kata魂 于 2021-12-30 09:48 编辑 
+
+三句话不离肖战的他是你亲爹吗，四处宣传名声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shamanda  
+##### 2763#       发表于 2021-12-30 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097258&amp;ptid=2036367" target="_blank">kata魂 发表于 2021-12-30 09:46</a>
+三句话不离肖战的他是你亲爹吗，四处宣传名声</blockquote>
+没办法，看的偶像少，上一个知道的粉丝不让黑的偶像就是肖战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zskg  
+##### 2764#       发表于 2021-12-30 09:51
+
+<blockquote>shamanda 发表于 2021-12-30 09:30
+第一，我和那个博主不认识，唯一的交集就是在一个群里所以知道了这件事。那条微博都没刷出在我主页，我也没 ...</blockquote>
+知道为啥肖战凉不了吗，就是因为总有像你这样的人看到随便哪个圈子的粉丝有啥事就要提一嘴他，动不动就要给他贡献话题度和热度。这楼里的也不是啥饭圈小姐姐了，你装啥大尾巴狼呢。
+
+*****
+
+####  a92063256  
+##### 2765#       发表于 2021-12-30 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097022&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 09:30</a>
+
+第一，我和那个博主不认识，唯一的交集就是在一个群里所以知道了这件事。那条微博都没刷出在我主页，我也没 ...</blockquote>
+你扣帽子扣的倒是挺快，还没怎么样，甚至连行动都没有就被扣上拉拉肖战粉的帽子了，真挺厉害的。
+
+你说黑屁偶像不犯法，那我也要说口嗨差评同样不犯法，更别提所谓的粉头西西只是个粉丝群主，他在群里说话都没有松雾有分量，在你们口中就变成粉头教唆粉丝差评了。
+
+另外一张嘴就造谣传谣的垃圾不管在S1还是哪都一样挨打。
+
+*****
+
+####  Norkey1  
+##### 2766#       发表于 2021-12-30 09:55
+
+但凡多看一眼前几页的讨论也不会有第四点…能这么完美的抓错重点的人已经不多了……
+
+*****
+
+####  player3960  
+##### 2767#       发表于 2021-12-30 09:57
+
+搞清楚情况再下嘴，前面事主都说明白了，还在这自说自话
+
+*****
+
+####  kata魂  
+##### 2768#       发表于 2021-12-30 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097325&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 09:50</a>
+
+没办法，看的偶像少，上一个知道的粉丝不让黑的偶像就是肖战了</blockquote>
+笑了，肖战哪件事拿不出证据?外面那个什么成海是因为大家想黑所以建楼?哦，平白无故拿摩天轮四处叫唤，别人反驳就是不让黑，好大的b脸，那我可不可以说是你家人干这行的所以你觉得其他人也是这样，千万别反驳，别饭圈不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

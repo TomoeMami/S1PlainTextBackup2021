@@ -9970,3 +9970,14 @@ joyboy又出现了
 
 原想着，打两个大看板少说要战个七八话，结果就这<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Algie  
+##### 56285#       发表于 2021-12-30 09:41
+
+索隆击败king一点实感都没有。。。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

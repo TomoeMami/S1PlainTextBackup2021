@@ -10312,3 +10312,15 @@ CDC预测未来四周死于新冠人数可能达到4.4万
 20万,当时是疫情初期,听起来是天文数字,现在看确实很实在了</blockquote>
 后来抬高到200万了，吹牛不上税的，美国才不怕这么慢的速度死人
 
+
+
+*****
+
+####  豪福  
+##### 2368#       发表于 2021-12-30 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097200&amp;ptid=2039422" target="_blank">毒品 发表于 2021-12-30 09:42</a>
+
+也是疫苗拉偏手吧</blockquote>
+很有可能 毕竟豪登省爆出来的 发源地不一定就是豪登省
+
