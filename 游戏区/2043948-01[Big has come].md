@@ -9124,3 +9124,15 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 
 当初出台未成年人1小时政策时都在振臂高呼，想不到现在是单机先死了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  欠损  
+##### 832#       发表于 2021-12-30 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54088777&amp;ptid=2043948" target="_blank">ESAKA!!!! 发表于 2021-12-29 15:00</a>
+
+没看油盐社那篇文章可以去看，少云一点对大家都好</blockquote>
+草，忽然发现我这是踩了个什么。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

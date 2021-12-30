@@ -8512,3 +8512,120 @@ Syl，老叶从业以来初凸待的第一位来宾就是帕特姐，好人！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这夹道欢迎太隆重了点
 
+
+
+*****
+
+####  OldGlory  
+##### 9719#       发表于 2021-12-30 18:42
+
+梦回20年夏
+
+*****
+
+####  noHentai  
+##### 9720#       发表于 2021-12-30 18:44
+
+我将如闪电般归来！？
+
+口了已经不再是当初那个会因为口音而不安的yhm了，现在她是一个会拿起法律武器独自奋战一年的yhm<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  北山玖公  
+##### 9721#       发表于 2021-12-30 18:46
+
+只有人还在才能有更多乐子，我支持梦月roa与金鱼裁狗法院掰头！
+
+到底是弹冠相庆还是夹道欢迎呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  面具13  
+##### 9722#       发表于 2021-12-30 18:46
+
+mrra！
+
+*****
+
+####  越动天下  
+##### 9723#       发表于 2021-12-30 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">好活
+
+*****
+
+####  pliee  
+##### 9724#       发表于 2021-12-30 18:47
+
+这告侵犯名誉权？
+
+*****
+
+####  noHentai  
+##### 9725#       发表于 2021-12-30 18:48
+
+<img src="https://p.sda1.dev/3/2fa0fc68823a7840e3acd315061939c9/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/e495b178cc4b8b32bad7be2096f51827/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/d6196d3dcd4633be39a84bc6af59b8f1/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9726#       发表于 2021-12-30 18:52
+
+突然想到くすのきしお是不是还有一年呜呜呜😭
+
+*****
+
+####  hulaoda007  
+##### 9727#       发表于 2021-12-30 18:53
+
+ 本帖最后由 hulaoda007 于 2021-12-30 18:55 编辑 
+
+-                                                                                                                                                        
+
+感觉主要是阿裁。
+
+其实想看金鱼那怎么说就是了。（话说金鱼我看她ASMR玩的蛮开心的）
+
+推特看了几眼，意外金鱼妹的应援还不少。
+
+*****
+
+####  空集  
+##### 9728#       发表于 2021-12-30 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54104388&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-30 18:35</a>
+
+金鱼不是事后拿roa账号形象擦边出r18音声吗，能证明形象关联的话起码告个侮辱损害商业形象之类应该没问题的 ...</blockquote>
+我确实几乎不懂娱乐法这个专门领域，更不懂日本法律，所以实际可能会有可参考先例或者规定我单纯乱想。不过单纯按照一般大陆法系法理思考，这又不构成反不当竞争经济法范畴那种，那只能民事侵权，民事侵权要么是著作权侵犯，这种小恶魔形象擦边认定很难，还有个问题是，理论上角色形象的权利人也不是中人。如果请求权基础是诽谤那类的名誉权侵权，那么一个是认定感觉困难，二是这个东西算中人的名誉权么，还是更多实际上是ichikara的一个权利问题，问题是上面楼友又说ichikara并不会去出头主要是演者自己去告，这样细想这个问题也太前沿了我靠。
+
+我估计还是告金鱼和裁说他80是诽谤那个是想来想去最有可能性的了。
+
+*****
+
+####  空集  
+##### 9729#       发表于 2021-12-30 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54104536&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-12-30 18:48</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉基本是阿裁给锤烂了。
+
+*****
+
+####  OldGlory  
+##### 9730#       发表于 2021-12-30 18:58
+
+明治那边活动一切正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以女主角什么时候动一动
+
+*****
+
+####  pliee  
+##### 9731#       发表于 2021-12-30 19:00
+
+看了眼推特，这应该是铁胜诉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1882,3 +1882,12 @@ ps5版至少loading问题可以解决了
 
 明年就黎二我闪2PSTD要犯了，盲猜红色是恐惧哥
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 180#       发表于 2021-12-30 18:50
+
+如果红色是旧人物的话，那可以把皇子安上去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
