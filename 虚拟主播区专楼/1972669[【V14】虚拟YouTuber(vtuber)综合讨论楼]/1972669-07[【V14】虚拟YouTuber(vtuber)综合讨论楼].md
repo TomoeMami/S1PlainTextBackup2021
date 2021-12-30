@@ -8944,3 +8944,55 @@ by hnn杂谈
 
 打开直播间被月之的颜出吓退了，五官好深邃吖（抖
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9763#       发表于 2021-12-30 22:46
+
+ 本帖最后由 alcoholic1000 于 2021-12-30 22:57 编辑 
+<blockquote>&gt;mysta leaking company secrets
+
+&gt;they're required to measure their heights and submit them to their managers for their model
+
+Wtf.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+Syl，4ch虹串挺可爱的，他们昨天看NijiPET（Petra&amp;Mysta）萌得吱哇乱叫，称之为ENエビマル
+
+（不过连浓度最高的Male Thread都对ろふまお提出了质疑，可见这组合是真的不太行）
+
+Zsyl，看/vt/提到最近油管削订阅和同接挺厉害的，Mysta发起投票2min参与1w9，同接5k（投完就跑？）
+
+*****
+
+####  IDIDIDID  
+##### 9764#       发表于 2021-12-30 22:48
+
+然而rofmao要上地上波了，令人感叹。
+
+*****
+
+####  kangkangsama  
+##### 9765#       发表于 2021-12-30 22:55
+
+<img src="https://img.saraba1st.com/forum/202112/30/215757o7pdwihihx7mhzwk.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211231005538.png</strong> (65.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 21:57 上传
+
+裁狗居然还回应了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北山玖公  
+##### 9766#       发表于 2021-12-30 22:58
+
+不要皮不要脸的自然是能尽量给自己找点场子就找点场子啊，就算找不到也要出个场以示自己勇猛无双不畏强权的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+裁狗能硬起来吗？
+

@@ -9236,3 +9236,83 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 
 最后说一遍, P大个事, 之前那么多回也是, 这次也是.
 
+
+
+*****
+
+####  LHO  
+##### 841#       发表于 2021-12-30 22:43
+
+ 本帖最后由 LHO 于 2021-12-30 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54089005&amp;ptid=2043948" target="_blank">‮agur4kI 发表于 2021-12-29 15:21</a>
+
+写那么多
+
+还是这几个论点
+
+1.还不是有方便的梯子给你用吗？</blockquote>
+我就这么说吧, ZZ问题我不是专家, 我不发表看法, tg是保守主义这么多年了, 我不觉得执行这种策略有什么稀奇, 我也给出了理由.
+
+你说再开放点, 会更好blabla. 我不知道会不会更好. ZZ问题我不参与讨论, 我不知道, 墙能不能改进, 我也不知道.
+
+但是呢, 我知道的是这种问题不是头一次出了, 哪次也没一封到底, 基本就是那个特殊时间, 会不稳定, 最多也就2周就结束了. 所以为这最多半个月的不方便期有什么可争的呢?
+
+你要是觉得你有更好的应对策略, 我建议写信上报相关部门, 告诉一下不一刀切怎么做好. 作为都是玩家的角度, 我给出来的观点就是, 争论了半天都是个P, 因为以前那么多次每次都是争论了半天, 最后什么都没变, 该干吗干吗. 
+
+相比之下, 工具越来越多, 也越来越方便用, 这就是现实. 
+
+*****
+
+####  solarcool  
+##### 842#       发表于 2021-12-30 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107478&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 22:34</a>
+
+什么脑子什么逻辑能把我算成1450还行啊, 莫非倒打一耙? 怎么看也像是我在给国家找理由吧.
+
+1.不合法的东西 ...</blockquote>
+什么脑子才能自带干粮到这种程度，贱不贱呐<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LHO  
+##### 843#       发表于 2021-12-30 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107633&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-30 22:46</a>
+
+什么脑子才能自带干粮到这种程度，贱不贱呐</blockquote>
+前面还有人给我算1450呢, 能不能统一一下口径.
+
+*****
+
+####  solarcool  
+##### 844#       发表于 2021-12-30 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107662&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 22:47</a>
+
+前面还有人给我算1450呢, 能不能统一一下口径.</blockquote>
+口径不同又怎么样，从什么口径看你不都是一个傻宝？有区别么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 845#       发表于 2021-12-30 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107478&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 22:34</a>
+
+什么脑子什么逻辑能把我算成1450还行啊, 莫非倒打一耙? 怎么看也像是我在给国家找理由吧.
+
+1.不合法的东西 ...</blockquote>
+
+1、我不明白让你问问啊，你这闪烁其词的什么意思？有几个我不知道，你这么确定没几个，你替我问问咋了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2、这时候怎么就装傻了，百度网盘有关的转存脚本一律都被墙的死死的，我问你是巧合啊，还是啥啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+3、人家刷屏没办法，你直接说拿人家没办法就完了，到底还是打输了往回缩，人家一捣乱就成功，还不许我吐槽不成？流氓往你家里拉屎，没法判刑流氓就把你房子炸了你说行不行？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+4、你口口声声说打太极，怎么在这个问题上又装不懂了？你挺懂的啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+5、我少玩几天游戏不会死，但是人家台蛙轮子使使坏就能让你库存打水漂，您还在这叫好，还要免费小工具，您不丢人我还嫌丢人呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+跟您说我比您还五毛了，有些事情直说不丢人，装傻才丢人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
