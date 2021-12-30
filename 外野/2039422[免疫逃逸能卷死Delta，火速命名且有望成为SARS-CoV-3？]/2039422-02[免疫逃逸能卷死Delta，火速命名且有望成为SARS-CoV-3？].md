@@ -10642,3 +10642,43 @@ https://www.reuters.com/business/healthcare-pharmaceuticals/south-africa-detects
 
 —— 来自 vivo V2031A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2396#       发表于 2021-12-30 12:07
+
+ 本帖最后由 Alexmacau8 于 2021-12-30 12:08 编辑 
+
+编辑掉
+
+*****
+
+####  Alexmacau8  
+##### 2397#       发表于 2021-12-30 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099117&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 11:53</a>
+也就是说非洲先爆发，但是南非是第一个检测出来的？</blockquote>
+拍老师之前有总结复盘过，包括埃米克隆的发现过程，可以去他公众号看看。引用材料基本上是一些预印本，可信度还可以。
+
+*****
+
+####  smy20011  
+##### 2398#       发表于 2021-12-30 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099125&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 11:53</a>
+
+这哥们肉身在美国吧，看微博，前两天还在北加滑雪。</blockquote>
+这位直接被堵雪山上面了
+
+*****
+
+####  Redis  
+##### 2399#       发表于 2021-12-30 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099447&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 12:15</a>
+
+这位直接被堵雪山上面了</blockquote>
+加州这几天太冷了
+

@@ -15893,3 +15893,73 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上来就说吃的也难怪逢田姐之前说鲤鱼有趣了
 
+
+
+*****
+
+####  MiaoJi  
+##### 2837#       发表于 2021-12-30 12:06
+
+我还以为有什么新活动能聊这么多，进来一看是汴京
+
+*****
+
+####  cat1230  
+##### 2838#       发表于 2021-12-30 12:07
+
+<blockquote>引用第2825楼shamanda于2021-12-30 11:45发表的  :
+
+引用:D麦林 发表于 2021-12-30 11:38你寄吧谁啊谁跟你都是了这话题都该过去了你非得冲......</blockquote>
+@shamanda
+
+老哥，还是别回复了，话到后来越看越low，注册时间也拿出来说，梦回2010<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  shamanda  
+##### 2839#       发表于 2021-12-30 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099339&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-30 12:07</a>
+@shamanda
+
+老哥，还是别回复了，话到后来越看越low，注册时间也拿出来说，梦回2010</blockquote>
+好吧好吧，前面那位说得对的确不该跟初高中生扯那么多，还是闲出来的锅<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 2840#       发表于 2021-12-30 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099339&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-30 12:07</a>
+@shamanda
+
+老哥，还是别回复了，话到后来越看越low，注册时间也拿出来说，梦回2010</blockquote>
+跟赖在LL圈的厄介小鬼一样，不是拿有钱说事就是拿资历说事<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zskg  
+##### 2841#       发表于 2021-12-30 12:14
+
+<blockquote>shamanda 发表于 2021-12-30 12:11
+好吧好吧，前面那位说得对的确不该跟初高中生扯那么多，还是闲出来的锅 ...</blockquote>
+确实，大爷您跟我们小年轻扯啥呢，那么大资历了，应该自重啊！言多必失啊，老资历！
+
+*****
+
+####  cat1230  
+##### 2842#       发表于 2021-12-30 12:14
+
+<blockquote>引用第2839楼一个陆仁贾于2021-12-30 12:12发表的  :
+
+引用:cat1230 发表于 2021-12-30 12:07@shamanda老哥，还是别回复了，......</blockquote>
+@一个陆仁贾
+
+拿有钱说事还能说到说到，毕竟真金白银要是买了周边碟片再黑也可以说有点道理。论资排辈算年龄简直low穿地心。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
