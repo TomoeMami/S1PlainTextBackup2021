@@ -11143,3 +11143,105 @@ BNOnews：Paris issues outdoor mask mandate</blockquote>
 
 这波疫情炸裂还有个侧面体现就是，越来越多本来保护很好的up也开始得冠了,接下来三个月半数米国人口中招应该是大概率事件<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2437#       发表于 2021-12-30 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100794&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 14:00</a>
+如果只是不太好分辨是不是O型病毒那这个影响不大，中国现在核酸检测出O型的新冠是新冠是更短更容易了么？ ...</blockquote>
+目前已经加到14+7了，依然会有漏网的，概率这个事情，只要频次够多，总会有的
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2438#       发表于 2021-12-30 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101720&amp;ptid=2039422" target="_blank">ak123 发表于 2021-12-30 15:10</a>
+这波疫情炸裂还有个侧面体现就是，越来越多本来保护很好的up也开始得冠了,接下来三个月半数米国人口中招 ...</blockquote>
+目前来看，一个月左右
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  coldhot3  
+##### 2439#       发表于 2021-12-30 15:27
+
+<blockquote>Alexmacau8 发表于 2021-12-30 14:21
+国内pcr是全基因测序的，确实不存在因为特异位点缺失而导致检测不出来的问题。 快筛包这玩意，测抗体的， ...</blockquote>
+国内pcr不测序，pcr阳性的感染者用ngs测序。
+
+*****
+
+####  ZZY19941124  
+##### 2440#       发表于 2021-12-30 15:28
+
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很不信
+
+*****
+
+####  dllplayer  
+##### 2441#       发表于 2021-12-30 15:28
+
+话说...现在很多新冠的后遗症是不是就是因为新冠那种好了.但也没全好的缘故啊..
+
+血液里是查不到了..结果其他器官里还到处都是...
+
+特别是脑子里的还不容易好啥的
+
+*****
+
+####  smy20011  
+##### 2442#       发表于 2021-12-30 15:30
+
+<blockquote>ZZY19941124 发表于 2021-12-30 15:28
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/30/152939eeeksz719es22439.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20211229-232844.png</strong> (124.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-12-30 15:29 上传
+
+英国的死亡数据，再等等看呗
+
+*****
+
+####  crysannia  
+##### 2443#       发表于 2021-12-30 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101945&amp;ptid=2039422" target="_blank">ZZY19941124 发表于 2021-12-30 15:28</a>
+
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
+死亡率有滞后性，但是美国目前日死亡又回到2000以上了，维持了2个月左右的1000左右的死亡数字又被打破了……其实也很好理解，就算死亡率下降，但是更强的感染能力带来了更多的感染基数……死亡数字还是会增加
+
+*****
+
+####  smy20011  
+##### 2444#       发表于 2021-12-30 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101980&amp;ptid=2039422" target="_blank">crysannia 发表于 2021-12-30 15:30</a>
+死亡率有滞后性，但是美国目前日死亡又回到2000以上了，维持了2个月左右的1000左右的死亡数字又被打破了 ...</blockquote>
+如果3-4周延时是准确的话，现在死的基本上是delta而不是omicron
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  yuandi0120  
+##### 2445#       发表于 2021-12-30 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101720&amp;ptid=2039422" target="_blank">ak123 发表于 2021-12-30 15:10</a>
+这波疫情炸裂还有个侧面体现就是，越来越多本来保护很好的up也开始得冠了,接下来三个月半数米国人口中招 ...</blockquote>
+总觉着在这么无限量的培养皿支持的变异下去ade迟早要来<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

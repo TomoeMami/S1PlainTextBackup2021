@@ -5247,3 +5247,23 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 神秘Archer名推理：可靠的同伴是内鬼</blockquote>
 就不能不止一个内鬼吗？
 
+
+
+*****
+
+####  johnkamsar  
+##### 85990#       发表于 2021-12-30 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">为啥华生没人奶呢？
+
+*****
+
+####  大巨傻  
+##### 85991#       发表于 2021-12-30 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100302&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-12-30 13:21</a>
+然后日基有人奶姆尼耶尔
+
+这位老哥是很合适没错但里面能是谁啊。。</blockquote>
+和韩信体型差不多…
+

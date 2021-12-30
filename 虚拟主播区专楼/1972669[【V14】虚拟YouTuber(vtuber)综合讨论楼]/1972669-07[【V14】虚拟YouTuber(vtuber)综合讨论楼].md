@@ -8141,3 +8141,33 @@ vt和jp还是有几个虹楼的，最活跃的应该是EN楼
 
 50. 20 / HACHI
 
+
+
+*****
+
+####  cckuku  
+##### 9679#       发表于 2021-12-30 15:23
+
+当我刷pjsk有关微博却看到很多虹en的时候，我是一脸懵逼的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cheatdeath3  
+##### 9680#       发表于 2021-12-30 15:32
+
+这下又男虹杏女了，你king还能支楞多久呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+v版魔怔是不是因为杏奴多的缘故？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nian1538|-2|因为你这样的人太多|
+
+查看全部评分
+

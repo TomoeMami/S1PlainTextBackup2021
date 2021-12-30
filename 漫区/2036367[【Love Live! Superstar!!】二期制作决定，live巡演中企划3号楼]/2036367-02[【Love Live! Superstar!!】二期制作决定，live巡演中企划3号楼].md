@@ -16187,3 +16187,35 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 论资排辈真有趣，遇到新粉我都是热衷推销和经验分享，毕竟又多了个能聊的人，果然还是在角落默默支持就好<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">什么新粉老粉先来后到，谁也不比谁高贵
 
+
+
+*****
+
+####  星降る森  
+##### 2864#       发表于 2021-12-30 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101284&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2021-12-30 14:39</a>
+
+你也够了..微博上大名也有 别楠木灯厨 楠木粉的叫还以为楠木灯跟这事有什么关系..
+
+那个博主内容就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在微博上可没大名，哪边都不认识的小透明而已，我在这贴回的东西也没什么偏颇——无论A还是B还是发帖的人，三方都不对。
+
+至于为什么带了那么多楠木粉词条，是有点出于个人角度为若干楠木粉在这破事里亮辟谷表示遗憾，至少我觉得挂着XX厨名号不应该去掺和这种两边都有问题的撕逼。
+
+话说完整吃瓜的人不至于看这几条还能有误解吧？
+
+*****
+
+####  梶原ひかり  
+##### 2865#       发表于 2021-12-30 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101882&amp;ptid=2036367" target="_blank">星降る森 发表于 2021-12-30 15:23</a>
+
+我在微博上可没大名，哪边都不认识的小透明而已，我在这贴回的东西也没什么偏颇——无论A还是B还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">意思是那个博主有大名...直接喊又不需要避讳 
+
+那个博主厨的人又不少 你这种特意挂个名 很难不联想..
+
+完整吃瓜人知道 但是不爬前面几页的人联想出什么又没人能阻止
+
