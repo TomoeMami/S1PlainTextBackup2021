@@ -9088,3 +9088,13 @@ SOLO大师，有指挥有枪力
   -- 来自 能手机投票的 Stage1官方 Andro ...</blockquote>
 这里是V综……还有青野那种当做kmt一样处理的，不算V的
 
+
+
+*****
+
+####  rzrbtk  
+##### 9773#       发表于 2021-12-31 00:02
+
+兔组本年度联动次数ranking，伊东排第一40回<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，然后是天开司mea，顺便一说郡郡22回排第四，
+安心与信赖的郡東つねる<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

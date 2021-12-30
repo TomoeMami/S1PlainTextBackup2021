@@ -3104,3 +3104,58 @@ SYL,是不是手机直播不会自动加入到动态里的直播回放啊？思�
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4825#       发表于 2021-12-31 00:04
+
+1160→700，明天还有小400舰吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  papermoon868  
+##### 4826#       发表于 2021-12-31 00:05
+
+哇哇哇700舰大主播！
+
+—— 来自 sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  人民de救星  
+##### 4827#       发表于 2021-12-31 00:10
+
+这个时候来个连麦采访将是绝杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 4828#       发表于 2021-12-31 00:10
+
+斗之力，三段！
+
+*****
+
+####  T型钉宫病毒  
+##### 4829#       发表于 2021-12-31 00:13
+
+想起明天直播跨年的时候还要掉一批<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+不过跨年+新季度舰长礼物，鸟p应该会再爆一波金币的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 4830#       发表于 2021-12-31 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108528&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2021-12-31 00:13</a>
+
+想起明天直播跨年的时候还要掉一批
+
+不过跨年+新季度舰长礼物，鸟p应该会再爆一波金币的吧 ...</blockquote>
+中间隔着一个艾瑞思生日.短时间爆不出来.文静还是忍几天先.<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
