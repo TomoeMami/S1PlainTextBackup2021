@@ -15052,3 +15052,16 @@ C389C57F-9BF5-4BE4-A5E5-81D77E81D41E.jpeg
 
 ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 2757#       发表于 2021-12-30 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54095438&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 01:21</a>
+很正常，昨天主要是西西那个主人的任务的截图太tm离谱了。车西被鲤鱼厨和松雾大佐拿捏也不是一天两天了，平 ...</blockquote>
+反正还是没人解释为什么你们私人恩怨不能私下解决非得以一副要拉整个圈子下水的姿态来搞
+论底线说的好像车西最早的那些发言很有底线似的 那评论存档在那条wb下面就有还好意思跟这来谈底线 倒是给原博一句“嘴快说过一些偶像不好的话”就给带过去了 搁这塑造正确集体记忆呢
+你血气方刚我还血气方刚呢 真血气方刚干嘛不直接开喷非得开个转发抽奖不就为了引多点路人吃瓜方便拉偏架吗 引来一群黑子骚皮也不管抽奖连个抽到黑子重抽的条款都没有就这还自称粉丝呢
+
