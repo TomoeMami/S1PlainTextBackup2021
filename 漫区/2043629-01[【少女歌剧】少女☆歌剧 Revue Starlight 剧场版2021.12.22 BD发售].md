@@ -5152,3 +5152,13 @@ B站动态看见一个观影团连观影特典都整出来了
 
 感觉光面对华恋这么强势反而是因为她在华恋面前太自卑了，一直到剧场版结尾前她都只能看着华恋的背影，每次推开华恋的时候其实都有点自暴自弃的意思在里面。虽然说没了光华恋要死要活的，但是没了华恋光也差不多行尸走肉了，这两个人的性格关系实在过于扭曲<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stevenzero  
+##### 399#       发表于 2021-12-30 21:38
+
+蕉哥哥在B站、贴吧现在都是热门被迫害对象<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/3/74186a6b1ffeda4c8cdbdc558c3177bd/d5341a2442a7d9335432d36af04bd11372f0019c.gif" referrerpolicy="no-referrer">
+
