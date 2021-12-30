@@ -9316,3 +9316,94 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 
 跟您说我比您还五毛了，有些事情直说不丢人，装傻才丢人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LHO  
+##### 846#       发表于 2021-12-30 23:07
+
+多说两句, 其实我在另外一个谈pixiv的帖子里说过
+
+首先我并没有说墙的策略也好或者因为某些时间的这种误伤模式是没有问题的, 或者没有更好的方式. 作为一个普通的玩家来说, 谈论这个实际上没有任何意义, 你觉得他好或者坏, 你是否有更好的策略, 要不你去想办法上报联系到相关单位改变这事, 有人能做到吗? 不能的话, 也就是在论坛喷喷灌水, 没有任何意义.
+
+第二, 工具就是工具, 这个工具哪国人在用, 多玩过一些外服的游戏就知道很多游戏是锁本国IP, 尤其是日韩, 没墙你也得挂工具,欧美人去玩照样挂工具, 他们也钻'狗洞'吗? 还有很多在国外的回国看视频站也要挂工具, 大家都在钻'狗洞'吗? 点一下工具有什么让你觉得那么屈辱的吗? 这类工具在很多种工作中都是标配, 都在钻'狗洞'?  <strong>我之所以喷狗洞这个节奏就是因为这些人把一个游戏平台运行问题转成了ZZ问题, 带这个节奏的人才真的该滚回外野!</strong>
+
+最后呢, 假如过了这段时间 STEAM真的永久封, 不能很简单的不用工具直连, 那我认栽, 那是我傻x.
+
+*****
+
+####  afer  
+##### 847#       发表于 2021-12-30 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107662&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 22:47</a>
+
+前面还有人给我算1450呢, 能不能统一一下口径.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没，您不是1450了，您是让1450草服了的弱狗奴才，被台巴子踩在脚下瑟瑟发抖的怂狗，只能靠墙活着挡住台巴子才能保你小命，吓得你有台巴子的地方都不敢去硬肛。
+
+*****
+
+####  afer  
+##### 848#       发表于 2021-12-30 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107908&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:07</a>
+
+多说两句, 其实我在另外一个谈pixiv的帖子里说过
+
+首先我并没有说墙的策略也好或者因为某些时间的这种误伤模 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家闹够了苟住了是你英明是吧？那我这点小钱无所谓，就想看你当个傻逼，那您当傻逼的时候有没有勇气到微博圈相关出来骂两句街呢？到时候记得@我哈。
+
+*****
+
+####  solarcool  
+##### 849#       发表于 2021-12-30 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107908&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:07</a>
+
+多说两句, 其实我在另外一个谈pixiv的帖子里说过
+
+首先我并没有说墙的策略也好或者因为某些时间的这种误伤模 ...</blockquote>
+装尼玛呢，一个顶多是绕过游戏商自己的商业策略，和房间里大象锁你ip是一回事？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LHO  
+##### 850#       发表于 2021-12-30 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107933&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-30 23:09</a>
+
+没，您不是1450了，您是让1450草服了的弱狗奴才，被台巴子踩在脚下瑟瑟发抖的怂狗，只能靠墙活着 ...</blockquote>
+...怎么着, 没理可讲摆烂了? 
+
+当年我在油管上骂台巴子时候, 你这个账号还没注册呢. 墙的策略不是我定的, 我是想不出来更好的招儿, 但是呢像你说那种全面放开让1450进来由广大的网友骂服, 我只能说太幼稚了. 这我不敢想.
+
+你知道不知道油管推特管理都是有意识形态的, 骂中国的视频尽管早被证明谣言, 你举报一点用没有, 而且没有限流, 反而你做个反驳视频只要带上关键字, 立马被限流. 带着脏话刷屏的轮子我挨个举报没有用, 你上去骂两句你能被封号. 能不能不要只是在里面喷来喷去, 上外面多看看行吗?
+
+*****
+
+####  LHO  
+##### 851#       发表于 2021-12-30 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107988&amp;ptid=2043948" target="_blank">solarcool 发表于 2021-12-30 23:14</a>
+
+装尼玛呢，一个顶多是绕过游戏商自己的商业策略，和房间里大象锁你ip是一回事？ ...</blockquote>
+怎么了? 一边狗洞纯度更高是吗? 到底怎么算狗洞? 是自我意识的吗? 不是用了工具就狗洞了吗, 商业策略屏蔽你IP就高级的让你用狗洞时候没有屈辱了吗?
+
+*****
+
+####  RaidenII  
+##### 852#       发表于 2021-12-30 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107908&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 10:07</a>
+
+多说两句, 其实我在另外一个谈pixiv的帖子里说过
+
+首先我并没有说墙的策略也好或者因为某些时间的这种误伤模 ...</blockquote>
+工具就是工具？
+
+穿过墙的工具的首要特性是流量伪装，国外的个人用VPN大多就是个切换出口IP的作用，性能是第一位，哪个告诉你工具是一样的？像PPTP这种老掉牙的不安全协议还有大把的服务商在提供，原因无他就是overhead小性能高，你在墙内用PPTP试试？
+
+还工作中标配，你在企业环境中部署过VPN没有？哪家正规公司部署工作用VPN看重的是流量伪装，而不是安全性/与内部环境整合？
+
+真的是狗洞钻久了看什么都以为是狗洞
+

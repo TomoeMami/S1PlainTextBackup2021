@@ -16741,3 +16741,22 @@ pay真的是行走的放送事故<img src="https://static.saraba1st.com/image/sm
 
 追加场居然还开放见切席
 
+
+
+*****
+
+####  ddy2811  
+##### 2926#       发表于 2021-12-30 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54106347&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 21:01</a>
+
+我猜菜宝是不是在录音现场和星的其他四人也互动了不少 和那四人全熟络起来了 ...</blockquote>
+记得菜宝在推上很早就和星团全员互动开了，那时候贴吧还吐槽以后加星团算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2927#       发表于 2021-12-30 23:17
+
+r3加妃喵去星团也够九人了
+
