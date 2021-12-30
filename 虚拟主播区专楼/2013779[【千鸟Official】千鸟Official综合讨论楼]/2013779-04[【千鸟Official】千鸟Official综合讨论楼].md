@@ -3064,3 +3064,14 @@ co宝配啥都好软
 速报，思思便秘</blockquote>
 胃病是这样的
 
+
+
+*****
+
+####  ba娜娜  
+##### 4821#       发表于 2021-12-30 17:35
+
+思思太可爱了感觉被脑控了~
+
+SYL,是不是手机直播不会自动加入到动态里的直播回放啊？思思中午的手机直播前面没听想补一下，结果直播回放里没有，看了下列表里也没有手机直播的回放<img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">
+

@@ -11443,3 +11443,63 @@ The data includes patients whose primary diagnosis is not COVID, and the prop ..
 当地时间12月28日，英国东英吉利大学传染病学专家保罗·亨特（Paul Hunter）在接受BBC采访时表示，新冠病 ...</blockquote>
 复活节不还有半年呢？弄不好又变身三次
 
+
+
+*****
+
+####  讨喜の弟控  
+##### 2464#       发表于 2021-12-30 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103360&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-30 17:12</a>
+现在讨论的所有毒力都是跟delta相比较，omicron跟原始株相比毒性是变强了还是变弱了？如果说，不同进化分支 ...</blockquote>
+omicron相比原始毒株和alpha、beta，毒力都是增强的，只是比delta弱了大概20%-40%
+
+*****
+
+####  最好不说  
+##### 2465#       发表于 2021-12-30 17:30
+
+ 本帖最后由 最好不说 于 2021-12-30 17:32 编辑 
+<blockquote>lvcha 发表于 2021-12-30 17:20
+复活节不还有半年呢？弄不好又变身三次</blockquote>
+自己既然已经扒开了双腿那由什么东西来艹，几个人艹，要艹多久还是他们能决定的吗？只能把自己催眠成抖m大声叫好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanrendu  
+##### 2466#       发表于 2021-12-30 17:36
+
+这是病毒没有减弱到这个程度，也要硬说新冠是感冒了。
+这一腔情愿的就是想把死人变成常态，大家死人死习惯了就好了，反正锅都甩出去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  洞庭湖  
+##### 2467#       发表于 2021-12-30 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54083465&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2021-12-29 07:27</a>
+
+Scientists estimate record U.S. COVID cases attributed to the omicron variant Over the next month, s ...</blockquote>
+有没有大佬说说上次意大利医疗熔断是什么病床数？我看美国涨的很快啊，一天普通病床占用涨了3%，ICU病床占用涨了2%。
+[https://protect-public.hhs.gov/pages/hospital-utilization](https://protect-public.hhs.gov/pages/hospital-utilization)
+
+1229-1.png
+(109.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202112/30/174046qpx5mo1j3ciu2jm5.png" referrerpolicy="no-referrer">
+
+1229-2.png
+(129.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202112/30/174046x414zi1jx44vjo48.png" referrerpolicy="no-referrer">
+

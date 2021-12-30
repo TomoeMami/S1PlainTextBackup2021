@@ -16354,3 +16354,14 @@ F740A9ED-523D-40DB-9055-610EE739D128.jpeg
 
 今天不和打铁去现地向前辈学习吗
 
+
+
+*****
+
+####  D麦林  
+##### 2880#       发表于 2021-12-30 17:24
+
+刚看到有人在推上自爆自己发烧潜入CM会场…
+虽然不知道真假以及到底是不是内什么但还是<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这要真是新冠不是点了个大炸弹…
+
