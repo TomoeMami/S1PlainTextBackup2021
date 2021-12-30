@@ -11414,3 +11414,32 @@ The data includes patients whose primary diagnosis is not COVID, and the prop ..
 
 以后就是covid lives matter了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  母星  
+##### 2461#       发表于 2021-12-30 17:12
+
+现在讨论的所有毒力都是跟delta相比较，omicron跟原始株相比毒性是变强了还是变弱了？如果说，不同进化分支的变异病毒毒力都比原始株强，那么不论如何，病毒进化的路线肯定是趋向毒性增强的。
+
+*****
+
+####  charse2r  
+##### 2462#       发表于 2021-12-30 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103069&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-30 16:51</a>
+
+当地时间12月28日，英国东英吉利大学传染病学专家保罗·亨特（Paul Hunter）在接受BBC采访时表示，新冠病 ...</blockquote>
+国内说的那是啥躺平啊，这才是真 两手一摊 躺平
+
+*****
+
+####  lvcha  
+##### 2463#       发表于 2021-12-30 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103069&amp;ptid=2039422" target="_blank">最好不说 发表于 2021-12-30 16:51</a>
+
+当地时间12月28日，英国东英吉利大学传染病学专家保罗·亨特（Paul Hunter）在接受BBC采访时表示，新冠病 ...</blockquote>
+复活节不还有半年呢？弄不好又变身三次
+
