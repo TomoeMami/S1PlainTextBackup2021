@@ -9490,3 +9490,15 @@ ZZ问题的无意义在于你只能通过结果去猜,甚至不知道真正的�
 当年我在油管上骂台巴子时候, 你这个账号还没注册呢. 墙的策略不是我定的, ...</blockquote>
 U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也配谈限流？真的脸都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑兽  
+##### 859#       发表于 2021-12-31 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109370&amp;ptid=2043948" target="_blank">epilogue 发表于 2021-12-31 02:04</a>
+
+U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也配谈限流？真的脸都不要了 ...</blockquote>
+哪来的狗搁这故意混淆foreign agent跟一般民众，时差是吧
+
