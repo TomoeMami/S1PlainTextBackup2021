@@ -5162,3 +5162,22 @@ B站动态看见一个观影团连观影特典都整出来了
 蕉哥哥在B站、贴吧现在都是热门被迫害对象<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/3/74186a6b1ffeda4c8cdbdc558c3177bd/d5341a2442a7d9335432d36af04bd11372f0019c.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  学魔乱舞  
+##### 400#       发表于 2021-12-30 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54106778&amp;ptid=2043629" target="_blank">stevenzero 发表于 2021-12-30 21:38</a>
+
+蕉哥哥在B站、贴吧现在都是热门被迫害对象</blockquote>
+这是爱啊 一个个人向剪辑里全是喊老公的 就问还有谁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 401#       发表于 2021-12-30 21:51
+
+感觉动画一开始因为偶像因素还是宅宅看的多，经过这三年女性观众占比越来越高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
