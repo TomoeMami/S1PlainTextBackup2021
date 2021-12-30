@@ -8707,3 +8707,82 @@ https://www.asahi.com/sp/articles/ASPDZ5D44PDRUTIL03Z.html
 
 —— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  nian1538  
+##### 9741#       发表于 2021-12-30 19:42
+
+好啊，今天最高兴了
+
+*****
+
+####  IDIDIDID  
+##### 9742#       发表于 2021-12-30 19:42
+
+这最后一段……
+
+*****
+
+####  fastary  
+##### 9743#       发表于 2021-12-30 19:44
+
+还以为黑客本来就很少去凸待今天肯定不会去叶凸待了
+
+结果不仅去了还刚好在kzh后面，还约了明年打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+连续三天能听到黑客声音这个年末可以安心过了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空集  
+##### 9744#       发表于 2021-12-30 19:48
+
+ 本帖最后由 空集 于 2021-12-30 19:51 编辑 
+
+草 这个最后这些表述有点离谱。当然这是媒体写的，不知道实际诉状如何。不过如果这个真能成就算大陆法系下也是个非常重要的先例了哎。虽然我感觉我还是不知道怎么说理，太前沿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mus2012  
+##### 9745#       发表于 2021-12-30 19:51
+
+裁狗当初造谣取乐的时候，有想过自己会有蹲局子被人干**的一天么？
+
+*****
+
+####  天下雨  
+##### 9746#       发表于 2021-12-30 19:51
+
+<blockquote>空集 发表于 2021-12-30 18:54
+我确实几乎不懂娱乐法这个专门领域，更不懂日本法律，所以实际可能会有可参考先例或者规定我单纯乱想。不 ...</blockquote>
+如果能认定形象关联的话，通过混淆行为损害对方商业形象应该可以套进不正当竞争要求赔偿吧，金鱼也符合同业者，这个形象版权虽然在enkr手上，但是vtuber还是有很强个体经营性质的
+
+套名誉权的话，侮辱网络形象/网名那类的理论上能提自诉，而且这事本身也算得上造成严重后果了，裁狗金鱼说她霸凌也是同一性质吧，反正都是侮辱网络形象，想想德国也大陆法，印象中那边网上跟网民骂街侮辱性词汇骂太过都会被告，视法律不同应该还是可以起诉的
+
+不懂日本法律，不知道她的律师是哪个思路
+
+*****
+
+####  本间日阳  
+##### 9747#       发表于 2021-12-30 19:51
+
+<img src="https://p.sda1.dev/3/a86672021bf781bc4022b0109e565405/IMG_CMP_91050154.jpeg" referrerpolicy="no-referrer">这什么鬼bot啊喷了
+
+*****
+
+####  OldGlory  
+##### 9748#       发表于 2021-12-30 19:57
+
+这样看下来还是要告金鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 9749#       发表于 2021-12-30 19:57
+
+郡郡！
+
+EN来了、黛灰来了郡道也来了，已经感觉这次凸待超值了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

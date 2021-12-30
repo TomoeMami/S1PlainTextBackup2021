@@ -4942,3 +4942,42 @@ https://b23.tv/A7wdEhX
 
 </blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 369#         楼主| 发表于 2021-12-30 19:54
+
+乃琳Queen:[发布动态](https://t.bilibili.com/609824629497750690) <blockquote>公布答案！上次说的合唱曲目是音乐剧《吉屋出租》中的《I’ll cover you 》
+
+<img src="https://img.saraba1st.com/forum/202112/30/195340m3b8d9okm2k9zqf8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 19:53 上传
+
+x3~</blockquote>
+
+乃琳Queen:[乃琳手机里有什么【直播剪辑】](https://t.bilibili.com/609915437988799774)
+
+（运营代发）
+
+节选自12月15日直播
+出镜：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202112/30/195408qsgzdg9q96jtc6g6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 19:54 上传
+
+syl年末了事真多<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

@@ -11503,3 +11503,16 @@ Scientists estimate record U.S. COVID cases attributed to the omicron variant Ov
 
 <img src="https://img.saraba1st.com/forum/202112/30/174046x414zi1jx44vjo48.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  coldhot3  
+##### 2468#       发表于 2021-12-30 19:46
+
+<blockquote>charse2r 发表于 2021-12-30 16:45
+那咋“骨折”的也变多了呢</blockquote>
+因为新冠对于社会化大生产的影响不仅仅是患者入院，因为有症状休息的人也会给其他人造成更多工作量，引起工伤什么的。比如装卸工一个班组五个人，俩有症状在家休息，那剩下三个人就得干更多活，容易闪着腰，结果入院一看，得，无症状感染了。这种情况不少。
+
+很多坛友都是办公室工作，可以远程，所以在家不受影响，但工业和物流不行。缺人直接影响其他人。
+
