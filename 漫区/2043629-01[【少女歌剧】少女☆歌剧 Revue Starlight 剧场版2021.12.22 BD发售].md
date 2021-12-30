@@ -5099,3 +5099,23 @@ B站动态看见一个观影团连观影特典都整出来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">真好看啊……真好看
 
+
+
+*****
+
+####  jstcsjx  
+##### 394#       发表于 2021-12-30 17:43
+
+<blockquote>Mc凉月奏酱 发表于 2021-12-30 08:21
+剧场版里大家都在反杀，只有大场奈奈1V1还是没赢过（虽然刷了时髦值</blockquote>
+蕉的精神面在99组里面算是脆了的
+
+*****
+
+####  杂灰  
+##### 395#       发表于 2021-12-30 17:52
+
+看完脑子里只有烈酒，一点脑浆都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
