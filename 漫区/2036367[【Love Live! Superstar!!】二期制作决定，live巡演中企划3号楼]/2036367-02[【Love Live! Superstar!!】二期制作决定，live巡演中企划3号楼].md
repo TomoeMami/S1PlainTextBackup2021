@@ -15547,3 +15547,85 @@ ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://stati
 黑屁怎么就低人一等了？我评价一个偶像长得丑唱功差跳舞无力，跟粉丝觉得她人美歌甜舞好不是平等的嘛？当 ...</blockquote>
 哦，你的意思是黑屁是这种啊，我还以为是啥类型的黑屁呢，要有些人真要像你说的那么纯良就好了，至于天音妹妹，不认识，也没兴趣关注你们说她啥。
 
+
+
+*****
+
+####  a92063256  
+##### 2803#       发表于 2021-12-30 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098075&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:49</a>
+
+黑屁怎么就低人一等了？我评价一个偶像长得丑唱功差跳舞无力，跟粉丝觉得她人美歌甜舞好不是平等的嘛？当 ...</blockquote>
+你们怎么这么喜欢拿音宝楼混淆视听？音宝楼里有人信誓旦旦的造谣音宝搞枕营业、搞R18写真吗？难道你认为在S1造谣无罪，传谣有理？
+
+*****
+
+####  shamanda  
+##### 2804#       发表于 2021-12-30 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098263&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-30 11:01</a>
+你们怎么这么喜欢拿音宝楼混淆视听？音宝楼里有人信誓旦旦的造谣音宝搞枕营业、搞R18写真吗？难道你认为 ...</blockquote>
+你怎么那么喜欢扩大化，因为有人说了摩天轮，所以所有黑屁鲤鱼的人都在传播摩天轮？你们那个什么黑鲤鱼分数，也不至于每一分都是摩天轮吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TRIScRE|-1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  zskg  
+##### 2805#       发表于 2021-12-30 11:12
+
+<blockquote>shamanda 发表于 2021-12-30 11:09
+你怎么那么喜欢扩大化，因为有人说了摩天轮，所以所有黑屁鲤鱼的人都在传播摩天轮？你们那个什么黑鲤鱼分 ...</blockquote>
+有意思，居然反过来说别人扩大化了，一开始扩大化肖战的是谁，还有什么所谓的天音妹妹，扩大到天音妹妹的是谁，反扣帽子倒是熟练
+
+*****
+
+####  lanslort  
+##### 2806#       发表于 2021-12-30 11:12
+
+可以改名了拉综了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 从缪繆开始你拉圈最不缺的就是粉头撕逼
+
+*****
+
+####  D麦林  
+##### 2807#       发表于 2021-12-30 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098369&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 11:09</a>
+
+你怎么那么喜欢扩大化，因为有人说了摩天轮，所以所有黑屁鲤鱼的人都在传播摩天轮？你们那个什么黑鲤鱼分 ...</blockquote>
+谁评分的你找谁去 谁是“你们”？
+
+*****
+
+####  cybernetics31  
+##### 2808#       发表于 2021-12-30 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了这么多，这货就是想扣帽子，直接举报拉黑就是了
+
+*****
+
+####  cybernetics31  
+##### 2809#       发表于 2021-12-30 11:18
+
+大家投票别忘了，晚上还有生放
+
+*****
+
+####  shamanda  
+##### 2810#       发表于 2021-12-30 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098502&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 11:16</a>
+谁评分的你找谁去 谁是“你们”？</blockquote>
+早切割不就行了嘛，大家都是粪海狂蛆，一起来其乐融融的骂西西吧，毕竟我一开始就说了这件事起因就是他过分了。要是觉得吃亏了可以连车西一起骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

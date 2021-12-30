@@ -10467,3 +10467,22 @@ CDC预测未来四周死于新冠人数可能达到4.4万</blockquote>
 子陵又在那阴阳怪气国内疫苗没用了，我奇怪就算是防重症到现在国内也没死过人，他哪来的信心鄙视国内疫苗 ...</blockquote>
 在共存派看来只要不放开国门和白皮一起in waves国内疫苗就永远是落后于版本的，不管打的是灭活还是mRNA，免疫洼地这词蠢得笑爆
 
+
+
+*****
+
+####  ak123  
+##### 2382#       发表于 2021-12-30 11:19
+
+<img src="https://img.saraba1st.com/forum/202112/30/111850rjvvzvvvpjl2mdpv.png" referrerpolicy="no-referrer">
+
+<strong>A1BC0030-E89A-4C10-AB4B-0501FB516685.png</strong> (59.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 11:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+坐火箭喽
+

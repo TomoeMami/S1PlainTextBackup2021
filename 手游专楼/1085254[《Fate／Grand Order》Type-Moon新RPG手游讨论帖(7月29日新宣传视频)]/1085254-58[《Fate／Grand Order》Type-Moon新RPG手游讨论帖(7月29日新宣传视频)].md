@@ -5057,3 +5057,69 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 —— 来自 S1Fun ...</blockquote>
 盖罗曼的问题是连主角和玛修都大概知道他是谁了
 
+
+
+*****
+
+####  UNISONIA  
+##### 85971#       发表于 2021-12-30 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096952&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-30 09:25</a>
+
+啊？还有这种说法，完全没听过具体是啥？</blockquote>
+MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人提出疑问了以后改成主流推测了
+
+同期英文匿名版那边也有福是B5的传言
+
+*****
+
+####  仰望神的括约肌  
+##### 85972#       发表于 2021-12-30 11:07
+
+是熟人新年嘉宾又是铃村那大概是医生声音医生皮的人王咯
+
+*****
+
+####  johnkamsar  
+##### 85973#       发表于 2021-12-30 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098022&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-30 10:46</a>
+真名溶解也不一定老福啊，没准人王呢（虽然玩家都知道他是谁）
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结果最后真名溶解的是……我咕哒达！
+
+*****
+
+####  凌云三才  
+##### 85974#       发表于 2021-12-30 11:08
+
+考虑到通古斯的尿性，可能真就是所罗门溶解变成盖提亚..
+
+*****
+
+####  凌云三才  
+##### 85975#       发表于 2021-12-30 11:10
+
+舅舅还说新年的新人是“熟到fgo主线但凡不是全skip过去基本都知道这么个人”，那感觉范围很小了（麻婆能排除了）
+
+*****
+
+####  miro112233  
+##### 85976#       发表于 2021-12-30 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098321&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-30 11:06</a>
+MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人提出疑问了以后改成主流推测了
+
+同期英文匿名版 ...</blockquote>
+老福最大的问题是，被写手团糟蹋成现在这样，不管他出什么剧情我都怀疑是评价“好死”的更多<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  v22325  
+##### 85977#       发表于 2021-12-30 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得紫苑嫌疑比较大  搞不好所谓迦勒底全灭就是我紫苑全灭你迦勒底啦！【
+
