@@ -11537,3 +11537,36 @@ Scientists estimate record U.S. COVID cases attributed to the omicron variant Ov
 和防止金融挤兑一个思路吧，最重要的就是要给予民众信心</blockquote>
 愚民政策
 
+
+
+*****
+
+####  pushare  
+##### 2471#       发表于 2021-12-31 00:25
+
+能让路透下场，0岁开打刻不容缓，董事已经饥渴难耐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron concerns 
+
+*****
+
+####  smy20011  
+##### 2472#       发表于 2021-12-31 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102976&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-30 16:45</a>
+那咋“骨折”的也变多了呢</blockquote>
+院感变多了呗
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2473#       发表于 2021-12-31 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103360&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-30 17:12</a>
+现在讨论的所有毒力都是跟delta相比较，omicron跟原始株相比毒性是变强了还是变弱了？如果说，不同进化分支 ...</blockquote>
+不一定，如果omicron比原始强比delta弱的话，新变种依然可以比原始强比omicron弱。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

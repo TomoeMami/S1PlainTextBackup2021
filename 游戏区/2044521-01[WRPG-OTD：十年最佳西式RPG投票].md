@@ -657,3 +657,14 @@ bioware赶紧入土吧，看你们活着也是折磨
 
 我去，滚5评价那么高，为啥我玩的时候感觉一般般，（13年玩的，可能逛地图这种乐趣已经在WOW里体验过了）
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 63#         楼主| 发表于 2021-12-31 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54092577&amp;ptid=2044521" target="_blank">Existinghomes 发表于 2021-12-29 20:16</a>
+如果沉浸模拟也算的话那手动投prey一票</blockquote>
+arkane那些在我心目中还是算进动作大类，Prey-FPS、Dishonour-潜行(合金装备细胞分裂)
+

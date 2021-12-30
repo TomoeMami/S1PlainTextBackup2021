@@ -16760,3 +16760,12 @@ pay真的是行走的放送事故<img src="https://static.saraba1st.com/image/sm
 
 r3加妃喵去星团也够九人了
 
+
+
+*****
+
+####  lj205  
+##### 2928#       发表于 2021-12-31 00:27
+
+想拿G店打折码冲一波鲤鱼面对面，结果普通版已经是二次预约，感觉倍率有点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
