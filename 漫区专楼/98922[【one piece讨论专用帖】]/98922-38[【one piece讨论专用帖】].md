@@ -9990,3 +9990,14 @@ joyboy又出现了
 
 剩下来的都交给动画组补全了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 56287#       发表于 2021-12-30 22:32
+
+GOD说的话倒是很有讽刺效果啊
+
+我不喜欢你们的这种文化！
+

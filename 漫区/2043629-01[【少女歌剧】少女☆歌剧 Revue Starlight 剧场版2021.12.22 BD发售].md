@@ -5181,3 +5181,20 @@ B站动态看见一个观影团连观影特典都整出来了
 
 感觉动画一开始因为偶像因素还是宅宅看的多，经过这三年女性观众占比越来越高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  unnilennium  
+##### 402#       发表于 2021-12-30 22:35
+
+ 本帖最后由 unnilennium 于 2021-12-30 22:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101559&amp;ptid=2043629" target="_blank">werkeytom 发表于 2021-12-30 14:58</a>
+
+我第一遍看到那里也是这个感觉，构思那个场景时古川脑海里的概念和印象肯定是少革，已经是高调情书了 ...</blockquote>
+虽然但是，迷宫的revue负责演出的，应该主要是副监督小出卓史，和TV第三话一样。
+
+古川自己在talk说大家肯定都很想看迷宫的revue，要做誇りと驕り的扩张版，
+
+那必须就是小出演出+藤泽作曲的阵容，歌曲起承转合细节也都是小出直接给藤泽提的order。
+
