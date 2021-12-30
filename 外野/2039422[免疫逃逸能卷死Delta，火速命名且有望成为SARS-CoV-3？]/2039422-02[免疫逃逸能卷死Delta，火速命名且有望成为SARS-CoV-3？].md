@@ -11570,3 +11570,43 @@ Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron c
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  母星  
+##### 2474#       发表于 2021-12-31 01:05
+
+<blockquote>smy20011 发表于 2021-12-31 00:31
+不一定，如果omicron比原始强比delta弱的话，新变种依然可以比原始强比omicron弱。
+
+— from Google Pixe ...</blockquote>
+你想否定这个结论，用新变种和omicron、delta比没有意义吧，得跟它演化树的前一代比较才能证明它毒性增强或者减弱，必须要控制变量，其他演化树上的变异株没有参与讨论的必要。
+
+*****
+
+####  xv88  
+##### 2475#       发表于 2021-12-31 01:11
+
+辉瑞特效药厉害吗？看说的很好
+
+*****
+
+####  母星  
+##### 2476#       发表于 2021-12-31 01:15
+
+<blockquote>smy20011 发表于 2021-12-31 00:31
+不一定，如果omicron比原始强比delta弱的话，新变种依然可以比原始强比omicron弱。
+
+— from Google Pixe ...</blockquote>
+所以，关键问题在于Omicron的毒力比起B.1.1或者原始珠，究竟是减弱还是增强了。如果是增强了，那么2年来所有的变异株较原始株都提升了毒力，也许有多有少，但演化的方向没有变。
+
+*****
+
+####  血狂毘沙门  
+##### 2477#       发表于 2021-12-31 01:24
+
+我开始相信那个病毒会在脑子里一直复制的说法了
+
+真的病毒上脑 脑控老外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
