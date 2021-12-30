@@ -15452,3 +15452,98 @@ ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://stati
 那我的观点一直就是他那开团就不是针对个人的开法 明着就是靠开AOE来吸引关注 ...</blockquote>
 我跟开团的接团的被开的一个都不认识，这话别跟我说<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shamanda  
+##### 2794#       发表于 2021-12-30 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097909&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-30 10:38</a>
+原来你是真的连瓜都没看懂，西西去找车西是私下去找，他们两个原本有私交，这件事不是那个人发出来其他人 ...</blockquote>
+那话明显是群里说的，被人截出来了也没办法，就跟美凤学姐被**下来发出来了也只能认栽。况且就我的阅读理解来说，不禁言就打差评是很连贯的文字。
+
+*****
+
+####  D麦林  
+##### 2795#       发表于 2021-12-30 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097944&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:40</a>
+我跟开团的接团的被开的一个都不认识，这话别跟我说</blockquote>
+哦 那我看懂了 建议你直说你来就是想扣一波内娱饭圈帽子的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+用不着靠着那事情来找话头
+
+*****
+
+####  cybernetics31  
+##### 2796#       发表于 2021-12-30 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是想扣咱们帽子呗，没必要和他废口舌，直接拉黑
+
+*****
+
+####  stygian  
+##### 2797#       发表于 2021-12-30 10:46
+
+讲真老害也不会明知真爱楼还要无意义汴京<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，况且很明显你对黑屁两字的认知和不少楼友有偏差
+看mmr不爽建议还是等万一真出啥事了建专楼再疯狂反攻
+
+*****
+
+####  nufawneafg  
+##### 2798#       发表于 2021-12-30 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097797&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:29</a>
+聊天记录随便去翻，我可没有在公开场合黑过鲤鱼一句。老实说作为老乡还是有点好感的，虽然没有推，但也买 ...</blockquote>
+得了吧，话都理解不了就算了
+我这“都处在灰色地带，就算谁比谁高尚，又能高尚几分？”的意思你都看不出来，反倒真去证明高阶就是比低阶强了，得了吧您哪，最后不都得抹去这个零头。
+不过您的优越感还是值得学习一个，屎里淘金，还要高呼胜利。有了此等功力，真是所向披靡啊。
+
+*****
+
+####  秋月艾莉  
+##### 2799#       发表于 2021-12-30 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">饭圈小将一号被之后立场逆转的饭圈小将二号点草不是活几把该，松雾大佐都没好意思给车西整微博抽奖干他，春秋笔法大字报这种典中典饭圈做派一句血气方刚真路人评理混过去真是叫人笑掉大牙，S1巨魔黑屁可不会避重就轻给自己找补
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该庆幸真.路人没有下场吧，一口一个肖战粉我也可以给阁下扣个最潮最in的罕见low逼普信男
+
+*****
+
+####  shamanda  
+##### 2800#       发表于 2021-12-30 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097868&amp;ptid=2036367" target="_blank">zskg 发表于 2021-12-30 10:35</a>
+黑屁当然不能让粉丝不粉，因为黑屁这种行为本身就是阴沟里的老鼠的行为，什么时候制止黑屁，也成了错误， ...</blockquote>
+黑屁怎么就低人一等了？我评价一个偶像长得丑唱功差跳舞无力，跟粉丝觉得她人美歌甜舞好不是平等的嘛？当然出于读空气我没事也不会跑粉丝楼里来黑，但也不至于就见不得人吧。天音妹妹不就唱跑调了几次，可是没被少黑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shamanda  
+##### 2801#       发表于 2021-12-30 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098033&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-30 10:46</a>
+讲真老害也不会明知真爱楼还要无意义汴京，况且很明显你对黑屁两字的认知和不少楼友有偏差
+看mmr不 ...</blockquote>
+因为我没想到s1的漫区还会有真的真爱的真爱楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TRIScRE|-1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  zskg  
+##### 2802#       发表于 2021-12-30 10:51
+
+<blockquote>shamanda 发表于 2021-12-30 10:49
+黑屁怎么就低人一等了？我评价一个偶像长得丑唱功差跳舞无力，跟粉丝觉得她人美歌甜舞好不是平等的嘛？当 ...</blockquote>
+哦，你的意思是黑屁是这种啊，我还以为是啥类型的黑屁呢，要有些人真要像你说的那么纯良就好了，至于天音妹妹，不认识，也没兴趣关注你们说她啥。
+

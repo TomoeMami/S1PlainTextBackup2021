@@ -5023,3 +5023,37 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 话说现在迦里有没洗白或者物理说服过的吗？虽然他们可能不当回事，但老福要是真反了这卡怎么处理？新年直接跳反、物理说服一条龙？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 85968#       发表于 2021-12-30 10:46
+
+真名溶解也不一定老福啊，没准人王呢（虽然玩家都知道他是谁）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  khxooo  
+##### 85969#       发表于 2021-12-30 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098022&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-30 10:46</a>
+真名溶解也不一定老福啊，没准人王呢（虽然玩家都知道他是谁）
+
+—— 来自 S1Fun ...</blockquote>
+真名溶解，所罗门（罗马尼）→盖提亚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 85970#       发表于 2021-12-30 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098022&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-12-30 10:46</a>
+
+真名溶解也不一定老福啊，没准人王呢（虽然玩家都知道他是谁）
+
+—— 来自 S1Fun ...</blockquote>
+盖罗曼的问题是连主角和玛修都大概知道他是谁了
+

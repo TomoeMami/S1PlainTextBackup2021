@@ -10420,3 +10420,50 @@ CDC预测未来四周死于新冠人数可能达到4.4万</blockquote>
 美国前财政部长拉里·萨默斯（Larry Summers ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">全球市场的停滞不代表资本逐利的停滞，你查查去年流向中国的巨量FDI就知道了，至于现在老美撕破脸玩新疆牌，实质上是在规制正在溢出的资本。这是疫情楼，就不多展开了。
 
+
+
+*****
+
+####  charse2r  
+##### 2377#       发表于 2021-12-30 10:47
+
+子陵又在那阴阳怪气国内疫苗没用了，我奇怪就算是防重症到现在国内也没死过人，他哪来的信心鄙视国内疫苗
+
+*****
+
+####  L.L  
+##### 2378#       发表于 2021-12-30 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098050&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-30 10:47</a>
+子陵又在那阴阳怪气国内疫苗没用了，我奇怪就算是防重症到现在国内也没死过人，他哪来的信心鄙视国内疫苗 ...</blockquote>
+要屁股不要脑袋这不是很正常。
+
+*****
+
+####  李天宝  
+##### 2379#       发表于 2021-12-30 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097676&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 10:18</a>
+
+如果不是南非先爆发的，那就得解释在这种传染力下，为什么没有任何一个机构能测的出来新变种 ...</blockquote>
+美国这世界第一的感染数量也没有测出来什么有名气的新变种，别的地方测不出来有啥好奇怪的，就美国会“不检测=没有确诊、少测序=没有变种”这种招数吗？
+
+*****
+
+####  atomhappy  
+##### 2380#       发表于 2021-12-30 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098132&amp;ptid=2039422" target="_blank">李天宝 发表于 2021-12-30 10:52</a>
+
+美国这世界第一的感染数量也没有测出来什么有名气的新变种，别的地方测不出来有啥好奇怪的，就美国会“不 ...</blockquote>
+还一种更阴谋论的可能，就是先测出来上报了，会被污名化，所以发达国家测出来了也会先压着等冷头青上报。
+
+*****
+
+####  最好不说  
+##### 2381#       发表于 2021-12-30 11:00
+
+<blockquote>charse2r 发表于 2021-12-30 10:47
+子陵又在那阴阳怪气国内疫苗没用了，我奇怪就算是防重症到现在国内也没死过人，他哪来的信心鄙视国内疫苗 ...</blockquote>
+在共存派看来只要不放开国门和白皮一起in waves国内疫苗就永远是落后于版本的，不管打的是灭活还是mRNA，免疫洼地这词蠢得笑爆
+
