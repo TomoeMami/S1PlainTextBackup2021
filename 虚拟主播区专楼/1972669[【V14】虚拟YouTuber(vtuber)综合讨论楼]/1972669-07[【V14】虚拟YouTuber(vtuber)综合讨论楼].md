@@ -8675,3 +8675,35 @@ Marpril也学老爱停了<img src="https://static.saraba1st.com/image/smiley/fac
 
 「深海フェス 2021」~エルセとさめのぽき主催オンラインライブ~
 
+
+
+*****
+
+####  NBXX  
+##### 9738#       发表于 2021-12-30 19:24
+
+【ファンの皆様へ】
+これからの活動に関してご報告。
+#Marpril
+https://t.co/shztKMmXdy
+<img src="https://p.sda1.dev/3/126256e97a7f2f5d73d01b91602d71df/IMG_CMP_99164646.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Ronu  
+##### 9739#       发表于 2021-12-30 19:33
+
+精萝落泪，她要如闪电般归来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NBXX  
+##### 9740#       发表于 2021-12-30 19:40
+
+https://www.asahi.com/sp/articles/ASPDZ5D44PDRUTIL03Z.html
+<img src="https://p.sda1.dev/3/b9ee7f661559592e02835f3e99d09193/IMG_CMP_17164003.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

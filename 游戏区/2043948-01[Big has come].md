@@ -9136,3 +9136,19 @@ steam被封的阴谋节奏, 打完美代理dota2就开始说, 数十页的帖子
 没看油盐社那篇文章可以去看，少云一点对大家都好</blockquote>
 草，忽然发现我这是踩了个什么。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dgnic_  
+##### 833#       发表于 2021-12-30 19:31
+
+楼里有些人不知道是真傻还是装傻，找个游戏玩我想对 S1 众都不是难事，但国内本来趋势向好的独立游戏业可能就在此转折了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗影之诗  
+##### 834#       发表于 2021-12-30 19:33
+
+然而今天睿站还挂着两个蒸汽的热搜呢，我也算是看不明白了
+
