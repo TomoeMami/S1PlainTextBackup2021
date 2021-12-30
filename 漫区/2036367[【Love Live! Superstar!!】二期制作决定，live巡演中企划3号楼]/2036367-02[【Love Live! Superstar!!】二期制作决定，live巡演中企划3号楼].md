@@ -16374,3 +16374,30 @@ F740A9ED-523D-40DB-9055-610EE739D128.jpeg
 
 哈人
 
+
+
+*****
+
+####  saverok  
+##### 2882#       发表于 2021-12-30 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103507&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 17:24</a>
+刚看到有人在推上自爆自己发烧潜入CM会场…
+虽然不知道真假以及到底是不是内什么但还是
+这要真是新 ...</blockquote>
+想啥呢 11区还缺他一个感染者？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 2883#       发表于 2021-12-30 18:19
+
+水团和初音未来联动，这是要弄啥
+
+*****
+
+####  中野四葉  
+##### 2884#       发表于 2021-12-30 18:20
+
+隔壁偶像大师联动初音就出了个谷，ll这边应该也差不多吧？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
