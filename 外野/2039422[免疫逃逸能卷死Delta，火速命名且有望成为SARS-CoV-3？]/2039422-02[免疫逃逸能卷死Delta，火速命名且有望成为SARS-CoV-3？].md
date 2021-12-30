@@ -10775,3 +10775,132 @@ https://www.reuters.com/business/healthcare-pharmaceuticals/south-africa-detects
 子陵在听歌这位已经鼓吹得o等于广谱疫苗了︎，还有啥可关注的啊，唯一遗憾的就是没法把这厮送出去“接种” ...</blockquote>
 他是福奇太医的弟子啊， 之前又因为鼓吹瑞德西韦拿到吉利德offer<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2407#       发表于 2021-12-30 13:22
+
+ 本帖最后由 smy20011 于 2021-12-30 13:24 编辑 
+
+为进一步做好新冠肺炎疫情防控工作，确保自英国赴华人员健康安全，根据国内最新防控规定，自2022年1月6日起，完整接种了灭活疫苗的自英国出发赴华人员，申请健康码时的核酸和抗体双检测调整为双核酸检测。具体要求如下：
+
+一、离英航班起飞时间在2022年1月6日0时之后，并且完整接种了灭活疫苗的赴华人员，行前48小时的双检测，由PCR核酸和IgM抗体检测调整为两次PCR核酸检测，以下简称“双核酸”。
+
+[http://cd.nbd.com.cn/articles/2021-12-30/2065563.html](http://cd.nbd.com.cn/articles/2021-12-30/2065563.html)
+
+两次核酸是不是有点过于草率了？
+
+*****
+
+####  惊奇记事簿  
+##### 2408#       发表于 2021-12-30 13:29
+
+o病毒是不是潜伏期更短而且因为呼吸道更容易被攻击所以检测出更容易？
+
+*****
+
+####  smy20011  
+##### 2409#       发表于 2021-12-30 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100388&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 13:29</a>
+
+o病毒是不是潜伏期更短而且因为呼吸道更容易被攻击所以检测出更容易？</blockquote>
+连续阴个几天也是有的 这传染力放进去一个基本上全飞机都感染了
+
+*****
+
+####  lexi  
+##### 2410#       发表于 2021-12-30 13:30
+
+ 本帖最后由 lexi 于 2021-12-30 13:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100307&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 13:22</a>
+
+两次核酸是不是有点过于草率了？</blockquote>其他国家根本没有零疫情管控的理念，只要来华者之前在高风险环境生活，那么测几次其实都跟测一次差不多，风险=检测之前7-14天接触的人数*人群带病率*单次接触感染率。测出来阴性可以说明当前尚未有明显感染，仅此而已。
+
+*****
+
+####  Alexmacau8  
+##### 2411#       发表于 2021-12-30 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100388&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 13:29</a>
+o病毒是不是潜伏期更短而且因为呼吸道更容易被攻击所以检测出更容易？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恰恰相反，pcr检测对o株检出率相对delta效率降低，快筛包准确度降到了30%～40%，跟开盲盒差不多。
+
+*****
+
+####  惊奇记事簿  
+##### 2412#       发表于 2021-12-30 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100408&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 13:30</a>
+
+连续阴个几天也是有的 这传染力放进去一个基本上全飞机都感染了</blockquote>
+又不怕感染，就怕查不出来，14+7不就是因为潜伏期过长么
+
+一飞机感染了那就熔断么，现在还有熔断航线这个说法么？
+
+*****
+
+####  惊奇记事簿  
+##### 2413#       发表于 2021-12-30 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100445&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 13:33</a>
+
+恰恰相反，pcr检测对o株检出率相对delta效率降低，快筛包准确度降到了30%～40%，跟开盲盒差不多。 ...</blockquote>
+这个是因为旧型号的PCR快筛包没有更新版本，还是因为新病毒机理不容易被检出？
+
+*****
+
+####  smy20011  
+##### 2414#       发表于 2021-12-30 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100457&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 13:33</a>
+
+又不怕感染，就怕查不出来，14+7不就是因为潜伏期过长么
+
+一飞机感染了那就熔断么，现在还有熔断航线这个 ...</blockquote>
+看好全世界飞机都融断..
+
+*****
+
+####  惊奇记事簿  
+##### 2415#       发表于 2021-12-30 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100445&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 13:33</a>
+
+恰恰相反，pcr检测对o株检出率相对delta效率降低，快筛包准确度降到了30%～40%，跟开盲盒差不多。 ...</blockquote>
+我针对的是国内对入境人员的检测，而不是国外的检测。
+
+快筛包国内用么？国内检测用的是哪几种？这几种是怎么个情况？
+
+*****
+
+####  惊奇记事簿  
+##### 2416#       发表于 2021-12-30 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100491&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 13:35</a>
+
+看好全世界飞机都融断..</blockquote>
+那就熔断呗
+
+这个规则还在运行么？
+
+*****
+
+####  Alexmacau8  
+##### 2417#       发表于 2021-12-30 13:41
+
+ 本帖最后由 Alexmacau8 于 2021-12-30 13:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100501&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 13:36</a>
+
+我针对的是国内对入境人员的检测，而不是国外的检测。
+
+快筛包国内用么？国内检测用的是哪几种？这几种是 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便就能搜到，至于国内，据我所知，都是n次pcr，朋友回国，鼻子都捅怕了。
+
+澳大利亚昆士兰州7日报告全球首例新冠变异株奥密克戎变种亚型的感染病例。卫生官员称该亚型株与奥密克戎十分相似，但不存在奥密克戎特有的“S基因脱落”特征，难以被PCR核酸检测识别，并具有更强的传染性。
+
+澳大利亚国立大学的传染病医生和微生物学家 Peter Collignon表示，奥密克戎变异株的两个谱系携带的基因片段稍有区别，变种亚型缺少“S基因脱落”特征，而“S基因脱落”是PCR检测奥密克戎的常规手段。艾特肯表示，“据我们所知，奥密克戎变异株更具有传染性。”目前，这名来自南非的感染病例已接受隔离，未出现严重症状。
+

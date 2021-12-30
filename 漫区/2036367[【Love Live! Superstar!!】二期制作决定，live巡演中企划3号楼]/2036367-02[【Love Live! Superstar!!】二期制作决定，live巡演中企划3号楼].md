@@ -16021,3 +16021,30 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前国内水团那个call的表现只留下静安动物园这个戏称了
 
+
+
+*****
+
+####  D麦林  
+##### 2849#       发表于 2021-12-30 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099546&amp;ptid=2036367" target="_blank">cat1230 发表于 2021-12-30 12:24</a>
+
+这种不提了，我记得水团的光路在国内就搞的非常尴尬，韩国的就很漂亮
+
+----发送自 Xiaomi Redmi K20 ...</blockquote>
+当时是有人在前排特意整光害的 目的就是要破坏光路
+
+19年亚巡是厄介影响力的一个巅峰时期 一群人就为了搞行为艺术特意去抢内场前排票
+
+*****
+
+####  saglork  
+##### 2850#       发表于 2021-12-30 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100500&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 13:36</a>
+当时是有人在前排特意整光害的 目的就是要破坏光路
+
+19年亚巡是厄介影响力的一个巅峰时期 一群人就为了搞 ...</blockquote>
+这个记忆倒是很深刻，印象中还有个人群中的风火轮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
