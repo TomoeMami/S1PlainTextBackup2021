@@ -5178,3 +5178,15 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 
 这位老哥是很合适没错但里面能是谁啊。。
 
+
+
+*****
+
+####  zakki  
+##### 85984#       发表于 2021-12-30 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100121&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-30 13:08</a>
+
+出个新class的老福本体</blockquote>
+不如把现在的老福像学妹那样加个第二套技能，省的抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
