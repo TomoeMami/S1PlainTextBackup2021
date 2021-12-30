@@ -8786,3 +8786,111 @@ https://www.asahi.com/sp/articles/ASPDZ5D44PDRUTIL03Z.html
 
 EN来了、黛灰来了郡道也来了，已经感觉这次凸待超值了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 9750#       发表于 2021-12-30 20:04
+
+ 本帖最后由 FCCHua 于 2021-12-30 20:14 编辑 
+
+新年oreapo＋henlisa马里奥派对
+明年有新衣服，大概最晚三月，有眼镜差分
+apex上大师 giru out，hendy in
+前几天已经提过的旅团跨年
+by hnn杂谈
+
+
+
+*****
+
+####  マドマコ  
+##### 9751#       发表于 2021-12-30 20:05
+
+<blockquote>幼い頃に母と死別して頼れる家族がいないという女性にとって、Vチューバーの活動は'収入源'でもあり'居場所'。</blockquote>
+这个家庭背景也太...<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 9752#       发表于 2021-12-30 20:08
+
+口了回归会最先和谁联动
+
+1.保险的女人们（rrm，叶山，ars）
+
+2.贴贴的男人们（贝，不破，三枝）
+
+3.口了野心仍在燃烧（king，委）
+
+*****
+
+####  poipanchao  
+##### 9753#       发表于 2021-12-30 20:09
+
+4.鸿鹄之志（peko）
+
+*****
+
+####  本间日阳  
+##### 9754#       发表于 2021-12-30 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54105622&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-12-30 20:08</a>
+
+口了回归会最先和谁联动
+
+1.保险的女人们（rrm，叶山，ars）
+
+2.贴贴的男人们（贝，不破，三枝）</blockquote>
+群道美玲！
+
+*****
+
+####  Suzutsuki  
+##### 9755#       发表于 2021-12-30 20:10
+
+惊闻roa要回来了,本来bora走后再也没看过管人了，这下又能活了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9756#       发表于 2021-12-30 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54105622&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-12-30 20:08</a>
+口了回归会最先和谁联动
+
+1.保险的女人们（rrm，叶山，ars）
+
+2.贴贴的男人们（贝，不破，三枝）</blockquote>
+康康哥不会看郡郡又又又被流弹击中气到了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 9757#       发表于 2021-12-30 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54105694&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-12-30 20:12</a>
+
+康康哥不会看郡郡又又又被流弹击中气到了吧，我郡不会又要被拉出来杀吧 ...</blockquote>
+郡道这次还能被流弹击中？
+
+这转发明显求生欲满满<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">’
+
+不过当时战斗力强的李林应该少了不少了吧
+
+*****
+
+####  空集  
+##### 9758#       发表于 2021-12-30 20:16
+
+ 本帖最后由 空集 于 2021-12-30 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54105415&amp;ptid=1972669" target="_blank">天下雨 发表于 2021-12-30 19:51</a>
+
+如果能认定形象关联的话，通过混淆行为损害对方商业形象应该可以套进不正当竞争要求赔偿吧，金鱼也符合同 ...</blockquote>
+反不正当这块主要管人中人本身的性质这个问题就是个混沌状态，感觉没必要用这个。
+
+套名誉权这个德国这块我确实完全不了解，不过这种太细分的前沿问题感觉也没啥大陆法系基础法理一说，德国如果真是纯网上骂街也能被告还能胜诉（赔礼道歉么），那可能有什么独特的东西吧。国内我刚搜了下倒是有影响实际的名誉权诉讼胜诉（例如涉及现实的微信群内侮辱人）。
+
+顺便虽然完全没关系还去研究了会美国的诽谤法，主要考虑到美国的侵权法完全不涉及这块，结果发现这东西主要靠州法然后各州不一样有共通属于完全专门领域，抗辩一大堆。（就当以后为英语圈的瓜先查了 虽然英语圈现在国籍极其混乱）
+

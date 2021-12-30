@@ -11516,3 +11516,24 @@ Scientists estimate record U.S. COVID cases attributed to the omicron variant Ov
 
 很多坛友都是办公室工作，可以远程，所以在家不受影响，但工业和物流不行。缺人直接影响其他人。
 
+
+
+*****
+
+####  ikavalon  
+##### 2469#       发表于 2021-12-30 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54093664&amp;ptid=2039422" target="_blank">有口皆悲 发表于 2021-12-29 21:41</a>
+
+这时候最怕民众恐慌，挤着去医院哭喊着抢床位。所以宣传o是人传人疫苗云云是最好的选择（对统治阶级），当 ...</blockquote>
+和防止金融挤兑一个思路吧，最重要的就是要给予民众信心
+
+*****
+
+####  eveshell  
+##### 2470#       发表于 2021-12-30 20:11
+
+<blockquote>ikavalon 发表于 2021-12-30 20:11
+和防止金融挤兑一个思路吧，最重要的就是要给予民众信心</blockquote>
+愚民政策
+
