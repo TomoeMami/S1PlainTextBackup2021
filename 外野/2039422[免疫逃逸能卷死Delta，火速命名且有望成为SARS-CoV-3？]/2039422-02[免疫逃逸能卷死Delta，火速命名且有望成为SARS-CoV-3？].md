@@ -10238,3 +10238,77 @@ CDC预测未来四周死于新冠人数可能达到4.4万
 
 这会使得整体人均医疗资源大幅下降，导致人均逾期寿命急剧降低，所谓把O病毒当人传人的疫苗，只能说如果你是富人随时随地能得到24小时VIP医疗抢救和护理的那确实是，如果是普通人那就只能祈祷自己别死在家里了
 
+
+
+*****
+
+####  dllplayer  
+##### 2361#       发表于 2021-12-30 09:31
+
+昨天和某有在日本留学回来10多年的人聊天..竟然真信日本人控制住了疫情......
+
+我也不知道该咋说...按理说没有调查就没有发言权..他肯定比我了解日本
+
+但....我总觉得日本只是鸵鸟....也不知道..最终哪边会被打脸
+
+*****
+
+####  zhouwendi12  
+##### 2362#       发表于 2021-12-30 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096705&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-12-30 09:02</a>
+
+我忽然想起当年床破说死多少就是胜利。。。那个数字是多少？？现在回头想想。床破真的诚实啊。。。。= = ...</blockquote>
+20万,当时是疫情初期,听起来是天文数字,现在看确实很实在了
+
+*****
+
+####  riczxc  
+##### 2363#         楼主| 发表于 2021-12-30 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097030&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-30 09:31</a>
+
+昨天和某有在日本留学回来10多年的人聊天..竟然真信日本人控制住了疫情......
+
+我也不知道该咋说...按理说没 ...</blockquote>
+那段时间病人入院都入不了之前，我是不相信日本的数字的。之后反而觉得有点可信度。
+
+*****
+
+####  smy20011  
+##### 2364#       发表于 2021-12-30 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096687&amp;ptid=2039422" target="_blank">ztgmeteor 发表于 2021-12-30 09:01</a>
+
+坐标大温，这里检测点已经爆满了，不预约去检测只会给你一个rapid test的小盒子让你自己回家测，但那玩意准 ...</blockquote>
+不用测核酸了，几乎100%的Omicron感染，回家喝热水躺平就是了
+
+*****
+
+####  天野银次X美堂蛮  
+##### 2365#       发表于 2021-12-30 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097104&amp;ptid=2039422" target="_blank">zhouwendi12 发表于 2021-12-30 09:36</a>
+
+20万,当时是疫情初期,听起来是天文数字,现在看确实很实在了</blockquote>
+当时还觉得他绝壁是在乱说。。。再怎么反感美国的人都会觉得米利坚怎么可能会因为这个病死这么多人，果然不靠谱。。现在回头一看。居然觉得还真没说错。。
+
+*****
+
+####  毒品  
+##### 2366#       发表于 2021-12-30 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096416&amp;ptid=2039422" target="_blank">豪福 发表于 2021-12-30 08:28</a>
+奥密克戎能卷赢德尔塔必定是传染力更猛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是疫苗拉偏手吧
+
+*****
+
+####  李天宝  
+##### 2367#       发表于 2021-12-30 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097104&amp;ptid=2039422" target="_blank">zhouwendi12 发表于 2021-12-30 09:36</a>
+
+20万,当时是疫情初期,听起来是天文数字,现在看确实很实在了</blockquote>
+后来抬高到200万了，吹牛不上税的，美国才不怕这么慢的速度死人
+

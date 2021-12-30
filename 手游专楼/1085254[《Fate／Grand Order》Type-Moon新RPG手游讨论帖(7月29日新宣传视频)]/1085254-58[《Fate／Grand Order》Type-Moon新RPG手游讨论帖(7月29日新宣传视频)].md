@@ -4955,3 +4955,35 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前解出来的福B5的说法结果是真的？
 
+
+
+*****
+
+####  zakki  
+##### 85962#       发表于 2021-12-30 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096655&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-30 08:58</a>
+
+以前解出来的福B5的说法结果是真的？</blockquote>
+啊？还有这种说法，完全没听过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">具体是啥？
+
+*****
+
+####  gpx234mqx  
+##### 85963#       发表于 2021-12-30 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096655&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-12-30 08:58</a>
+
+以前解出来的福B5的说法结果是真的？</blockquote>
+不是外星人吗？
+
+*****
+
+####  zakki  
+##### 85964#       发表于 2021-12-30 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097037&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2021-12-30 09:31</a>
+
+不是外星人吗？</blockquote>
+其实有一点可以佐证，不过也不是解包是远古的猜测了，老福的画师在fgo只画了三个人，老福，提妈，盖提亚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
