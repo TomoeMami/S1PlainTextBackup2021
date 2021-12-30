@@ -16401,3 +16401,28 @@ F740A9ED-523D-40DB-9055-610EE739D128.jpeg
 
 隔壁偶像大师联动初音就出了个谷，ll这边应该也差不多吧？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 2885#       发表于 2021-12-30 18:23
+
+这意思是就做首歌做个pv，那不就是找个p主调教下音源的事么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 2886#       发表于 2021-12-30 18:25
+
+动画pv，pay酱狂喜
+
+*****
+
+####  优妮可  
+##### 2887#       发表于 2021-12-30 18:25
+
+ 本帖最后由 优妮可 于 2021-12-30 18:36 编辑 
+
+  -
+

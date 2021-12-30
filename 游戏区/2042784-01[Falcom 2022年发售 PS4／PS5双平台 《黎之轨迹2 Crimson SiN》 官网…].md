@@ -1873,3 +1873,12 @@ ps5版至少loading问题可以解决了
 躺平这个词不适合吧，法老控真要躺平，现在怕不是还在玩二头身小人轨迹伊苏 ...</blockquote>
 那样他们反而制作起来更轻松上手 剧本，演出，游戏体验，细节打磨的会更精细 出现赶工期注水的概率**下降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kanata  
+##### 179#       发表于 2021-12-30 18:37
+
+明年就黎二我闪2PSTD要犯了，盲猜红色是恐惧哥
+

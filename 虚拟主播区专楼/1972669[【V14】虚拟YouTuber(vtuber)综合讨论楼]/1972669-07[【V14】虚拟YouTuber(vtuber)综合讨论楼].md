@@ -8386,3 +8386,129 @@ ROA！！！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这通告怎么感觉是稳赢了啊
 
+
+
+*****
+
+####  FCCHua  
+##### 9704#       发表于 2021-12-30 18:21
+
+ 本帖最后由 FCCHua 于 2021-12-30 18:25 编辑 
+
+终于动了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  本间日阳  
+##### 9705#       发表于 2021-12-30 18:22
+
+<img src="https://p.sda1.dev/3/853c3463016f934087a667a4c9585e41/IMG_CMP_252007742.jpeg" referrerpolicy="no-referrer">
+还真转了<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 9706#       发表于 2021-12-30 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 9707#       发表于 2021-12-30 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54104229&amp;ptid=1972669" target="_blank">本间日阳 发表于 2021-12-30 18:22</a>
+
+还真转了</blockquote>
+口了回到了她忠诚的——
+
+*****
+
+####  Ubibug  
+##### 9708#       发表于 2021-12-30 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">终于
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  生麦之发杀  
+##### 9709#       发表于 2021-12-30 18:25
+
+大的要来了！大的要来了！
+
+*****
+
+####  空集  
+##### 9710#       发表于 2021-12-30 18:27
+
+。。。。这能告还行，告的啥内容啥诉求啊。。非管人角度而是法律从业角度感觉非常好奇和震惊了，无论是告金鱼还是裁感觉都蛮头大的啊，因为这个是真的走诉讼了，什么能人接的啊这就是JP么，然后从立案庭到实际承办不会内心觉得WTF么<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄色禁区  
+##### 9711#       发表于 2021-12-30 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">憋这么久真是争口气啊
+
+*****
+
+####  poipanchao  
+##### 9712#       发表于 2021-12-30 18:29
+
+诽谤啊，能套的
+韩国那边有法条有成例的，日本法不太懂就不乱说了
+这要是赢了能不能称一句v圈最强
+
+*****
+
+####  北山玖公  
+##### 9713#       发表于 2021-12-30 18:30
+
+ 本帖最后由 北山玖公 于 2021-12-30 18:33 编辑 
+
+roa！roa！roa！
+
+我期待的msr梅丽莎roa的联动能再次提上日程了吗？
+上啊！roa！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近都快游离成v圈边缘人了，roa这年末一下子感觉又让我回到乐子人与萌萌人的共存体。
+
+*****
+
+####  天下雨  
+##### 9714#       发表于 2021-12-30 18:35
+
+金鱼不是事后拿roa账号形象擦边出r18音声吗，能证明形象关联的话起码告个侮辱损害商业形象之类应该没问题的，虽然不懂日本法律
+
+*****
+
+####  本间日阳  
+##### 9715#       发表于 2021-12-30 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">看到条“ロア和金鱼坂和鸣神裁法庭联动”的推文忍不住乐了
+
+*****
+
+####  alcoholic1000  
+##### 9716#       发表于 2021-12-30 18:40
+
+紅白饅頭也能复活了吧，三枝今年提roa也有好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+Syl，老叶从业以来初凸待的第一位来宾就是帕特姐，好人！
+
+*****
+
+####  IDIDIDID  
+##### 9717#       发表于 2021-12-30 18:40
+
+阿裁被杏干出油管之后终于要被彩虹干进局子了吗
+
+*****
+
+####  winda  
+##### 9718#       发表于 2021-12-30 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这夹道欢迎太隆重了点
+
