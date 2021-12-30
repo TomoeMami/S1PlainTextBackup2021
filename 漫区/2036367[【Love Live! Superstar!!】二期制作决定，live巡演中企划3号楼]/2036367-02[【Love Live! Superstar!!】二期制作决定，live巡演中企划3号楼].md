@@ -15330,3 +15330,125 @@ ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://stati
 天天整得好像受了天大的委屈，孽力回馈我只能说。
 闲着没事干，线下直接ttk比较好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  中野四葉  
+##### 2783#       发表于 2021-12-30 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1er的黑屁可不是这种水准，别拿它当你胡言乱语满地打滚的遮羞布
+
+*****
+
+####  shamanda  
+##### 2784#       发表于 2021-12-30 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097659&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2021-12-30 10:17</a>
+哎哟喂，还不是粉丝都扣上头了，没啥好讨论，举报再见</blockquote>
+哦，随便吧，好心提醒一句，记得管人区那会儿的经验，s1吵架吵不过就举报好像是要反吃口球的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TRIScRE|-1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Norkey1  
+##### 2785#       发表于 2021-12-30 10:28
+
+和你意见相左的不一定都是粉丝，不让黑也不是楼内共识……前面这么多内容你都没搞清楚，就只看到了那几张截图？到底能不能黑屁根本不是这件事的重点。看mmr不爽建议直接发泄，没必要再拿这件事来说。难怪那么惦记管人区，你这转进能力确实挺适合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 2786#       发表于 2021-12-30 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097611&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:12</a>
+艹了，我又没提过，还要给别人背锅不成？</blockquote>
+你没提过你就没提过呗你不是在帮他说话吗当然问他提没提过咯
+这里本来又没人针对你不是你自己要跑出来说这些
+诶我就不懂了人家本人都认错道歉了怎么有人不愿意原谅就给你们搞得好像罪大恶极一样
+威胁归威胁肯定不对那你们不能去找那个威胁他的人的麻烦非得一个饭圈的帽子扣下来很好玩？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  shamanda  
+##### 2787#       发表于 2021-12-30 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097695&amp;ptid=2036367" target="_blank">nufawneafg 发表于 2021-12-30 10:20</a>
+就一句，既然都是在道德底线和法律底线中间的灰色部分长袖善舞，还分啥你对我错啊。
+黑屁比饭圈更高尚？ ...</blockquote>
+聊天记录随便去翻，我可没有在公开场合黑过鲤鱼一句。老实说作为老乡还是有点好感的，虽然没有推，但也买过一本电子写真支持了一下。
+
+黑屁的确比饭圈高尚一点，因为黑屁不会不让别人去粉，而饭圈还要管到别人私人群里的黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shamanda  
+##### 2788#       发表于 2021-12-30 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097793&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 10:29</a>
+你没提过你就没提过呗你不是在帮他说话吗当然问他提没提过咯
+这里本来又没人针对你不是你自己要跑出来说 ...</blockquote>
+我为啥要帮他说话，我就淘宝店买过两次东西，又不是圣人。我回复是因为前面有人说想不通没有好处为什么要开团，我告诉他因为那个西西的截图让路人观感太差了。
+
+*****
+
+####  kata魂  
+##### 2789#       发表于 2021-12-30 10:34
+
+ 本帖最后由 kata魂 于 2021-12-30 10:35 编辑 
+
+私人群的黑屁都在外面看到了，怎么所有论坛都是你私人的?黑屁还高尚了，笑了，在这讨论互不打扰有人立马出来你们这位有问题啊不管别人指的是大街拉屎，拉完就跑?可不就不管了，养条狗都得知道带个塑料袋啊
+
+*****
+
+####  zskg  
+##### 2790#       发表于 2021-12-30 10:35
+
+<blockquote>shamanda 发表于 2021-12-30 10:29
+聊天记录随便去翻，我可没有在公开场合黑过鲤鱼一句。老实说作为老乡还是有点好感的，虽然没有推，但也买 ...</blockquote>
+黑屁当然不能让粉丝不粉，因为黑屁这种行为本身就是阴沟里的老鼠的行为，什么时候制止黑屁，也成了错误，你们不跑出来跳，谁知道你们在黑屁。
+
+
+
+*****
+
+####  D麦林  
+##### 2791#       发表于 2021-12-30 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097845&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:33</a>
+我为啥要帮他说话，我就淘宝店买过两次东西，又不是圣人。我回复是因为前面有人说想不通没有好处为什么要 ...</blockquote>
+是那观感是差他做法是不对
+那我的观点一直就是他那开团就不是针对个人的开法 明着就是靠开AOE来吸引关注和拉路人下场拉偏架 更不用提他在描述过程中的大量春秋笔法
+私人恩怨就请私下解决 误导路人算不得好汉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 2792#       发表于 2021-12-30 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097797&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 10:29</a>
+
+聊天记录随便去翻，我可没有在公开场合黑过鲤鱼一句。老实说作为老乡还是有点好感的，虽然没有推，但也买 ...</blockquote>
+原来你是真的连瓜都没看懂，西西去找车西是私下去找，他们两个原本有私交，这件事不是那个人发出来其他人根本不知道；这件事和粉丝群差评那件事是分离的两件事，不存在因果关系，也不是什么所谓的粉头捏着粉丝群打差评这件事威胁车西，那个发微博的将两件事嫁接在一起，就骗到了你这种选手
+
+*****
+
+####  shamanda  
+##### 2793#       发表于 2021-12-30 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097907&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 10:38</a>
+是那观感是差他做法是不对
+那我的观点一直就是他那开团就不是针对个人的开法 明着就是靠开AOE来吸引关注 ...</blockquote>
+我跟开团的接团的被开的一个都不认识，这话别跟我说<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

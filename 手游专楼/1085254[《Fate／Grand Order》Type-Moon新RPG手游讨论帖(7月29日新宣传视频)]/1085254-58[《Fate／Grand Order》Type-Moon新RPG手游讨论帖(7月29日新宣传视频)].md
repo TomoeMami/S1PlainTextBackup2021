@@ -5002,3 +5002,24 @@ ssy一直到泳5才变成被迫害的对象吧，而且主要迫害她的还是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 85966#       发表于 2021-12-30 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54095979&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-30 06:11</a>
+
+熟人就是句废话，不熟你怎么奶，连方向都没有。
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+也不能这么说，这说明会在经常奶的那几个里出，而不是空降一个
+
+*****
+
+####  poor  
+##### 85967#       发表于 2021-12-30 10:33
+
+话说现在迦里有没洗白或者物理说服过的吗？虽然他们可能不当回事，但老福要是真反了这卡怎么处理？新年直接跳反、物理说服一条龙？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

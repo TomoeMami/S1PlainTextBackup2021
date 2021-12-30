@@ -10356,3 +10356,67 @@ CDC预测未来四周死于新冠人数可能达到4.4万
 
 如果不是南非先爆发的，那就得解释在这种传染力下，为什么没有任何一个机构能测的出来新变种
 
+
+
+*****
+
+####  武男  
+##### 2372#       发表于 2021-12-30 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097634&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 10:14</a>
+
+印钞搞QE还真是找日本人学的，凭美元霸气，印到极致了</blockquote>
+“全球市场似乎即将迎来长期停滞，或说将变得‘日本化’。”
+
+美国前财政部长拉里·萨默斯（Larry Summers）10日在伦敦政治经济学院（LSE）举办的一场讲座中如此说道。
+
+报道称，萨默斯认为美联储当前的经济刺激规模大约是2008年经济危机之后的刺激规模的5-10倍，尽管有如此大规模的“放水”，但从市场表现来看，全球市场似乎即将迎来长期的停滞，或者说将变得“日本化”。
+
+反正他们是有吹风的，不过资本会这么老实的不追求增值嘛？
+
+*****
+
+####  KOGmk2  
+##### 2373#       发表于 2021-12-30 10:29
+
+ 本帖最后由 KOGmk2 于 2021-12-30 10:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096657&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-30 08:58</a>
+
+CDC预测未来四周死于新冠人数可能达到4.4万</blockquote>
+按目前这个进度,这估计太乐观了
+
+很多所谓的西方式治疗方案其实都有个隐含前提就是你有私人医疗随时可用~~~典型的就是小孩感冒发烧不吃药不治疗这个谬论(不吃药的前提是有私人医师每半小时检查体温加随时观察表征,二十四小时准备物理降温手段配上呼吸补偿,有几个家长有这个条件的?),说白了就一句话:没钱的病人不算人
+
+*****
+
+####  KOGmk2  
+##### 2374#       发表于 2021-12-30 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097164&amp;ptid=2039422" target="_blank">天野银次X美堂蛮 发表于 2021-12-30 09:40</a>
+
+当时还觉得他绝壁是在乱说。。。再怎么反感美国的人都会觉得米利坚怎么可能会因为这个病死这么多人，果然 ...</blockquote>
+我们笑神皇不懂传染病,神皇笑我们不懂美人希~~~这波神皇真的在大气层顶
+
+*****
+
+####  天野银次X美堂蛮  
+##### 2375#       发表于 2021-12-30 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097848&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2021-12-30 10:33</a>
+
+我们笑神皇不懂传染病,神皇笑我们不懂美人希~~~这波神皇真的在大气层顶
+
+ ...</blockquote>
+确实。。。。摊手。。。。果然还是美国人懂美国人
+
+*****
+
+####  Alexmacau8  
+##### 2376#       发表于 2021-12-30 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097743&amp;ptid=2039422" target="_blank">武男 发表于 2021-12-30 10:25</a>
+“全球市场似乎即将迎来长期停滞，或说将变得‘日本化’。”
+
+美国前财政部长拉里·萨默斯（Larry Summers ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">全球市场的停滞不代表资本逐利的停滞，你查查去年流向中国的巨量FDI就知道了，至于现在老美撕破脸玩新疆牌，实质上是在规制正在溢出的资本。这是疫情楼，就不多展开了。
+
