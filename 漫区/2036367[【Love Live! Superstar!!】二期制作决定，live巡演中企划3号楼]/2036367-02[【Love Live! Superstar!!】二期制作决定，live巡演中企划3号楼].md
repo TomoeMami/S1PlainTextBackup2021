@@ -16219,3 +16219,56 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 完整吃瓜人知道 但是不爬前面几页的人联想出什么又没人能阻止
 
+
+
+*****
+
+####  星降る森  
+##### 2866#       发表于 2021-12-30 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102027&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2021-12-30 15:35</a>
+
+意思是那个博主有大名...直接喊又不需要避讳 
+
+那个博主厨的人又不少 你这种特意挂个名 很难不联想. ...</blockquote>
+哦，这意思，其实没有特指这一位，而是3位，厨的人那还是挺少的，至少就我关注时间看，基本没看到他发其他女声优的东西
+
+*****
+
+####  lj205  
+##### 2867#       发表于 2021-12-30 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102027&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2021-12-30 15:35</a>
+
+意思是那个博主有大名...直接喊又不需要避讳 
+
+那个博主厨的人又不少 你这种特意挂个名 很难不联想. ...</blockquote>
+不是楠木灯超话主持人吗？
+
+*****
+
+####  仟音一心  
+##### 2868#       发表于 2021-12-30 15:55
+
+挂人的那个博主是楠木灯超话主持人，所以头像都那样……
+唯一闹事的傻逼都塞了，还是别聊这个了吧。
+
+*****
+
+####  星降る森  
+##### 2869#       发表于 2021-12-30 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">得小心噶企了
+
+*****
+
+####  saverok  
+##### 2870#       发表于 2021-12-30 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102304&amp;ptid=2036367" target="_blank">星降る森 发表于 2021-12-30 15:55</a>
+
+算了，转话题了，鲤鱼刚发了条以后还想去cm的推，虽然鲤鱼以前也很有名，不过感觉现在多了声优这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能玩化妆潜入了  露脸是不敢了
+
+事务所心跳骤停
+

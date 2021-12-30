@@ -11245,3 +11245,30 @@ BNOnews：Paris issues outdoor mask mandate</blockquote>
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  pushare  
+##### 2446#       发表于 2021-12-30 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54096033&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-30 06:53</a>
+NHS绝赞爆仓中</blockquote>
+更新一个新入院的
+然后有说24日起nhs england统计放假后就不统计死亡人数，等一个校正回归
+
+<img src="https://p.sda1.dev/3/009d52e6d0f2be248c0a632256ab37a6/IMG_CMP_184666236.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2447#       发表于 2021-12-30 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54102213&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-30 15:49</a>
+更新一个新入院的
+然后有说24日起nhs england统计放假后就不统计死亡人数，等一个校正回归</blockquote>
+这玩意包含了所有住院测出covid的人，比如你骨折了，入院测covid，如果中了，你也算新冠住院。
+发布这张图的推特上面有说
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
