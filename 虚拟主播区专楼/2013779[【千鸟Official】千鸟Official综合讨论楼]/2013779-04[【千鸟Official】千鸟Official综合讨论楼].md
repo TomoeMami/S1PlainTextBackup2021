@@ -3093,3 +3093,14 @@ SYL,是不是手机直播不会自动加入到动态里的直播回放啊？思�
 
 艾白今晚效果还行
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4824#       发表于 2021-12-31 00:02
+
+掉了500
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

@@ -9062,3 +9062,29 @@ SOLO大师，有指挥有枪力
 
 谷歌法务感觉不是必胜客<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  443421870  
+##### 9771#       发表于 2021-12-30 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108114&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-12-30 23:25:44</a>
+SOLO大师，有指挥有枪力
+
+可能是猩猩之下第一人(VTUBER限定）（反正我是觉得比白雪和海藻头强） ...</blockquote>应该不是吧，阿b这里雷岁也是猎杀，青野也套皮播过（顶级枪男）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  poipanchao  
+##### 9772#       发表于 2021-12-30 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108312&amp;ptid=1972669" target="_blank">443421870 发表于 2021-12-30 23:47</a>
+
+应该不是吧，阿b这里雷岁也是猎杀，青野也套皮播过（顶级枪男）
+
+  -- 来自 能手机投票的 Stage1官方 Andro ...</blockquote>
+这里是V综……还有青野那种当做kmt一样处理的，不算V的
+
