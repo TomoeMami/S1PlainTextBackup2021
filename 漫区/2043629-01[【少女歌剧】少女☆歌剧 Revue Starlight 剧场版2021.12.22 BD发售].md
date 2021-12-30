@@ -5027,3 +5027,19 @@ B站动态看见一个观影团连观影特典都整出来了
 
 小光变跑路党多少也是被华恋惯的，十二年单方面收信，安全感爆炸，tv和剧场版总共三回说跑就跑，只有最后一回被真昼追哭了才知道这一切不是理所当然的（）
 
+
+
+*****
+
+####  污陨血红  
+##### 388#       发表于 2021-12-30 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100208&amp;ptid=2043629" target="_blank">JustW_2 发表于 2021-12-30 13:14</a>
+
+小光变跑路党多少也是被华恋惯的，十二年单方面收信，安全感爆炸，tv和剧场版总共三回说跑就跑，只有最后一 ...</blockquote>
+只能说周瑜打黄盖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一个愿打一个愿挨，这俩也太双向奔赴了
+
+不过三次跑路，小光这一套操作下来，恋哥哥多少也有点魔怔了
+
+只可惜恋哥哥头发不够粉，否则即是绝杀，那个“为何要离我而去”的落泪太正统了（除了头发不够粉/红）
+

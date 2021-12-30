@@ -5190,3 +5190,31 @@ MC以前剧透整理页（月之背面）无端把福放在B5过，后面被人�
 出个新class的老福本体</blockquote>
 不如把现在的老福像学妹那样加个第二套技能，省的抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 85985#       发表于 2021-12-30 14:07
+
+仔细想了下感觉想错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按舅妈的意思，真名溶解是她奶的，因为想看背刺。那她就并不知道剧情发生了什么，只知道新年从者。那她觉得会有真名溶解和背刺是基于新年从者推测的，会背刺的肯定不是人王，那看来新年是老福了
+
+*****
+
+####  poor  
+##### 85986#       发表于 2021-12-30 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100302&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-12-30 13:21</a>
+
+然后日基有人奶姆尼耶尔
+
+这位老哥是很合适没错但里面能是谁啊。。</blockquote>
+清明啊，你看他是不是跟海盗C长得有点像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不是）
+
+*****
+
+####  poor  
+##### 85987#       发表于 2021-12-30 14:14
+
+新年人王要是不太强的话可以省抽了，我就不信他敢落地医生
+
