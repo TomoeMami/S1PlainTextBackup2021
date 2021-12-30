@@ -10682,3 +10682,47 @@ https://www.reuters.com/business/healthcare-pharmaceuticals/south-africa-detects
 这位直接被堵雪山上面了</blockquote>
 加州这几天太冷了
 
+
+
+*****
+
+####  暗铁  
+##### 2400#       发表于 2021-12-30 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54093699&amp;ptid=2039422" target="_blank">riczxc 发表于 2021-12-29 21:43</a>
+
+这个估算虽然很有趣，但这应该是个上界，因为每个人所认识的150人有很大的重复。 ...</blockquote>
+跟重复无关的，就一个150人的小镇，每个人都互相认识，也是死5个
+
+
+
+*****
+
+####  中二骚年  
+##### 2401#       发表于 2021-12-30 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54099181&amp;ptid=2039422" target="_blank">三菱自工 发表于 2021-12-30 11:57</a>
+
+错，核心思想还是老掉牙的中药丸。
+
+—— 来自 vivo V2031A, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+我说的我们就是中啊，至于它们代表的病毒或者别的什么我就希望最好早点死光别再祸害人了
+
+*****
+
+####  惊奇记事簿  
+##### 2402#       发表于 2021-12-30 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098179&amp;ptid=2039422" target="_blank">atomhappy 发表于 2021-12-30 10:55</a>
+还一种更阴谋论的可能，就是先测出来上报了，会被污名化，所以发达国家测出来了也会先压着等冷头青上报。 ...</blockquote>
+欧美这么玩下去下次就会说某海外航班检测出新变种了
+
+*****
+
+####  惊奇记事簿  
+##### 2403#       发表于 2021-12-30 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54097676&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-30 10:18</a>
+如果不是南非先爆发的，那就得解释在这种传染力下，为什么没有任何一个机构能测的出来新变种 ...</blockquote>
+不，按照现在的爆发曲线，如果是在南非变种的南非的曲线已经很早爆了，现在的曲线更像压着的那种
+

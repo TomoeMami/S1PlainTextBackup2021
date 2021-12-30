@@ -5004,3 +5004,17 @@ B站动态看见一个观影团连观影特典都整出来了
 
 还真是<img src="https://p.sda1.dev/3/3aced9376d27a25393320287ba747ba6/IMG_CMP_59940508.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oyss  
+##### 386#       发表于 2021-12-30 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081879&amp;ptid=2043629" target="_blank">tide777 发表于 2021-12-28 23:24</a>
+
+感觉像看了2小时mv。
+
+看了半小时感觉实在意识流看不懂，过来翻楼看解析，看完以为懂了接着看，但感觉这演 ...</blockquote>
+没必要认真看瞎分析,这片就是看个气氛
+
