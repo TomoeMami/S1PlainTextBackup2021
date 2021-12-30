@@ -16142,3 +16142,39 @@ ANN那广播几个女人混在一起说话好可怕，根本分不出来
 
 最后一句警句：厨偶像不要厨到偶像粉丝那里去，管好自己不要给自己推丢人是第一位的。自认为理客中的人就更不要如此，有点自己的分辨能力，不要人云亦云。
 
+
+
+*****
+
+####  银色天空  
+##### 2859#       发表于 2021-12-30 14:28
+
+啥玩意儿快给我看吐了，被口球了还不能当面骂<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 2860#       发表于 2021-12-30 14:30
+
+讲真前几年我还看日本地下场的时候一般也就吵吵家虎，默认都是各玩各的，后来都直接禁自制棒了。糟粕逆输入属实弱智。
+
+*****
+
+####  银色天空  
+##### 2861#       发表于 2021-12-30 14:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">该说是不是只有q群这种能产生高度集体认同的地方才有条件滋生出这种蛆虫，把5ch的yy臭宅味儿和无根恶意都浓缩在了一起，甚至能让它们生出一丝自己能够站在阳光底下的错觉，跑出来这样恶心人。
+我的评价是不要再躺在床上玩手机了，速速去外面找个班上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 2862#       发表于 2021-12-30 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100695&amp;ptid=2036367" target="_blank">星降る森 发表于 2021-12-30 13:52</a>
+
+国内氛围有点问题，喜欢搞事的厄介又是喜欢混前排的人，所以会出现明明大部分人变好色（绿色），前排几个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你也够了..微博上大名也有 别楠木灯厨 楠木粉的叫还以为楠木灯跟这事有什么关系..
+
+那个博主内容就想替某人出头 这楼里也正主也说是到最后是全输结局
+

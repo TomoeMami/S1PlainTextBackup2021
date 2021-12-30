@@ -11041,3 +11041,48 @@ o病毒是不是潜伏期更短而且因为呼吸道更容易被攻击所以检�
 　　需要注意的是，由于肛拭子采样不够方便，加上很多人对它接受度不高，因此采用肛拭子采样只是对部分人进行的“针对性筛查”，并非所有人都需要采用，更不是要全国推广。鼻咽拭子检测仍然是目前最为普遍的检测方式。　　</blockquote>
 要想提高准确度，那就肛拭子呗。
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 2428#       发表于 2021-12-30 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101016&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-30 14:16</a>
+
+咽拭子容易假阴性是因为病程发展还没到咽，测不到。
+
+要想提高准确度，那就肛拭子呗。 ...</blockquote>
+之前楼里好像说O病毒攻击呼吸道高于攻击肺部，从检测角度是不是更容易被检测到了
+
+*****
+
+####  Alexmacau8  
+##### 2429#       发表于 2021-12-30 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54100710&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-30 13:54</a>
+快筛测的是蛋白质，PCR测的是核酸
+
+原理上就是两回事，快筛失效不代表PCR失效。 ...</blockquote>
+国内pcr是全基因测序的，确实不存在因为特异位点缺失而导致检测不出来的问题。 快筛包这玩意，测抗体的，国内应该用处不多。
+
+*****
+
+####  jxwats1  
+##### 2430#       发表于 2021-12-30 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101066&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 14:21</a>
+之前楼里好像说O病毒攻击呼吸道高于攻击肺部，从检测角度是不是更容易被检测到了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Alexmacau8  
+##### 2431#       发表于 2021-12-30 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101066&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-30 14:21</a>
+之前楼里好像说O病毒攻击呼吸道高于攻击肺部，从检测角度是不是更容易被检测到了 ...</blockquote>
+日本那边有预印本，O株在人类上呼吸道气液界面的感染效率特别高
+
