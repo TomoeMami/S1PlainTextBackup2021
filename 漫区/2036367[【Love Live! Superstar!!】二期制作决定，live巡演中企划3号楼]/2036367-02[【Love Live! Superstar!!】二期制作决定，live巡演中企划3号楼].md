@@ -15629,3 +15629,132 @@ ANN补完，鱼这个起哄的怪叫看来是改不掉了<img src="https://stati
 谁评分的你找谁去 谁是“你们”？</blockquote>
 早切割不就行了嘛，大家都是粪海狂蛆，一起来其乐融融的骂西西吧，毕竟我一开始就说了这件事起因就是他过分了。要是觉得吃亏了可以连车西一起骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 2811#       发表于 2021-12-30 11:22
+
+拉吧都没你们吵的火热，可能这就是s1吧。
+
+一下子一年都要过去了，遥想一年前还在吵，等会，一年前吵的东西现在还在吵，什么玩意啊。
+
+*****
+
+####  zylwz  
+##### 2812#       发表于 2021-12-30 11:24
+
+因为黑子只能拿一年前的剩饭出来继续嚼了啊
+
+*****
+
+####  稀勢のささ  
+##### 2813#       发表于 2021-12-30 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也别说什么只是黑长相唱功了    阴沟小群里对各路偶像团体不都是张口曹丕闭口野鸡
+
+*****
+
+####  a92063256  
+##### 2814#       发表于 2021-12-30 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098369&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 11:09</a>
+
+你怎么那么喜欢扩大化，因为有人说了摩天轮，所以所有黑屁鲤鱼的人都在传播摩天轮？你们那个什么黑鲤鱼分 ...</blockquote>
+就这么喜欢偷换概念？我们说车西黑屁，你说黑屁无罪，你群里也总黑屁，那么在正常人的角度你的黑屁和车西的黑屁不就是一个意思吗？吵这么多楼不就是你一直在用你定义的黑唱功跳舞的黑屁来混淆车西的造谣的黑屁满地打滚
+
+*****
+
+####  chenflyyy  
+##### 2815#       发表于 2021-12-30 11:25
+
+别的不说，粉头佬佬佬是真的坏文明，所以我才不想加群的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 2816#       发表于 2021-12-30 11:34
+
+加群还是有好处的，就是能避免有人跑进来泼粪拉屎的时候有地方能避避味儿<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Norkey1  
+##### 2817#       发表于 2021-12-30 11:35
+
+你们吵歪了吧，基于道德观评价一件事，一百个人就是一百个说辞，本身就没有意义。反倒是未知事情全貌就直接锐评本楼多少沾点
+这店主是真惨，正着被架着烤，反着也被架着烤，现在还要当黑屁争论的导火线，替他不值好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  x分裂者  
+##### 2818#       发表于 2021-12-30 11:35
+
+绝了，这事居然还没完。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">师爷可真是装糊涂的高手，星星新人多，十几岁的初高中生一抓一大把，本来人家看完高高兴兴的去买东西，然后发现卖家是个黑子，被膈应到了想退款很正常，不给退就打差评也不算什么特别出格的事，至少人家维护小偶像也是师出有名。不会真的有人以为一个粉丝群群主能号召网暴差评吧，又不是人人都是s1老巨魔，你指望十几岁的小年轻跟你和和气气呢。
+
+反倒是那边反手上来就拉偏架打大字报，反对就是搞粉圈。还好意思说别人搞粉圈搞扩大化，谁愿意关注你们群里那点破事。本来看到计分还说城会玩，回头一看发现是自己要求监督的，真有人监督反倒成威胁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，搞这么一出你猜以后店铺名声是变好还是变坏？
+
+*****
+
+####  shamanda  
+##### 2819#       发表于 2021-12-30 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098685&amp;ptid=2036367" target="_blank">a92063256 发表于 2021-12-30 11:25</a>
+就这么喜欢偷换概念？我们说车西黑屁，你说黑屁无罪，你群里也总黑屁，那么在正常人的角度你的黑屁和车西 ...</blockquote>
+那tm的是因为你们截罪证的人截的一条黑料九条唱跳好不好？你们要追着他说摩天轮打单截那一条不就行了？截那么多条当罪状意思不就是唱跳外貌也不让黑，那不就饭圈味溢出了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 2820#       发表于 2021-12-30 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098369&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 11:09</a>
+
+你怎么那么喜欢扩大化，因为有人说了摩天轮，所以所有黑屁鲤鱼的人都在传播摩天轮？你们那个什么黑鲤鱼分 ...</blockquote>
+由头到尾这里车的都是车西，车的具体是他的哪些话你我都心知肚明，装什么傻呢
+
+什么唱跳不佳颜值如何日语多烂谁tm care啊，这里开过这些东西吗，这点东西也叫黑屁，到底谁更纯良我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  D麦林  
+##### 2821#       发表于 2021-12-30 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098584&amp;ptid=2036367" target="_blank">shamanda 发表于 2021-12-30 11:20</a>
+
+早切割不就行了嘛，大家都是粪海狂蛆，一起来其乐融融的骂西西吧，毕竟我一开始就说了这件事起因就是他过 ...</blockquote>
+你寄吧谁啊谁跟你都是了
+
+这话题都该过去了你非得冲进来打滚找喷 别tm说得好像谁没事干不喷点什么不舒服一样的 我是来看偶像的又不是来看粉丝的 以为什么人都跟你们一样啊
+
+*****
+
+####  saya1892  
+##### 2822#       发表于 2021-12-30 11:39
+
+<blockquote>0869 名無しで叶える物語(茸) 2021/12/29 23:26:56
+
+りーちゃんはありしゃに並ぶでっかい幼女感あるから可愛がられるんだろうな
+
+ID:LVvKl9Bu</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/30/113724f01wks3owxux30k2.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (16.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-30 11:37 上传
+
+ANN那广播几个女人混在一起说话好可怕，根本分不出来<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+虽然平时鱼看着像大号幼女，但伊达在说自己和佩酱都很紧张的时候鱼不但放空自我（「就在standby的时候紧张」），还在大家练声的时候吃吃吃，大家都说鲤鱼很自由，「毫不背叛期待」「有大将之风」
+
+这方面还挺像唯的
+

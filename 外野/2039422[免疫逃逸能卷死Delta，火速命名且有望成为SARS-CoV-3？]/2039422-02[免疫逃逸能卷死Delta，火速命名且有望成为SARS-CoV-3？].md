@@ -10486,3 +10486,16 @@ CDC预测未来四周死于新冠人数可能达到4.4万</blockquote>
 
 坐火箭喽
 
+
+
+*****
+
+####  中二骚年  
+##### 2383#       发表于 2021-12-30 11:38
+
+ 本帖最后由 中二骚年 于 2021-12-30 11:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54098050&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-30 10:47</a>
+
+子陵又在那阴阳怪气国内疫苗没用了，我奇怪就算是防重症到现在国内也没死过人，他哪来的信心鄙视国内疫苗 ...</blockquote>
+跟楼里某位一样，从开始的MRNA无敌论转进到畜群免疫魔怔人了核心思想就是我们药丸
+
