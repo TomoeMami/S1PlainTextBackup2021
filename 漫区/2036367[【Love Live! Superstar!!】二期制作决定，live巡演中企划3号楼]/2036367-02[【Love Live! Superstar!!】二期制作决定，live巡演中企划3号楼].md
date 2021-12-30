@@ -16665,3 +16665,40 @@ pay真的是行走的放送事故<img src="https://static.saraba1st.com/image/sm
 
 还没聊够就结束了
 
+
+
+*****
+
+####  D麦林  
+##### 2918#       发表于 2021-12-30 21:01
+
+我猜菜宝是不是在录音现场和星的其他四人也互动了不少 和那四人全熟络起来了
+
+*****
+
+####  zylwz  
+##### 2919#       发表于 2021-12-30 21:10
+
+实质星团第六人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+连寄语都放在了一起
+
+*****
+
+####  月夜凝雪  
+##### 2920#       发表于 2021-12-30 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54106127&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-30 20:44</a>
+
+菜宝我推可堇（但是可香可香了</blockquote>
+见人讲人话见鬼讲鬼话
+
+*****
+
+####  damian-wade  
+##### 2921#       发表于 2021-12-30 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54106347&amp;ptid=2036367" target="_blank">D麦林 发表于 2021-12-30 21:01</a>
+我猜菜宝是不是在录音现场和星的其他四人也互动了不少 和那四人全熟络起来了 ...</blockquote>
+虽然菜宝的工作是帮助鲤鱼，但既然都在现场，肯定也会和其他人交流啊，她这么个DD会浪费机会吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
