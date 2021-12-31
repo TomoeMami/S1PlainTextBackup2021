@@ -13257,3 +13257,17 @@ Robert Koch Institute report released today states that 95.58% of the #Omicron c
 
 有人发给子陵在拉黑下面的mrna吹么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  C.W.Nimitz  
+##### 2605#       发表于 2021-12-31 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112917&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-30 20:20</a>
+
+但同样是院感 死亡率46%的B.1.616直接被摁死了
+
+证明并非完全无关 至少死亡率高到一定程度了是会造成影响 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">非典传染性和隐蔽性比新冠还是差太多
+

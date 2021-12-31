@@ -5564,3 +5564,46 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 还多个盘子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歪个没满宝的常驻不就解决了
 
+
+
+*****
+
+####  千叶铁矢  
+##### 86020#       发表于 2021-12-31 16:04
+
+今年福袋形式公布了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我感觉往年好像提前好几天就公布了
+
+*****
+
+####  黑上シグマ  
+##### 86021#       发表于 2021-12-31 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115600&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-12-31 16:04</a>
+
+今年福袋形式公布了吗我感觉往年好像提前好几天就公布了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你记错了
+
+*****
+
+####  zakki  
+##### 86022#       发表于 2021-12-31 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115654&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-31 16:08</a>
+
+你记错了</blockquote>
+去年不是，但前几年确实是提前几天公布
+
+*****
+
+####  黑上シグマ  
+##### 86023#       发表于 2021-12-31 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不这样，“玩家能预想到的事，舍弃”，今年没有福袋
+
+*****
+
+####  qixinno2  
+##### 86024#       发表于 2021-12-31 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NB他整个免费石也能买福袋 不然跟我这白嫖毫无关系
+
