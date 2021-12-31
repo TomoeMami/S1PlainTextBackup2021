@@ -5530,3 +5530,15 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 等明天看萌新呼符豹跳</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">非萌已经好久没出过货了  跳不动了
 
+
+
+*****
+
+####  qixinno2  
+##### 86017#       发表于 2021-12-31 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54114166&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 14:04</a>
+
+非萌已经好久没出过货了  跳不动了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才会出货啊 明显你的欧气都在积攒准备明天来波大的15呼符来三个五宝
+

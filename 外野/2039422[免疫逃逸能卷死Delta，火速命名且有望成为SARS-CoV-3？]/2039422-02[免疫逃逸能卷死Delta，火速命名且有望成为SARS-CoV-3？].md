@@ -13200,3 +13200,49 @@ HIV比新冠妖孽，我记得看到文章说HIV在体内变异速度极快，�
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Dreki  
+##### 2600#       发表于 2021-12-31 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113792&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 13:32</a>
+
+有些问题确实是高中生物的常识性问题。。</blockquote>
+首先高中生物书一堆错，其次知识只限于高中生物实在没什么可辨的，看都不想看
+
+*****
+
+####  smy20011  
+##### 2601#       发表于 2021-12-31 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115000&amp;ptid=2039422" target="_blank">Dreki 发表于 2021-12-31 15:09</a>
+首先高中生物书一堆错，其次知识只限于高中生物实在没什么可辨的，看都不想看 ...</blockquote>
+那能讲讲高中现代进化论与现实中的进化论方向有什么异同么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Dreki  
+##### 2602#       发表于 2021-12-31 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115052&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 15:14</a>
+
+那能讲讲高中现代进化论与现实中的进化论方向有什么异同么？
+
+— from Google Pixel 3 XL, Android 12 of ...</blockquote>
+没有什么可讲异同的，因为我不觉得高中有讲过什么现代进化论，不都是上世纪好早提出的概念么
+
+我基本只看了你最前面的几贴，我看你说什么“人教版高中高二生物必修2，里面的进化定义就是种群基因型的变化，不存在两条进化链，始终就是原版-A-D-O”，说实话我根本我没看出来你这句话和你引用的高中生物课本有什么联系
+
+*****
+
+####  lvcha  
+##### 2603#       发表于 2021-12-31 15:23
+
+还守得住吗
+
+好可怕。
+
