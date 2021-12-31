@@ -9398,3 +9398,23 @@ pomu开的那个虹人发痴台氛围真好<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一般出道都要等一年以上才能3D化，新3D这种给几个上位势当甜头已经很厉害了
 
+
+
+*****
+
+####  hulaoda007  
+##### 9796#       发表于 2021-12-31 18:35
+
+ 本帖最后由 hulaoda007 于 2021-12-31 18:38 编辑 
+
+在想为啥搞那么早，感觉是不想撞车红白。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+虽然觉得是播片，但为啥西西还是会跑调。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 9797#       发表于 2021-12-31 18:40
+
+装也要装得像一点啊，修了音不就一耳假了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6057,3 +6057,94 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 是太瑟了吗 可伊吹也不瑟啊</blockquote>
 伊吹还是很色的  灵2巨乳童贞杀毛衣人外紫皮醉酒大姐姐  我图都收了好多了  
 
+
+
+*****
+
+####  KOBI  
+##### 86075#       发表于 2021-12-31 18:23
+
+ 本帖最后由 KOBI 于 2021-12-31 18:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就卖了波教授情怀，然后拉了波紫菀隐藏BOSS的旗，顺手吹了波彷徨海逼格
+
+现在这样看来紫菀背后可能是奥西里斯之砂。当然型月嘛，P事都没发生可能性非常高。。。
+
+*****
+
+####  zakki  
+##### 86076#       发表于 2021-12-31 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117266&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-31 18:13</a>
+说起来为什么没有人给伊吹道歉啊，一堆人脑补她要和女娲缝要和妲己缝，还义愤填膺地说什么去区区小蛇精竟敢 ...</blockquote>
+我一直不懂女娲是老祖宗是个特么什么时候的说法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真女5就看到有人拿这个理由喷，这次又看到了，祖宗找炎黄啊，你咋不找盘古认祖宗
+
+*****
+
+####  黑上シグマ  
+##### 86077#       发表于 2021-12-31 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117340&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 18:19</a>
+
+是太瑟了吗 可伊吹也不瑟啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">放屁，伊吹那么棒的，你懂个屁
+
+*****
+
+####  zakki  
+##### 86078#       发表于 2021-12-31 18:28
+
+老福这波没溶解，看来新年是伪阶人王了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86079#       发表于 2021-12-31 18:32
+
+这个新衣服太正式了，不适应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 86080#       发表于 2021-12-31 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117453&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 18:28</a>
+
+老福这波没溶解，看来新年是伪阶人王了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是sion溶了
+
+*****
+
+####  miro112233  
+##### 86081#       发表于 2021-12-31 18:40
+
+其实就是暗之高扬斯卡娅<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 86082#       发表于 2021-12-31 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117453&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 18:28</a>
+
+老福这波没溶解，看来新年是伪阶人王了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我奶一口 新年是外星人
+
+*****
+
+####  zakki  
+##### 86083#       发表于 2021-12-31 18:45
+
+话说这波家都炸了，以后怎么开活动剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干脆2022年没有新活动，只有复刻和主线
+
+*****
+
+####  KOBI  
+##### 86084#       发表于 2021-12-31 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不过目前看来晴明大战暗狐还是很有可能的
+
+写手们给力点把质量推到通古斯的十倍八倍的啊，我想看傻逼们爆炸
+
