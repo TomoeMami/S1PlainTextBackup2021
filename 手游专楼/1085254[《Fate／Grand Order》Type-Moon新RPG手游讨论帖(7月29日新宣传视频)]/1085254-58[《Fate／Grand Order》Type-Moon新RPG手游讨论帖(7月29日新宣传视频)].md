@@ -5657,3 +5657,91 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 新的换人礼装出现了
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 86030#       发表于 2021-12-31 17:08
+
+大的要来了
+
+*****
+
+####  sosgame67  
+##### 86031#       发表于 2021-12-31 17:09
+
+尼禄教授怎么都冒出来了..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86032#       发表于 2021-12-31 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这新衣服太帅了 
+
+*****
+
+####  黑上シグマ  
+##### 86033#       发表于 2021-12-31 17:15
+
+妈耶，尼禄卡欧斯都出来了
+
+*****
+
+####  alucardcz  
+##### 86034#       发表于 2021-12-31 17:15
+
+草。。打完了 就这？
+
+跟a狐毛的关系都没有。。。有个猫的真名溶解。。。。。。
+
+这我就看不懂了。。a狐真就这样处理掉了。？ 做成限时活动的意义何在？
+
+*****
+
+####  zore  
+##### 86035#       发表于 2021-12-31 17:16
+
+衣服好看
+
+*****
+
+####  longrider  
+##### 86036#       发表于 2021-12-31 17:16
+
+所以元旦活动是打大总统所长？紫苑要落地了？
+
+*****
+
+####  alucardcz  
+##### 86037#       发表于 2021-12-31 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116574&amp;ptid=1085254" target="_blank">longrider 发表于 2021-12-31 17:16</a>
+
+所以元旦活动是打大总统所长？紫苑要落地了？</blockquote>
+啥 我觉得明年元旦能不能打大总统还是问题
+
+*****
+
+####  黑上シグマ  
+##### 86038#       发表于 2021-12-31 17:19
+
+看完，就这？
+
+就卖下教授情怀就没了？
+
+*****
+
+####  zakki  
+##### 86039#       发表于 2021-12-31 17:21
+
+这就没了？大总统偷家，彷徨海被炸然后就没了？？先不提老福跳反，怎么连小芬奇都没便当啊。。
+
+*****
+
+####  AbigailWilliams  
+##### 86040#       发表于 2021-12-31 17:21
+
+有个疑惑，菌类在这次剧情占比会有多少？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

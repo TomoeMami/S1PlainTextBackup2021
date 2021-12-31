@@ -9756,3 +9756,50 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 钓出来了么, 这不是.</blockquote>
 钓啥？就像你说的，我一个tgfcer会在乎你们说啥么？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  caupollen  
+##### 880#       发表于 2021-12-31 17:06
+
+ 本帖最后由 caupollen 于 2021-12-31 17:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54114876&amp;ptid=2043948" target="_blank">镰刀机甲 发表于 2021-12-31 14:57</a>
+
+翻完了，结论还是常备工具，不过全区跑的老早也就备上了，看看也没啥新东西。
+
+虽然想说你们两帮人只是拿STE ...</blockquote>
+这游戏是疫情刚开始开发的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在看只能感觉喜感
+
+<img src="https://img.saraba1st.com/forum/202112/31/170810jirqzfifiu99i8ai.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 17:08 上传
+
+看了下还真是 [https://papaonn.blogspot.com/](https://papaonn.blogspot.com/) 大马人开发的
+
+*****
+
+####  ‮agur4kI  
+##### 881#       发表于 2021-12-31 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116239&amp;ptid=2043948" target="_blank"> LHO 发表于 2021-12-31 16:53</a> 引用:‮agur4kI 发表于 2021-12-31 11:22 还搁这里装傻，你的评价不就是：搞的好，但是你有张良计我有过墙梯 我得提醒你，轮子也是参与到过墙梯计 ... 我x, 你说的太劲爆, 比上面那个中国渗透一切更网文了, 轮子这么大能耐能渗透国防兵工, 不过背后如果是CIA也不能说完全不可能. 不过你说这个我搜了半天没有关键字啊, 能否提示一两样?  你后面说的逻辑也不对啊, 为什么我是 </blockquote>
+自由/门 没用过还没听过？来自: iPhone客户端
+
+*****
+
+####  镰刀机甲  
+##### 882#       发表于 2021-12-31 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116420&amp;ptid=2043948" target="_blank">caupollen 发表于 2021-12-31 17:06</a>
+
+这游戏是疫情刚开始开发的吗现在看只能感觉喜感
+
+看了下还真是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚看的时候还觉得是某种平行世界，太乐了。
+
+探索队列在被国产页游各种污染后突然蹦出这么个玩意一度让我觉得STEAM是什么后现代乐园。
+
