@@ -7787,3 +7787,14 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 哈哈哈哈哈哈，我中了，我终于中了。3年了，3年来我活生生把水骑呆从1宝抽到4宝，今年，大象终于不和水骑呆同个池子了，顶着6个里有3个已经满宝的压力，我终于在福袋里抽到大象了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">卡池全图鉴达成<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86267#       发表于 2022-1-1 01:15
+
+福袋追BB失败，好歹阿比是NEW勉强不亏吧
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

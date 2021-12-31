@@ -3613,3 +3613,109 @@ syl 楼友们新年快乐
 
 她怎么懂这么多标签啊
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4877#       发表于 2022-1-1 01:08
+
+ 本帖最后由 灰色的狐狸 于 2022-1-1 01:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">弥勒佛
+
+syl 白 洁 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 4878#       发表于 2022-1-1 01:09
+
+文静：“不要小瞧相亲啊！”
+
+*****
+
+####  rgauss  
+##### 4879#       发表于 2022-1-1 01:11
+
+装 就继续装<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 4880#       发表于 2022-1-1 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超管来了哈哈哈哈
+
+*****
+
+####  rgauss  
+##### 4881#       发表于 2022-1-1 01:18
+
+我快不认识虎这个字了
+
+*****
+
+####  T型钉宫病毒  
+##### 4882#       发表于 2022-1-1 01:18
+
+<blockquote>2022年1月1日 队长艾瑞思生日，文静打了30SC，望周知！</blockquote>
+真不差你那30块SC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/01/011507qejzu5rvuruztkpe.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220101011242.png</strong> (15.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 01:15 上传
+
+*****
+
+####  ba娜娜  
+##### 4883#       发表于 2022-1-1 01:19
+
+草，为啥sc突然开始讲白虎啊（刚才跑去看别的直播了）
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rgauss  
+##### 4884#       发表于 2022-1-1 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123496&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-1 01:19</a>
+
+草，为啥sc突然开始讲白虎啊（刚才跑去看别的直播了）
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个nt红sc说阑尾手术剃 毛
+
+*****
+
+####  T型钉宫病毒  
+##### 4885#       发表于 2022-1-1 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123496&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-1 01:19</a>
+
+草，为啥sc突然开始讲白虎啊（刚才跑去看别的直播了）
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Ne ...</blockquote>
+见4871楼的SC截图，tm是脱毛的意思
+
+*****
+
+####  灰色的狐狸  
+##### 4886#       发表于 2022-1-1 01:22
+
+虎！虎！虎！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ba娜娜  
+##### 4887#       发表于 2022-1-1 01:22
+
+草草草，该去补录播了，好想知道文静怎么回应的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
