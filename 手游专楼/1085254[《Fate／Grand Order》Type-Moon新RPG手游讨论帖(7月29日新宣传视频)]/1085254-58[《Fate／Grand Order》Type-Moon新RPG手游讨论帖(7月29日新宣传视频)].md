@@ -7561,3 +7561,180 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 笑死 反正是对我来说毫无用处的东西 常年石不过三根本无法触发</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁千里眼肯定要赞扬yls了  存起来有头了 不会翻了
 
+
+
+*****
+
+####  areklose  
+##### 86243#       发表于 2021-12-31 23:43
+
+我发现了只要你抽出了狐狸。无论是不是保底抽出来。之后就算抽330都没必得
+
+*****
+
+####  qixinno2  
+##### 86244#       发表于 2021-12-31 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122121&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 23:42</a>
+
+隔壁千里眼肯定要赞扬yls了  存起来有头了 不会翻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁我都当非正常人看的
+
+*****
+
+####  alucardcz  
+##### 86245#       发表于 2021-12-31 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122137&amp;ptid=1085254" target="_blank">areklose 发表于 2021-12-31 23:43</a>
+
+我发现了只要你抽出了狐狸。无论是不是保底抽出来。之后就算抽330都没必得 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来就是啊 写的很清楚
+
+*****
+
+####  rooarr  
+##### 86246#       发表于 2021-12-31 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122137&amp;ptid=1085254" target="_blank">areklose 发表于 2021-12-31 23:43</a>
+我发现了只要你抽出了狐狸。无论是不是保底抽出来。之后就算抽330都没必得 ...</blockquote>
+大保底就这个意思啊，触发一次就失效的
+
+*****
+
+####  areklose  
+##### 86247#       发表于 2021-12-31 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122179&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-31 23:46</a>
+
+大保底就这个意思啊，触发一次就失效的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我意思是我以为触发了会重置，然后330抽保底。但好像是第二宝不保底会可能超过330抽
+
+*****
+
+####  zore  
+##### 86248#       发表于 2021-12-31 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122209&amp;ptid=1085254" target="_blank">areklose 发表于 2021-12-31 23:48</a>
+
+我意思是我以为触发了会重置，然后330抽保底。但好像是第二宝不保底会可能超过330抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做慈善呢 一次就无了
+
+*****
+
+####  areklose  
+##### 86249#       发表于 2021-12-31 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122148&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 23:44</a>
+
+本来就是啊 写的很清楚</blockquote>
+我意思是没有重置，是保底直接消失。第二宝即使再抽330抽也没保底。我一开始以为是重置，怎么知道是直接消失。
+
+*****
+
+####  黑上シグマ  
+##### 86250#       发表于 2021-12-31 23:50
+
+天草4宝…………期间出了俩戈尔贡，对心脏极其不好
+
+
+
+*****
+
+####  exiaexa  
+##### 86251#       发表于 2021-12-31 23:51
+
+隔壁那些个存石头的迟早把自己玩死，最好的办法就是努力搬砖然后用蓝色修改器
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86252#       发表于 2021-12-31 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以当初把BGO保底搞没了的公平斗士竟然没被人打死真的太可惜了
+
+*****
+
+####  alucardcz  
+##### 86253#       发表于 2021-12-31 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122223&amp;ptid=1085254" target="_blank">areklose 发表于 2021-12-31 23:49</a>
+
+我意思是没有重置，是保底直接消失。第二宝即使再抽330抽也没保底。我一开始以为是重置，怎么知道是直接消 ...</blockquote>
+没错啊 是这样的 他下面写的很清楚
+
+*****
+
+####  KOBI  
+##### 86254#       发表于 2021-12-31 23:56
+
+ 本帖最后由 KOBI 于 2022-1-1 00:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">暗狐1技能其实还行吧。。。但2和3技就属于那种为了特色把强度丢一边去的
+
+都2022年了30红放+30攻击很过分么还非得加兽科限定
+
+*****
+
+####  qixinno2  
+##### 86255#       发表于 2021-12-31 23:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说外星人这职介到底为什么要设计的都这么菜 一个赛着一个菜
+
+*****
+
+####  rooarr  
+##### 86256#       发表于 2021-12-31 23:58
+
+外星人，强度重要吗，不重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 86257#       发表于 2022-1-1 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122329&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-31 23:56</a>
+
+话说外星人这职介到底为什么要设计的都这么菜 一个赛着一个菜</blockquote>
+因为狂阶是唯一神亲爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你敢克制狂阶？
+
+*****
+
+####  exiaexa  
+##### 86258#       发表于 2022-1-1 00:01
+
+外星人除非把倍率改成1.2甚至1.3，不然只配玩杂技
+
+而且因为只克制自己，考虑到普及率问题根本不可能当90+的关底怪，天生就是蹲仓库的料
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86259#       发表于 2022-1-1 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122445&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-1-1 00:01</a>
+
+因为狂阶是唯一神亲爹你敢克制狂阶？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">原来如此
+
+*****
+
+####  当光停止  
+##### 86260#       发表于 2022-1-1 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122445&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-1-1 00:01</a>
+
+因为狂阶是唯一神亲爹你敢克制狂阶？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更恐怖的是外星人还可克制菌皇亲爷爷。
+
+*****
+
+####  里村紅葉  
+##### 86261#       发表于 2022-1-1 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122505&amp;ptid=1085254" target="_blank">当光停止 发表于 2022-1-1 00:03</a>
+
+更恐怖的是外星人还可克制菌皇亲爷爷。</blockquote>
+罪加一等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

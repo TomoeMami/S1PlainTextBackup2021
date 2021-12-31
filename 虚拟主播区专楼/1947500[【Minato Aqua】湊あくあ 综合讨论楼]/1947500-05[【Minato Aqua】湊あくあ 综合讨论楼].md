@@ -16442,3 +16442,26 @@ https://news.yahoo.co.jp/articles/f495c92040dde2b9ec91c5811e9d1ce4406a29e4
 
 不知不觉三年了嗷，说实话我当初以为热情最多持续半年到头了。虽说现在不如以前有激情，不过光靠余火也能烧很久的样子，提前祝大家新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 7348#       发表于 2021-12-31 23:46
+
+反复提自己越是被跳脸越是会摆烂，这算威胁还是训粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+过去一年的反省是自己受到直播过程的影响太大、陷在里面（应该是指apex红牛和各种被炎），并没有直播频率太低，不播游戏挂羊头卖狗肉。
+
+新年目标是要活出自我，自我革命，寻求挑战（应该指各种传统偶像/二次元偶像工作）。
+
+神tm余火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灰烬夸宝在holo村同接不及年前一半，自己的同接掉落3k之时，自身对于火（同接）的渴求到了无法抑制的地步，于是接连斩杀旧王，抢夺余火（观众），最后战胜某位薪王化身，传火给新生holo村，自己退隐下去做偶像的故事 
+
+*****
+
+####  OldGlory  
+##### 7349#       发表于 2021-12-31 23:53
+
+火已渐熄,然位不见王影
+夸夸该站出来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -3392,3 +3392,86 @@ syl 文静什么压力怪
 文静 铁公鸡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">我的舰长钱可以退给我 然后每次都打一块钱的礼物
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4850#       发表于 2021-12-31 23:46
+
+没米了，忍到明天再续拿个舰长礼物<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小憨1  
+##### 4851#       发表于 2021-12-31 23:49
+
+我29上的，幸亏礼物是按照季度发的
+
+*****
+
+####  伞沢直美  
+##### 4852#       发表于 2021-12-31 23:52
+
+钓鱼是吧，密麻麻后面还有2次是吧
+
+*****
+
+####  rgauss  
+##### 4853#       发表于 2021-12-31 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是真的不敢发 文静直播间绝对有举报脚本
+
+*****
+
+####  夜潇箫  
+##### 4854#       发表于 2021-12-31 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">文静这个绿茶味，真想把她绑起来吴涛鸿儒
+
+*****
+
+####  伞沢直美  
+##### 4855#       发表于 2021-12-31 23:55
+
+吱吱恰香蕉是吧
+
+吱蕉伴舔牙了这下
+
+*****
+
+####  IDIDIDID  
+##### 4856#       发表于 2022-1-1 00:01
+
+482了happy
+
+*****
+
+####  rgauss  
+##### 4857#       发表于 2022-1-1 00:01
+
+鸟楼的大家，元旦快乐
+
+*****
+
+####  T型钉宫病毒  
+##### 4858#       发表于 2022-1-1 00:01
+
+新年快乐！
+
+*****
+
+####  小憨1  
+##### 4859#       发表于 2022-1-1 00:02
+
+元旦快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Quark  
+##### 4860#       发表于 2022-1-1 00:02
+
+掉大舰咯
+
+syl 楼友们新年快乐
+

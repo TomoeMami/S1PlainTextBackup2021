@@ -13395,3 +13395,21 @@ Top 5 states in positivity rates</blockquote>
 
 又到周末了，能见到拐点
 
+
+
+*****
+
+####  yaomingkangde  
+##### 2615#       发表于 2021-12-31 23:45
+
+ 本帖最后由 yaomingkangde 于 2021-12-31 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120980&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-31 22:41</a>
+
+早期的都是提取的啊……血清疗法了解一下。至于量产，现在上市的几款单抗都是拿的fda紧急授权，不少今年 ...</blockquote>
+哥，不了解的领域还是少扯了
+
+中和抗体 生产（即使是临床试验用）也靠的是体外细胞培养表达蛋白，不是你想象中的血清疗法
+
+再生元官网有个抗体生产通用工艺的动画，做的挺好的，简单易懂，除了是英文
+[Regeneron: Leaders in Industrial Operations and Product Supply](https://www.regeneron.com/about/industrial-operations)
+

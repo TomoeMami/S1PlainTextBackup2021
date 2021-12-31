@@ -2439,3 +2439,72 @@ FH8evOKaQAMEsv3.jpg
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ads147147  
+##### 3278#       发表于 2021-12-31 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121995&amp;ptid=2036367" target="_blank">TRIScRE 发表于 2021-12-31 23:36</a>
+
+1</blockquote>
+这图一看，每个团都有高出来的那个高峰www
+
+话说萌p居然那么高么。
+
+*****
+
+####  dd950728  
+##### 3279#       发表于 2021-12-31 23:51
+
+祝大家虎年都能虎<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3280#       发表于 2021-12-31 23:58
+
+大家新年快乐！
+
+*****
+
+####  离心  
+##### 3281#       发表于 2021-12-31 23:59
+
+新年快乐！我好气啊只能看明天的了
+
+*****
+
+####  stygian  
+##### 3282#       发表于 2022-1-1 00:00
+
+楼友新年快乐！
+
+*****
+
+####  普之舜舜  
+##### 3283#       发表于 2022-1-1 00:03
+
+新年快乐呀！楼里的小伙伴们
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TRIScRE  
+##### 3284#       发表于 2022-1-1 00:04
+
+<blockquote>ads147147 发表于 2021-12-31 23:50
+这图一看，每个团都有高出来的那个高峰www
+
+话说萌p居然那么高么。</blockquote>
+萌p有163-164吧
+
+*****
+
+####  iuhehc  
+##### 3285#       发表于 2022-1-1 00:06
+
+楼友新年快乐~
+
