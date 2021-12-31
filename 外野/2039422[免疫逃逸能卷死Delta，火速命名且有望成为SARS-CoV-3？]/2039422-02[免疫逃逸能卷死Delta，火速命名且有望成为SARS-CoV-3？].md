@@ -13185,3 +13185,18 @@ HIV比新冠妖孽，我记得看到文章说HIV在体内变异速度极快，�
 
 谁看高中生物课本啊，我们只看米国确诊数和死亡数，以后课本改版时，在有关进化的说明旁，应加上“不适用于病毒在米国爆发的情况”，简称进化论米毒修正。
 
+
+
+*****
+
+####  藤岛鸣海  
+##### 2599#       发表于 2021-12-31 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113232&amp;ptid=2039422" target="_blank">人类 发表于 2021-12-31 12:45</a>
+三十了吧
+
+这是前列腺炎</blockquote>
+去医院了。都检查过了。并没有前列腺炎。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
