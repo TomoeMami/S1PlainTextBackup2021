@@ -12739,3 +12739,163 @@ https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15018.html</blockquote>
 
 免疫抑制也是同时有利于传播和致死率的
 
+
+
+*****
+
+####  smy20011  
+##### 2562#       发表于 2021-12-31 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111835&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 10:58</a>
+
+是啊....若是光是看进化树的话..肯定是更适应环境..也就不用发论文了呀
+
+问题就是其他指标有的说到...才会 ...</blockquote>
+如果强的标准很多的话，那断言毒力一定会变强是不是有点武断了呢？
+
+做预案要做毒力变强的预案没问题，但是直接铁口直断毒力变强是不是有点不够科学。
+
+*****
+
+####  madeira  
+##### 2563#       发表于 2021-12-31 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111848&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-31 10:58</a>
+也不是致病力更低
+
+载毒量变大是同时有利于传播和致死率的
+
+免疫抑制也是同时有利于传播和致死率的 ...</blockquote>
+你跟他辩经干嘛呢 他明摆着就死认那个观点了 
+
+再次证明成人的不可教育性
+
+*****
+
+####  smy20011  
+##### 2564#       发表于 2021-12-31 11:03
+
+ 本帖最后由 smy20011 于 2021-12-31 11:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111848&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-31 10:58</a>
+
+也不是致病力更低
+
+载毒量变大是同时有利于传播和致死率的
+
+免疫抑制也是同时有利于传播和致死率的 ...</blockquote>
+那你怎么解释，omicron和delta对比，载毒量变大，免疫抑制更强，然而比delta更加轻微这点呢？
+
+也就是说，你提的这两个指标，是不能判断致死率
+
+*****
+
+####  dllplayer  
+##### 2565#       发表于 2021-12-31 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111889&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 11:01</a>
+
+如果强的标准很多的话，那断言毒力一定会变强是不是有点武断了呢？
+
+做预案要做毒力变强的预案没问题，但 ...</blockquote>
+首先毒力这个指标你先定义下..
+
+啥叫毒力?
+
+*****
+
+####  smy20011  
+##### 2566#       发表于 2021-12-31 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111913&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 11:04</a>
+
+首先毒力这个指标你先定义下..
+
+啥叫毒力?</blockquote>
+住院率，机器通氧率，ICU率以及死亡率
+
+*****
+
+####  dllplayer  
+##### 2567#       发表于 2021-12-31 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111911&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 11:03</a>
+
+那你怎么解释，omicron和delta对比，载毒量变大，免疫抑制更强，然而比delta更加轻微这点呢？ ...</blockquote>
+不是砍掉各种干扰只有4个样本..4个样本里只有一个更轻微么
+
+*****
+
+####  smy20011  
+##### 2568#       发表于 2021-12-31 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111941&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 11:05</a>
+
+不是砍掉各种干扰只有4个样本..4个样本里只有一个更轻微么</blockquote>
+[https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg](https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg)
+
+就算是焦老师也同意omicron比delta更轻
+ <blockquote>就整个毒力演化路径而言，
+
+Omicron的毒力：
+
+比原始株更高，
+
+比最近祖先B.1.1也更高，
+
+比同辈Alpha还是更高，
+
+比八竿子打不到一块儿的大表哥Delta则略低0~30%左右。</blockquote>
+
+*****
+
+####  laotoutou  
+##### 2569#       发表于 2021-12-31 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111963&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 11:08</a>
+
+https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
+
+就算是焦老师也同意omicron比delta更轻</blockquote>
+这样看来演化的方向是毒力越来越强。
+
+只是两条路径速度不同而已。
+
+*****
+
+####  laotoutou  
+##### 2570#       发表于 2021-12-31 11:12
+
+如果一直这样下去，会诞生生么样的病毒
+
+*****
+
+####  yhaos  
+##### 2571#       发表于 2021-12-31 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111931&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 11:05</a>
+
+住院率，机器通氧率，ICU率以及死亡率</blockquote>
+嗯，那么，根据你的思路，目前毒力是下降吗？
+
+*****
+
+####  smy20011  
+##### 2572#       发表于 2021-12-31 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112051&amp;ptid=2039422" target="_blank">yhaos 发表于 2021-12-31 11:14</a>
+
+嗯，那么，根据你的思路，目前毒力是下降吗？</blockquote>
+毒力是随机抽签的，你可以想象传播能力，逃逸能力和毒力是不同的池子，自然选择更倾向去选前两个比较强的，毒力更倾向于随机选择
+
+*****
+
+####  66666  
+##### 2573#       发表于 2021-12-31 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112021&amp;ptid=2039422" target="_blank">laotoutou 发表于 2021-12-31 11:12</a>
+
+如果一直这样下去，会诞生生么样的病毒</blockquote>
+无人可知，人类以前大流行的经验可能并不能完全适用于现在
+
+因为现在的人类比100多年前的人类耐操多了，毒性不那么弱的病毒也可以做到广范围传播，很难说毒性会不会降低到流感
+

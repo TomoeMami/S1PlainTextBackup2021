@@ -9144,3 +9144,41 @@ ymen和os团搞颜出回顾直播，感觉状态还不错？大概是缓过来�
 V综有没有枪民懂哥讲一哈👉パカエル / Pakael这个人apex什么水平。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nijipex时练习赛数据和各位职业哥猎杀哥同台竞技的水平
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9778#       发表于 2021-12-31 11:12
+
+[https://note.com/narukamisabaki/n/ne057f49c692a](https://note.com/narukamisabaki/n/ne057f49c692a)
+
+<img src="https://img.saraba1st.com/forum/202112/31/111038a9zzy9nd8hdvnzd6.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211231111008.png</strong> (52.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 11:10 上传
+
+ <blockquote>但し、既に界隈各所へ聖女れりあと月下カオルの噂が広がっていた中、
+
+中には「夏色まつりとも不倫したらしい」等の尾ひれが付いた噂まで回っている事を知ったホロライバーが会社にそれを報告。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/31/111146rddl3ydriyirzafj.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20211231111139.png</strong> (77.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 11:11 上传
+
+我说怎么唐突隐退，原来是在玩这个
+
+*****
+
+####  ヒトニナル  
+##### 9779#       发表于 2021-12-31 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到月下那么来增加一点屎尿屁浓度，他中之人昨天还脱肛了
+
