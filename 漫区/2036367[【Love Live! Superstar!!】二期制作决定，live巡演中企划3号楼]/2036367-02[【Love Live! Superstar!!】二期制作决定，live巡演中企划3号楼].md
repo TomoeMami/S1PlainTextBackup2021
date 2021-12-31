@@ -17302,3 +17302,15 @@ QQ频道子频道【放送间】：[https://qun.qq.com/qqweb/qunpro/ ... m=24661
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  普之舜舜  
+##### 2967#       发表于 2021-12-31 19:56
+
+我起来了，你们人呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+贴吧都陆续赶来了，s1老哥是不是光顾着看live没空闲聊呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
