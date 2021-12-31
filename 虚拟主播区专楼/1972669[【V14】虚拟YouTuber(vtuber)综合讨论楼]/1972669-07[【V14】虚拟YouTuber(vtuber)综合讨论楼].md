@@ -9599,3 +9599,35 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 新年新气象，一想到2022会是有mrra的一年就变得很有期待
 
+
+
+*****
+
+####  OldGlory  
+##### 9818#       发表于 2021-12-31 22:03
+
+2月末に非公開化予定と明記しておりました各キャストのSNSやYouTubeチャンネル等についてですが、キャスト側から公開継続の要望があった一部アカウントに関しては、管理可能な範囲で2月以降も公開を続けたいと思います。
+
+しかしながら、様々な事情で永久的に残すのはやはり難しく、当社の判断で予告なく公開を終了する可能性があることも合わせてご理解承りますようお願い申し上げます。
+[https://note.com/yume_note1205/n/n95bce7d9f7b1](https://note.com/yume_note1205/n/n95bce7d9f7b1)
+
+扫清垃圾迎接新年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hulaoda007  
+##### 9819#       发表于 2021-12-31 22:07
+
+-                                                                                                                                                                                                                 
+
+只要主播不是开心的犯懒或不开心的直播而是开心的直播的话，肯定会有好东西的。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">还是希望虹越来越好。
+
+*****
+
+####  真飞鸟i  
+##### 9820#       发表于 2021-12-31 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打扫干净屋子再请客很强很成功，同接证明了一切。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -10063,3 +10063,41 @@ ZZ问题交给专业的人吧, 反正也讨论不出来个结果, 反正你也�
 
 就P大点事就别顶帖了，还话题越扯越危险了。少个“P大点事不要吵”这种玩意这帖子论坛都会安全很多，赶紧把P大点事的人干死才最合适。啥时候steam好了再把这类人放出来，否则这种人除了给社会和谐添乱没有卵用。 往上不能拍马屁，往下只能引起反感，就他自己自我感觉良好觉得自己智力高超领会上意，实际就这眼力当狗都能当出问题。早个两百年就是乡下老农听到死个皇帝能在那心心相印哭得死了全家的水平。
 
+
+
+*****
+
+####  sssacpgdr  
+##### 903#       发表于 2021-12-31 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118846&amp;ptid=2043948" target="_blank">风浦可符香(P.N) 发表于 2021-12-31 20:35</a>
+
+“中国人是需要管的” “我大清国自有国情在此” “敌对势力亡我之心不死”，三句话扩写了几十年了也没点花 ...</blockquote>
+可是就算你听烦了，这些东西也是客观上存在的，你还能说几句我不听我不听，就让这些不存在了不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanonya2  
+##### 904#       发表于 2021-12-31 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120468&amp;ptid=2043948" target="_blank">sssacpgdr 发表于 2021-12-31 22:18</a>
+可是就算你听烦了，这些东西也是客观上存在的，你还能说几句我不听我不听，就让这些不存在了不成 ...</blockquote>
+就算客观存在也不等于可以无限放大
+
+*****
+
+####  sssacpgdr  
+##### 905#       发表于 2021-12-31 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120493&amp;ptid=2043948" target="_blank">nanonya2 发表于 2021-12-31 22:19</a>
+
+就算客观存在也不等于可以无限放大</blockquote>
+这你绝对可以放心，现在中美关系越来越差，未来十年只会进一步放大，大家唯一能做的只有两件事，一是早日习惯新常态，二是内心祈祷美国早日投共<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 906#       发表于 2021-12-31 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说UU都没用的，可能你那边网络把UU墙了
+

@@ -6346,3 +6346,73 @@ NMD为什么要限定niconico直播啊艹
 
 翻页
 
+
+
+*****
+
+####  areklose  
+##### 86104#       发表于 2021-12-31 22:04
+
+感觉新年要不是所罗门要不是盖地亚了
+
+*****
+
+####  sosgame67  
+##### 86105#       发表于 2021-12-31 22:11
+
+盖提亚可能性极高，不过我还在纠结要不要去补妖兰二宝<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86106#       发表于 2021-12-31 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">韦伯你丫年轻时候要好好做个人，现在软妹老婆都有了……
+
+*****
+
+####  廖化  
+##### 86107#       发表于 2021-12-31 22:13
+
+为什么突然开始重播嘉年华？？？实在没内容了吗？
+
+*****
+
+####  gpx234mqx  
+##### 86108#       发表于 2021-12-31 22:17
+
+ 本帖最后由 gpx234mqx 于 2021-12-31 22:18 编辑 
+
+终章，奥伯龙的故事
+
+奥伯龙没上船呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+留在彷惶海一起炸了
+
+53509B17-B630-4DF1-AC9F-B61554F2E0DE.jpeg
+(200.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/221709ezf10lwx6lw665rt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BA23AC6B-B5B6-4BAD-BB13-A6ECA91D263E.jpeg
+(192.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/221709d355i6yn586jn365.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+50A7506B-04D8-4976-8373-0537C1622972.jpeg
+(110.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/221709xmn63hrmtnpct3do.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

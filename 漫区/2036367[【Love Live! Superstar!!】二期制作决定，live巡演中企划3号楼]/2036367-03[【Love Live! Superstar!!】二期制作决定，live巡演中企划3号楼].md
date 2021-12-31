@@ -1147,3 +1147,278 @@ W圆 W妈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 
 杏树还是好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kbtit  
+##### 3147#       发表于 2021-12-31 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">九个人还是嗨啊，yysy裂啦人少有时候嗨不起来
+
+*****
+
+####  wsdbyh  
+##### 3148#       发表于 2021-12-31 22:02
+
+没KURUKURU就算了，AtoZ都没么
+
+*****
+
+####  lj205  
+##### 3149#       发表于 2021-12-31 22:05
+
+好奇问问水团也是全开麦吗？
+
+*****
+
+####  stygian  
+##### 3150#       发表于 2021-12-31 22:06
+
+水团合唱part很多半开麦，昨天忘了哪首音响师没调好，伴唱声音贼大
+
+
+
+*****
+
+####  kimibsb  
+##### 3151#       发表于 2021-12-31 22:08
+
+很明显半开麦吧 对比太明显了
+
+*****
+
+####  优妮可  
+##### 3152#       发表于 2021-12-31 22:08
+
+水确实嗨
+
+*****
+
+####  中野四葉  
+##### 3153#       发表于 2021-12-31 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是半开麦无所谓吧，又不是歌力斗虫，气氛到了就是最吼的
+
+*****
+
+####  cybernetics31  
+##### 3154#       发表于 2021-12-31 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管开不开，call打起来完事
+
+*****
+
+####  stygian  
+##### 3155#       发表于 2021-12-31 22:12
+
+小宫比前两天还兴奋啊感觉
+
+*****
+
+####  寒风夜  
+##### 3156#       发表于 2021-12-31 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">水的歌曲是真好
+
+*****
+
+####  saglork  
+##### 3157#       发表于 2021-12-31 22:15
+
+还要补上最后一组拉娘配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3158#       发表于 2021-12-31 22:15
+
+sayu这高音吓我一跳
+
+*****
+
+####  Arccueid  
+##### 3159#       发表于 2021-12-31 22:15
+
+草草草
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 3160#       发表于 2021-12-31 22:16
+
+同身高草
+
+6E6C084A-24DB-494E-8510-EEA99FDA391C.png
+(150.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/221650gze3uaff7d67duwj.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3161#       发表于 2021-12-31 22:16
+
+绿色cp还行
+
+*****
+
+####  chenflyyy  
+##### 3162#       发表于 2021-12-31 22:16
+
+pay的更夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 3163#       发表于 2021-12-31 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">纯情pay哪受得了这个啊
+
+*****
+
+####  普之舜舜  
+##### 3164#       发表于 2021-12-31 22:17
+
+<img src="https://p.sda1.dev/3/f36322b98186a89373dc9f5550cb0235/IMG_CMP_26003579.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 3165#       发表于 2021-12-31 22:18
+
+杏和青山真没想到。。。
+
+*****
+
+####  saglork  
+##### 3166#       发表于 2021-12-31 22:18
+
+草，你们在相亲吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  depthlee  
+##### 3167#       发表于 2021-12-31 22:18
+
+nagi这个外星人反映www
+
+*****
+
+####  cybernetics31  
+##### 3168#       发表于 2021-12-31 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sww 笑死
+
+*****
+
+####  稀勢のささ  
+##### 3169#       发表于 2021-12-31 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么拉郎配环节
+
+*****
+
+####  仟音一心  
+##### 3170#       发表于 2021-12-31 22:19
+
+蜜柑草
+
+*****
+
+####  stygian  
+##### 3171#       发表于 2021-12-31 22:19
+
+杏酱外星人说微存<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3172#       发表于 2021-12-31 22:20
+
+外星人你就这样被蜜柑拐走了吗
+
+*****
+
+####  saglork  
+##### 3173#       发表于 2021-12-31 22:20
+
+老阿姨们调戏着纯情jk开心的不行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3174#       发表于 2021-12-31 22:21
+
+两个团差点都变偶数
+
+736C11E4-5007-424B-A1AA-AC2C52415B10.jpeg
+(263.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/222116gfxgw9gq7tlegw58.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3175#       发表于 2021-12-31 22:22
+
+进入日语听力环节
+
+*****
+
+####  cybernetics31  
+##### 3176#       发表于 2021-12-31 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这咋还放广播凑时间啊
+
+*****
+
+####  stygian  
+##### 3177#       发表于 2021-12-31 22:22
+
+爱鱼咪，这组合也太怪了
+
+*****
+
+####  仟音一心  
+##### 3178#       发表于 2021-12-31 22:23
+
+大佬手速好快！
+
+0447BCB1-E520-4BD3-94E3-2717612E63A2.jpeg
+(467.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/222315rk4c4x4c1b2tcfbf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1BCB88C0-77A4-4B8D-97A9-142CEEA96DBB.jpeg
+(274.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:23 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/222315w9n02qzx1qcox1cn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3179#       发表于 2021-12-31 22:23
+
+很迷的组合
+
