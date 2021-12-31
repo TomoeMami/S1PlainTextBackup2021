@@ -6184,3 +6184,24 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 大妈其实和小太刀差不多，本身够菜，正好能拿来做唯一指定肉坦。也都有点此世全部之错的味了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 86088#       发表于 2021-12-31 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117641&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 18:45</a>
+
+话说这波家都炸了，以后怎么开活动剧情干脆2022年没有新活动，只有复刻和主线 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">支持全复刻，我手里活动从者只有兰丸马大达芬奇和龙娘全家桶（-机龙MK-II）
+
+*****
+
+####  poor  
+##### 86089#       发表于 2021-12-31 19:42
+
+别脑补隔壁破防了，她们已经开始说服自己太公望对妲己一点想法没有了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

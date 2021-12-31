@@ -17273,3 +17273,32 @@ F528EA57-5BCC-4D6C-8A5C-42C3E97BB7ED.jpeg
 
 三团跨年有人会播吗来自: iPhone客户端
 
+
+
+*****
+
+####  普之舜舜  
+##### 2965#       发表于 2021-12-31 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117846&amp;ptid=2036367" target="_blank">ykyin09 发表于 2021-12-31 19:07</a>
+三团跨年有人会播吗</blockquote>
+我发下链接吧
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2966#       发表于 2021-12-31 19:34
+
+ 本帖最后由 普之舜舜 于 2021-12-31 19:36 编辑 
+
+以下内容需要积分高于 25 才可浏览
+
+跨年地址：
+斗鱼直播[http://www.douyu.com/10338607](http://www.douyu.com/10338607)
+QQ频道子频道【放送间】：[https://qun.qq.com/qqweb/qunpro/ ... m=246610&amp;biz=ka](https://qun.qq.com/qqweb/qunpro/share?_wv=3&amp;_wwv=128&amp;inviteCode=1S5Tmu&amp;from=246610&amp;biz=ka)
+腾讯会议：暂无
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
