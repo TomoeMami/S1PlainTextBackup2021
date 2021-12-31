@@ -9132,3 +9132,15 @@ ymen和os团搞颜出回顾直播，感觉状态还不错？大概是缓过来�
 </blockquote>
 野心燃烧不该是联动狐狐兔皇鲨皇吗。
 
+
+
+*****
+
+####  winda  
+##### 9777#       发表于 2021-12-31 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54107979&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-12-30 23:13</a>
+
+V综有没有枪民懂哥讲一哈👉パカエル / Pakael这个人apex什么水平。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nijipex时练习赛数据和各位职业哥猎杀哥同台竞技的水平
+

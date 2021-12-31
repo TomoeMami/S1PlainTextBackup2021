@@ -12380,3 +12380,178 @@ https://www.yixuela.com/boo ...</blockquote>
 
 发现猴子力量弱..大猩猩力量强..
 
+
+
+*****
+
+####  母星  
+##### 2537#       发表于 2021-12-31 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111284&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:16</a>
+
+我说的是，病毒毒力比较的时候，必须和原版毒株比较这一方法，是广泛应用在研究当中么？
+
+你说</blockquote>
+论文提的delta毒力并不是拿来判断病毒各演化路径上的毒力发展方向的，而是用来衡量对人类医疗卫生影响的，后者才是讨论基因型的目的。
+
+*****
+
+####  smy20011  
+##### 2538#       发表于 2021-12-31 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111294&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:17</a>
+
+你说的这条突变链，不也是沿着毒性增强路线走的呀？而我们在演化链上看到也是这个现象吧。 ...</blockquote>
+如果你觉得突变是随机的，那么就不可能在突变链上有毒性增强。因为有方向性突变和随机相冲突。
+
+*****
+
+####  母星  
+##### 2539#       发表于 2021-12-31 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111450&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:29</a>
+
+如果你觉得突变是随机的，那么就不可能在突变链上有毒性增强。因为有方向性突变和随机相冲突。 ...</blockquote>
+“认为突变是随机的”并不是我的观点，提出这个观点的是你吧
+
+*****
+
+####  smy20011  
+##### 2540#       发表于 2021-12-31 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111440&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:28</a>
+
+论文提的delta毒力并不是拿来判断病毒各演化路径上的毒力发展方向的，而是用来衡量对人类医疗卫生影响的 ...</blockquote>
+很简单一个问题，你能确定Omicron的下一个变种是从delta，alpha或者omicron里面突变出来的么？
+
+如果不是的话，你就算能确认突变会造成新冠更加严重，也没有意义啊。
+
+*****
+
+####  母星  
+##### 2541#       发表于 2021-12-31 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111450&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:29</a>
+
+如果你觉得突变是随机的，那么就不可能在突变链上有毒性增强。因为有方向性突变和随机相冲突。 ...</blockquote>
+我的观点是筛选机制不随机，所以导致的病毒毒力演化路径上显示出毒力增强的趋向
+
+*****
+
+####  creymorgan  
+##### 2542#       发表于 2021-12-31 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111450&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:29</a>
+
+如果你觉得突变是随机的，那么就不可能在突变链上有毒性增强。因为有方向性突变和随机相冲突。 ...</blockquote>
+指标是很多元的
+
+比如奥米克戎的ct值普遍更小，那意味着载毒量增大。
+
+*****
+
+####  smy20011  
+##### 2543#       发表于 2021-12-31 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111492&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:32</a>
+
+“认为突变是随机的”并不是我的观点，提出这个观点的是你吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/31/103528iaqrz4rszbjshf4w.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-30 18.35.15.png</strong> (91.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 10:35 上传
+
+人教版高中生物必修2
+[https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15018.html](https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15018.html)
+
+*****
+
+####  dllplayer  
+##### 2544#       发表于 2021-12-31 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111450&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:29</a>
+
+如果你觉得突变是随机的，那么就不可能在突变链上有毒性增强。因为有方向性突变和随机相冲突。 ...</blockquote>
+你搞反了因果关系..
+
+不是突变链上越往上毒性越强..
+
+而是只有强的才会被人发现..若非常强.可能提出来赐名个编号..若非常非常非常强...就有可能被赐名个希腊字母
+
+弱的没人在乎...
+
+这是个卷的世界
+
+但凡被赐名的..总有自己的长处...至于长处是啥...就说不太清了
+
+于是..大家就开始用各种指标来比较被赐名了希腊字母的各位牛人和他们的牛子牛孙们...这些牛人和牛人的后代到底有哪些和别的病毒不同的地方.
+
+哦..这个能更快速的感染人..那个能让人更不容易好...另一个牛人的孙子比这个牛人的儿子更加容易感染人..
+
+那么这个牛人的孙子和那个牛人的儿子到底哪个毒性更高呢&lt;-----目前在这
+
+*****
+
+####  dllplayer  
+##### 2545#       发表于 2021-12-31 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111548&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:35</a>
+
+人教版高中生物必修2
+
+https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15018.html</blockquote>
+突变是不定向的
+
+但是自然界会对其定向选择
+
+*****
+
+####  母星  
+##### 2546#       发表于 2021-12-31 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111497&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:32</a>
+
+很简单一个问题，你能确定Omicron的下一个变种是从delta，alpha或者omicron里面突变出来的么？
+
+如果不是 ...</blockquote>
+这当然有意义呀，这说明我说的没有错呀，虽然现实并不一定是这样就是了
+
+*****
+
+####  公共知识  
+##### 2547#       发表于 2021-12-31 10:38
+
+虽然谭友很希望病毒毒力减弱，很希望欧美的just flu成真，但是哪怕最终新冠变成某个弱鸡病毒消失，欧美也还要死一百万人吧。我真的好爽啊。
+
+*****
+
+####  dllplayer  
+##### 2548#       发表于 2021-12-31 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111497&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:32</a>
+
+很简单一个问题，你能确定Omicron的下一个变种是从delta，alpha或者omicron里面突变出来的么？
+
+如果不是 ...</blockquote>
+不能确定下一个omega是从哪里突变出来的
+
+但是它必须卷赢现在的omicron、delta、alpha所以能被起名的的新冠病毒..肯定是突变造成疫情更加严重的
+
+卷不赢就不会给他希腊字母
+
+*****
+
+####  惊奇记事簿  
+##### 2549#       发表于 2021-12-31 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111035&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 09:54</a>
+
+前两天那个疯传的会体内残留的就是尸检报告啊</blockquote>
+那个只是说有残留吧
+
+有没有那种检出多种新冠，就是因为多次感染残留了多种新冠病毒，最后死于DELT
+
