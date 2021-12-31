@@ -17073,3 +17073,17 @@ C768D650-3B88-466A-B12E-15E62ADC4B5A.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说到舞蹈，魔爪女孩那个舞蹈，应该没生草罗马列兵那段吧
 
+
+
+*****
+
+####  梶原ひかり  
+##### 2953#       发表于 2021-12-31 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54114000&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 13:53</a>
+
+虹色passion我记得也是她，不过虹团的确音乐阵和缪水星都不是一路就是了</blockquote>
+可能部分歌是石川老师吧...
+
+虹咲大部分舞蹈都是G-Rabby老师
+

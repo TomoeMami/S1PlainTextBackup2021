@@ -9280,3 +9280,60 @@ V综有没有枪民懂哥讲一哈👉パカエル / Pakael这个人apex什么�
 
 2021-12-31 14:35 上传
 
+
+
+*****
+
+####  free  
+##### 9784#       发表于 2021-12-31 14:41
+
+[https://www.youtube.com/watch?v=J2nMpqwaPIM](https://www.youtube.com/watch?v=J2nMpqwaPIM)
+
+#NJU歌謡祭2021 / 前半
+
+*****
+
+####  free  
+##### 9785#       发表于 2021-12-31 14:44
+
+[https://twitter.com/kaf_info/status/1476792849614372864](https://twitter.com/kaf_info/status/1476792849614372864)
+
+这下谱皇真毕业了（确信）
+
+<img src="https://img.saraba1st.com/forum/202112/31/144344g6o5aoe3ee465ee5.png" referrerpolicy="no-referrer">
+
+<strong>毕业.png</strong> (78.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 14:43 上传
+
+*****
+
+####  硫黄  
+##### 9786#       发表于 2021-12-31 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫色这个真的显得非常的矮
+
+*****
+
+####  硫黄  
+##### 9787#       发表于 2021-12-31 14:56
+
+<img src="https://img.saraba1st.com/forum/202112/31/145611cbb7hyp7yibiywei.png" referrerpolicy="no-referrer">
+
+<strong>lQ{~]J3AKB53%QH@A07YJ.png</strong> (120.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 14:56 上传
+
+有个人没弯腰
+
+*****
+
+####  Suny08  
+##### 9788#       发表于 2021-12-31 14:59
+
+感觉是全程录播了，不过质量还可以的，编舞费心了
+
