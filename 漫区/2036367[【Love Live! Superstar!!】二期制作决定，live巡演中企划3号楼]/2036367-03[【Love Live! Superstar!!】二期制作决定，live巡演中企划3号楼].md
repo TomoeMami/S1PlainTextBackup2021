@@ -1674,3 +1674,250 @@ B93EAE96-DD0B-4400-B428-710F80CAF8A8.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 3206#       发表于 2021-12-31 22:46
+
+广播原来不换人的吗？
+
+*****
+
+####  D麦林  
+##### 3207#       发表于 2021-12-31 22:53
+
+今天三团都把场T改的跟打歌服一样
+
+*****
+
+####  仟音一心  
+##### 3208#       发表于 2021-12-31 22:53
+
+ 本帖最后由 仟音一心 于 2021-12-31 22:54 编辑 
+
+三团都是T恤，然后在袖领口做文章。
+
+8B07DB8E-0283-489B-BD15-5D24EC81AFAE.jpeg
+(145.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225400so27ewq50q0n4hlt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9AE2099E-3F0C-4C91-9504-2C8E05C8B748.jpeg
+(133.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225400b8pzcag4x5wsauq4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4043FEA9-4255-426E-BEFD-C42729746334.jpeg
+(155.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225400p7ll0e2q2q0dhh7b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C95C2B31-2509-447B-A6F8-E39068E07440.jpeg
+(117.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225401dt6rtjuosaosssat.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BE6F6D4C-76AC-4952-846F-CDC4EB3AA236.jpeg
+(181.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225401s6id367rk6bg7li6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F1B08F02-3EA8-4895-B5A5-7C13F8ED890D.jpeg
+(157.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225401yrv007bbp0idmbdb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+412C8DC5-8D7D-4218-A47F-9C26BD98A638.jpeg
+(154.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225401zhxrxdefd551fnr6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FE012168-7EFE-4381-8EE9-2CB7DF7E704D.jpeg
+(194.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225401xv0kv6wk6v4x6wwk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+80B96876-0FC9-4D50-B9A1-6664AE256BC1.jpeg
+(192.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225401dzxtxeeuzx9elfxf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B6AA7C5C-0F5A-4A39-B952-CDBDE9E698CB.jpeg
+(180.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225402g6fuf433646yv737.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+485253EF-CCA9-43AB-A18F-5536B97F650D.jpeg
+(176.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225402b2y9xm5pjxbj0y9e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E487DBB9-3E35-41BA-9CF8-44E165CA59C9.jpeg
+(214.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225402zhhhfia6ajizlnah.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CB23838B-CC30-4F1C-8128-2BE49A40C982.jpeg
+(210.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225402jokuvmi9woo0kviv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8314F745-8855-438D-93C6-EC693D6FBC7F.jpeg
+(177.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225402c0wayygyy79akg4a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+10C53E00-0FED-4E3A-AA67-7E7E56115151.jpeg
+(173.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/225403pff5fk97hgfhf0ri.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3209#       发表于 2021-12-31 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">秀露肩就很瑟
+
+*****
+
+####  优妮可  
+##### 3210#       发表于 2021-12-31 22:55
+
+不行啊，秀的衣服那么涩，但米娅才十四
+
+
+
+*****
+
+####  iuhehc  
+##### 3211#       发表于 2021-12-31 22:56
+
+菜宝这个团子是接上去的吧
+
+*****
+
+####  stygian  
+##### 3212#       发表于 2021-12-31 22:58
+
+全系列末っ子pay子太受宠了
+
+*****
+
+####  lj205  
+##### 3213#       发表于 2021-12-31 22:58
+
+倒数完再欢乐今宵了
+
+*****
+
+####  普之舜舜  
+##### 3214#       发表于 2021-12-31 22:59
+
+寂寞爱
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 3215#       发表于 2021-12-31 22:59
+
+倒计时了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  D麦林  
+##### 3216#       发表于 2021-12-31 23:00
+
+今天看水水是真的感慨
+从当年那个初出茅庐的感觉到现在完全就是大前辈的感觉
+
+*****
+
+####  wsdbyh  
+##### 3217#       发表于 2021-12-31 23:02
+
+happy new  Japanese yeah tiger！
+
+*****
+
+####  stygian  
+##### 3218#       发表于 2021-12-31 23:02
+
+草，倒数的时候我梯子崩了，切到斗鱼看最后part
+
+*****
+
+####  Totokei  
+##### 3219#       发表于 2021-12-31 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121402&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 23:02</a>
+
+草，倒数的时候我梯子崩了，切到斗鱼看最后part</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实只是eplus垃圾，我在水那会就崩了折腾半天都是高糊画质，然后管子还是满速的
+

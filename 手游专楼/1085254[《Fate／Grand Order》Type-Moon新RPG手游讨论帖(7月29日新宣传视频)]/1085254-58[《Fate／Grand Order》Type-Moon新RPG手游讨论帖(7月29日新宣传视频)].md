@@ -6522,3 +6522,570 @@ BA23AC6B-B5B6-4BAD-BB13-A6ECA91D263E.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1方块1结晶1圣杯
 
+
+
+*****
+
+####  zore  
+##### 86122#       发表于 2021-12-31 22:45
+
+宝具福袋 还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86123#       发表于 2021-12-31 22:45
+
+ 本帖最后由 exiaexa 于 2021-12-31 22:46 编辑 
+
+草，色卡宝具福袋
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+仔细看了一眼，太可怕了，每个池子出雷概率都贼高
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86124#       发表于 2021-12-31 22:46
+
+这种福袋太坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑上シグマ  
+##### 86125#       发表于 2021-12-31 22:46
+
+尼玛这福袋没法抽啊……
+
+*****
+
+####  zore  
+##### 86126#       发表于 2021-12-31 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然是暗狐
+
+*****
+
+####  alucardcz  
+##### 86127#       发表于 2021-12-31 22:46
+
+草 暗a狐。。。
+
+*****
+
+####  AbigailWilliams  
+##### 86128#       发表于 2021-12-31 22:47
+
+哈哈哈哈哈哈哈哈哈哈，狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86129#       发表于 2021-12-31 22:47
+
+暗狐狸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 86130#       发表于 2021-12-31 22:47
+
+果然是外星人 这个定律看来跑不掉了
+
+
+
+*****
+
+####  exiaexa  
+##### 86131#       发表于 2021-12-31 22:47
+
+暗狐狸也太草了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86132#       发表于 2021-12-31 22:47
+
+外星人狐狸……
+
+*****
+
+####  eden_hazard  
+##### 86133#       发表于 2021-12-31 22:47
+
+暗狐可还行
+
+*****
+
+####  cckuku  
+##### 86134#       发表于 2021-12-31 22:48
+
+外星人，这个职介我就不看好……大胆猜测仓管
+
+*****
+
+####  kyonkoism  
+##### 86135#       发表于 2021-12-31 22:48
+
+暗狐哈哈哈哈哈哈哈哈哈
+
+*****
+
+####  承尘  
+##### 86136#       发表于 2021-12-31 22:49
+
+该除外墓地的光暗高阳斯卡哈出混源龙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  厄神之息  
+##### 86137#       发表于 2021-12-31 22:49
+
+草，还真是暗狐狸，那明年再整个太极狐狸，后年以太狐狸，属实是够省事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86138#       发表于 2021-12-31 22:49
+
+大保底啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  angelooo  
+##### 86139#       发表于 2021-12-31 22:50
+
+什么，保底？？？
+
+*****
+
+####  壳壳牛  
+##### 86140#       发表于 2021-12-31 22:50
+
+卧槽保底
+
+*****
+
+####  zore  
+##### 86141#       发表于 2021-12-31 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">保底?
+
+*****
+
+####  承尘  
+##### 86142#       发表于 2021-12-31 22:50
+
+保底？？？
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  千叶铁矢  
+##### 86143#       发表于 2021-12-31 22:50
+
+卧槽
+
+*****
+
+####  eden_hazard  
+##### 86144#       发表于 2021-12-31 22:50
+
+？？？？？？？？？？？？保底？？？？？？？？？？？？？？？
+
+*****
+
+####  alucardcz  
+##### 86145#       发表于 2021-12-31 22:50
+
+草  保底来了  330井。。。。。
+
+*****
+
+####  空气蛹  
+##### 86146#       发表于 2021-12-31 22:50
+
+终于加保底了
+
+*****
+
+####  alucardcz  
+##### 86147#       发表于 2021-12-31 22:50
+
+真的是千石一宝  这么离谱的保底真的草了。。
+
+*****
+
+####  厄神之息  
+##### 86148#       发表于 2021-12-31 22:51
+
+出天井是不是就说明爆率还有下调的余地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86149#       发表于 2021-12-31 22:51
+
+官方认证了，千石一宝233
+
+*****
+
+####  exiaexa  
+##### 86150#       发表于 2021-12-31 22:51
+
+还行，6单一个，我之前猜会控在5单一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 86151#       发表于 2021-12-31 22:51
+
+别尬黑，900石不是千石<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86152#       发表于 2021-12-31 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121161&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-12-31 22:51</a>
+
+别尬黑，900石不是千石</blockquote>
+别尬黑 990好吗
+
+*****
+
+####  zore  
+##### 86153#       发表于 2021-12-31 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么有个高达剪影
+
+*****
+
+####  sandro  
+##### 86154#       发表于 2021-12-31 22:52
+
+这保底也太几把猛了
+
+*****
+
+####  当光停止  
+##### 86155#       发表于 2021-12-31 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121171&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 22:52</a>
+
+别尬黑 990好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑 30石是11连。
+
+*****
+
+####  zakki  
+##### 86156#       发表于 2021-12-31 22:53
+
+2022第七章开放，这特么什么废话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 86157#       发表于 2021-12-31 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">900石一宝
+
+并且不适用于二宝？
+
+*****
+
+####  alucardcz  
+##### 86158#       发表于 2021-12-31 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121195&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-12-31 22:53</a>
+
+别尬黑 30石是11连。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">擦 忘了
+
+*****
+
+####  宵神乐  
+##### 86159#       发表于 2021-12-31 22:54
+
+天井 草
+
+*****
+
+####  黑上シグマ  
+##### 86160#       发表于 2021-12-31 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121171&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 22:52</a>
+
+别尬黑 990好吗</blockquote>
+看出来了，你算数不太好
+
+
+
+*****
+
+####  qixinno2  
+##### 86161#       发表于 2021-12-31 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千石一宝的保底 这算是官方嘲讽么
+
+*****
+
+####  xiongxingyu  
+##### 86162#       发表于 2021-12-31 22:54
+
+这个保底还不是900石必出一个而是900石必出第一个，抽二宝以上时照样会出现千石一宝，真就和没有没啥差别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86163#       发表于 2021-12-31 22:55
+
+这保底跨池吗 我没注意看
+
+*****
+
+####  AbigailWilliams  
+##### 86164#       发表于 2021-12-31 22:56
+
+330井也就fgo能开心了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 86165#       发表于 2021-12-31 22:56
+
+没想到真加＃了，新一年出五星速度有保证了？
+
+*****
+
+####  クー子  
+##### 86166#       发表于 2021-12-31 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121272&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 22:55</a>
+这保底跨池吗 我没注意看</blockquote>
+怎么可能跨
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zore  
+##### 86167#       发表于 2021-12-31 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保底行,330抽不行
+
+*****
+
+####  千叶铁矢  
+##### 86168#       发表于 2021-12-31 22:56
+
+主要是他保up吧
+
+*****
+
+####  1a不解释  
+##### 86169#       发表于 2021-12-31 22:57
+
+不一定出当期up吗，那有毛用
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  凌云三才  
+##### 86170#       发表于 2021-12-31 22:57
+
+这铃村请了个寂寞啊，果然是玩家奶的全部摒弃
+
+*****
+
+####  exiaexa  
+##### 86171#       发表于 2021-12-31 22:57
+
+先不说用不用得到，你游这5.3单一井还真能嘲讽其他11区游戏
+
+要知道你游一单可抽卡数量在11区手游真的是算多的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 86172#       发表于 2021-12-31 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真挺好。我真试过千石不出的绝望。出保底起码告诉你尽头。不出保底不知道尽头在哪里
+
+*****
+
+####  千叶铁矢  
+##### 86173#       发表于 2021-12-31 22:59
+
+没有大的了，就这啊
+
+*****
+
+####  alucardcz  
+##### 86174#       发表于 2021-12-31 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121315&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-31 22:57</a>
+
+先不说用不用得到，你游这5.3单一井还真能嘲讽其他11区游戏
+
+要知道你游一单可抽卡数量在11区手游真的是算多 ...</blockquote>
+没注意看  这保底是330抽无5星才必出一个当期up 还是无论前面出了多少个5星都会出？
+
+*****
+
+####  exiaexa  
+##### 86175#       发表于 2021-12-31 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121340&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 22:59</a>
+
+没注意看  这保底是330抽无5星才必出一个当期up 还是无论前面出了多少个5星都会出？ ...</blockquote>
+没留意，马上更新了进去看一眼不就行了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 86176#       发表于 2021-12-31 23:00
+
+没看懂，那我第290抽抽出了up五星，这个井会清零吗？如果我290抽抽出了五星但不是up五星，这个井会清零吗？
+
+*****
+
+####  千叶铁矢  
+##### 86177#       发表于 2021-12-31 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121337&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-12-31 22:59</a>
+没有大的了，就这啊</blockquote>
+我还以为像去年月姬r一样还有大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86178#       发表于 2021-12-31 23:00
+
+ 本帖最后由 angelooo 于 2021-12-31 23:02 编辑 
+
+剪影根据鞋子来判断应该有个牛仔之类的人物，最右那个感觉是中国神话从者，其他没法判断了
+
+*****
+
+####  保罗赫伯特  
+##### 86179#       发表于 2021-12-31 23:01
+
+ 本帖最后由 保罗赫伯特 于 2021-12-31 23:04 编辑 
+
+暗之高扬斯凯亚这真是个烂活，你要说是妲己我都考虑抽了。看了一下，还真是把之前剧情空姐制服作为初始了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有懂日语的大佬说说这个保底是一定包出当期up五星吗，还是也可能是常驻五星？这是以后每个池子都有保底，还是只有暗狐的池子有？如果是以后每个池子都有，池子更替保底可以继承吗？
+
+*****
+
+####  壳壳牛  
+##### 86180#       发表于 2021-12-31 23:02
+
+嗯？圣杯可以搓了？
+
+*****
+
+####  白夜羽  
+##### 86181#       发表于 2021-12-31 23:03
+
+震惊！惊闻你游竟然出保底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千石一郎得到官方认证
+
+*****
+
+####  sosgame67  
+##### 86182#       发表于 2021-12-31 23:03
+
+暗狐狸什么烂活哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前奶的人王啥的全没中啊
+
+*****
+
+####  alucardcz  
+##### 86183#       发表于 2021-12-31 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121352&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-31 23:00</a>
+
+没留意，马上更新了进去看一眼不就行了</blockquote>
+看了下截图 没说 只说只保一次  下一个330抽就没保底了。
+
+*****
+
+####  exiaexa  
+##### 86184#       发表于 2021-12-31 23:04
+
+算了下，现在全吃保底抽6宝要32单=5344，1w7~1w8吧
+
+这石头太有病了，经常氪金的应该都知道根本用不了这么多
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86185#       发表于 2021-12-31 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121379&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-31 23:01</a>
+
+暗之高扬斯凯亚这真是个烂活，你要说是妲己我都考虑抽了
+
+有懂日语的大佬说说这个保底是一定包出当期up五星 ...</blockquote>
+所以她出来的时候我内心毫无波动，然后马上被保底冲击了，再然后嘛就是官方认证千石一宝笑死
+
+从某种程度上来说确实是烂活
+
+*****
+
+####  rooarr  
+##### 86186#       发表于 2021-12-31 23:04
+
+沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 86187#       发表于 2021-12-31 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121426&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-31 23:04</a>
+
+算了下，现在全吃保底抽6宝要32单=5344，1w7~1w8吧
+
+这石头太有病了，经常氪金的应该都知道根本用不了这么 ...</blockquote>
+你好 保底只保一次  然后就无效了
+
+*****
+
+####  zore  
+##### 86188#       发表于 2021-12-31 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">红光炮地特攻
+
+*****
+
+####  yangun22  
+##### 86189#       发表于 2021-12-31 23:05
+
+保底就是杜绝了你千石一宝，出了就重头算的，主要是防止你脸太黑
+
+*****
+
+####  里村紅葉  
+##### 86190#       发表于 2021-12-31 23:06
+
+追水荚膜又失败了，虽然NEW个阿荣也不亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
