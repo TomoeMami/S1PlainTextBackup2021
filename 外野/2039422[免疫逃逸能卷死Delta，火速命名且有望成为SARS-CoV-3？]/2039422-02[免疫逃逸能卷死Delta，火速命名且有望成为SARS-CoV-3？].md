@@ -13069,3 +13069,30 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 
 美国前天新增47万，昨天新增57万，加起来两天破百万<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人类  
+##### 2589#       发表于 2021-12-31 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54075691&amp;ptid=2039422" target="_blank">藤岛鸣海 发表于 2021-12-28 14:34</a>
+
+差不多，一天一次，颜色越来越淡，慢慢正常了
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v ...</blockquote>
+三十了吧
+
+这是前列腺炎
+
+*****
+
+####  66666  
+##### 2590#       发表于 2021-12-31 12:49
+
+[https://www.bilibili.com/video/BV1bi4y1R7gw](https://www.bilibili.com/video/BV1bi4y1R7gw)
+
+希望那些认为是流感的人可以看看，哪家流感病毒能突破血脑屏障？还能长期潜伏并突然使人致死？
+
+人类对目前新冠理解还远远不足，鬼才知道新冠入侵人脑后在长期环境下会发生什么
+

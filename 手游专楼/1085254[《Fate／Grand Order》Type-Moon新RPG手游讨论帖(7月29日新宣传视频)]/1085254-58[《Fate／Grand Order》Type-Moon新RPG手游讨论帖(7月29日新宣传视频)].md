@@ -5466,3 +5466,33 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 活动刷了90个石头，今晚可以看看是不是有奇迹了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">你又要豹跳了吗
 
+
+
+*****
+
+####  zakki  
+##### 86011#       发表于 2021-12-31 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112601&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-31 11:54</a>
+FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力强度双爆炸那种。
+
+我奶一个福尔摩斯真名溶解，缝一 ...</blockquote>
+套皮公司罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 86012#       发表于 2021-12-31 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">如果缝合外星人，那我家老福不就原地增值翻倍了么？！
+
+*****
+
+####  rooarr  
+##### 86013#       发表于 2021-12-31 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112962&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 12:25</a>
+
+你又要豹跳了吗</blockquote>
+2单的石头，怎么能算豹呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
