@@ -5207,3 +5207,15 @@ B站动态看见一个观影团连观影特典都整出来了
 
 不过还是没想懂最后那些蓝色晶体代表什么
 
+
+
+*****
+
+####  leleq  
+##### 404#       发表于 2021-12-31 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54106778&amp;ptid=2043629" target="_blank">stevenzero 发表于 2021-12-30 21:38</a>
+
+蕉哥哥在B站、贴吧现在都是热门被迫害对象</blockquote>
+一提蕉哥哥 我现在脑子里都是 顺风狂 逆风急 输了哭唧唧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

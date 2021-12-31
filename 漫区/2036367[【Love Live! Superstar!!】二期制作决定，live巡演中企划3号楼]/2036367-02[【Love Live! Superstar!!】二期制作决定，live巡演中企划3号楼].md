@@ -16900,3 +16900,57 @@ A店限制线下加现金，可能会相对容易一些
 
 经纪人FC上有发文，说Liyuu还因为跳舞跟不上被骂哭过……（没用FC，没看到原文）
 
+
+
+*****
+
+####  ads147147  
+##### 2941#       发表于 2021-12-31 11:31
+
+练舞被骂不是很正常么，也不奇怪鲤鱼姐在和菜宝对谈的时候一脸艰辛，还觉得菜宝在嘲讽她ww，我记得前辈们生放送的时候还说过老师严厉的事。
+
+*****
+
+####  仟音一心  
+##### 2942#       发表于 2021-12-31 11:34
+
+ 本帖最后由 仟音一心 于 2021-12-31 11:36 编辑 
+
+小百合更推
+
+719BBECD-8EF2-4ACE-8DAE-739365FABE7B.jpeg
+(777.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/113546v7xon3hxbjwbw4v4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C768D650-3B88-466A-B12E-15E62ADC4B5A.jpeg
+(728.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/113552ut8tg84wmc8xct9x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5C3E56A1-86AE-4922-A551-47AB39528E6B.jpeg
+(689.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/113559wvhr84yqy5tny4h8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6AD7EF10-0D1E-46CC-821C-CF39C6983A1B.jpeg
+(470.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/113610cd2wgdzcu0vu2i2r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
