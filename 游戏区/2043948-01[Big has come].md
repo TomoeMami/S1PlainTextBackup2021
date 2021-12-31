@@ -9502,3 +9502,14 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也配谈限流？真的脸都不要了 ...</blockquote>
 哪来的狗搁这故意混淆foreign agent跟一般民众，时差是吧
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 860#       发表于 2021-12-31 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54104724&amp;ptid=2043948" target="_blank">欠损 发表于 2021-12-30 19:02</a>
+草，忽然发现我这是踩了个什么。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真的是踩上而不是主动撞上来的吗
+
