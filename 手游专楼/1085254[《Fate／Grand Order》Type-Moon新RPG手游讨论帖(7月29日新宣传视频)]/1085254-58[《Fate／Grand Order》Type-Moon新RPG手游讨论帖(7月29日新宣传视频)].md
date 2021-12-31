@@ -6272,3 +6272,22 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 这个新女角色是原创的吗
 
+
+
+*****
+
+####  白金口袋  
+##### 86096#       发表于 2021-12-31 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118328&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-12-31 05:57</a>
+
+是不是装反手了</blockquote>
+布鲁诺：决斗者就不能有左撇子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 86097#       发表于 2021-12-31 21:10
+
+便宜3D鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

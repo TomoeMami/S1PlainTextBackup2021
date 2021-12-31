@@ -10036,3 +10036,30 @@ ZZ问题交给专业的人吧, 反正也讨论不出来个结果, 反正你也�
 
 “P大点事” “这事不能说得太细” <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ASDZ  
+##### 900#       发表于 2021-12-31 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54105664&amp;ptid=2043948" target="_blank">卿卿雅儿 发表于 2021-12-30 20:10</a>
+实际解决问题的话，网易UU能免费加速steam，包含商店和社区，现在还能用，合法软件不怕网警。 ...</blockquote>
+我看你们说uu可以用，于是试了一下，发现没用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  张献忠  
+##### 901#       发表于 2021-12-31 21:08
+
+最近在看《觉醒年代》，五四的时候胡适提议北大南迁，他觉得这才是真的在乎北大。
+
+*****
+
+####  Hidewhite  
+##### 902#       发表于 2021-12-31 21:22
+
+就P大点事就别顶帖了，还话题越扯越危险了。少个“P大点事不要吵”这种玩意这帖子论坛都会安全很多，赶紧把P大点事的人干死才最合适。啥时候steam好了再把这类人放出来，否则这种人除了给社会和谐添乱没有卵用。 往上不能拍马屁，往下只能引起反感，就他自己自我感觉良好觉得自己智力高超领会上意，实际就这眼力当狗都能当出问题。早个两百年就是乡下老农听到死个皇帝能在那心心相印哭得死了全家的水平。
+
