@@ -6416,3 +6416,109 @@ BA23AC6B-B5B6-4BAD-BB13-A6ECA91D263E.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/31/221709xmn63hrmtnpct3do.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 86109#       发表于 2021-12-31 22:26
+
+剩下的时间不多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 86110#       发表于 2021-12-31 22:33
+
+全语音魔夜来了。。。。
+
+*****
+
+####  空气蛹  
+##### 86111#       发表于 2021-12-31 22:33
+
+卧槽，魔夜全语音？
+
+*****
+
+####  廖化  
+##### 86112#       发表于 2021-12-31 22:33
+
+一个半小时了，一点手游的内容都没有，废狗手游是不是真的要跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86113#       发表于 2021-12-31 22:35
+
+ 本帖最后由 rooarr 于 2021-12-31 22:36 编辑 
+
+这个不是剧场版动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+我错了，居然还是游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  angelooo  
+##### 86114#       发表于 2021-12-31 22:35
+
+有珠啊啊啊啊啊
+
+*****
+
+####  zakki  
+##### 86115#       发表于 2021-12-31 22:36
+
+ 本帖最后由 zakki 于 2021-12-31 22:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120807&amp;ptid=1085254" target="_blank">廖化 发表于 2021-12-31 22:33</a>
+一个半小时了，一点手游的内容都没有，废狗手游是不是真的要跑路了</blockquote>
+这是fate的放送档，不是fgo生放送，每年放放动画，fgo才算是加进来的
+
+*****
+
+####  千叶铁矢  
+##### 86116#       发表于 2021-12-31 22:36
+
+来了来了
+
+*****
+
+####  angelooo  
+##### 86117#       发表于 2021-12-31 22:37
+
+这广告插入时间，我特么以为要联动
+
+*****
+
+####  zore  
+##### 86118#       发表于 2021-12-31 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这桌上的芙芙可真大邪神
+
+*****
+
+####  angelooo  
+##### 86119#       发表于 2021-12-31 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120898&amp;ptid=1085254" target="_blank">zore 发表于 2021-12-31 22:38</a>
+
+这桌上的芙芙可真大邪神</blockquote>
+看过嘉年华再看川澄后面的杜木兹，这种质量也好意思拿出来卖的，现在我好慌角神毛绒的质量
+
+*****
+
+####  exiaexa  
+##### 86120#       发表于 2021-12-31 22:40
+
+魔夜全语音大概就是今晚最大的好消息了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 86121#       发表于 2021-12-31 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1方块1结晶1圣杯
+

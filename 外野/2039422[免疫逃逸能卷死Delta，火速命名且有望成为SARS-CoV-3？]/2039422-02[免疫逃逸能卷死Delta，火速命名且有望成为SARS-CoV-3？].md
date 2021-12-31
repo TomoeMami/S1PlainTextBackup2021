@@ -13364,3 +13364,16 @@ Top 5 states in positivity rates</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2612#       发表于 2021-12-31 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116962&amp;ptid=2039422" target="_blank">yaomingkangde 发表于 2021-12-31 17:45</a>
+不懂单抗就别说了
+
+除了早期研发时的筛选可能从康复者血液或者小鼠平台，</blockquote>
+早期的都是提取的啊……血清疗法了解一下
+

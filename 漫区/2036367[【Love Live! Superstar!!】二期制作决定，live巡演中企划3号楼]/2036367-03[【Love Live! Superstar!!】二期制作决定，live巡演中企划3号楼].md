@@ -1422,3 +1422,255 @@ nagi这个外星人反映www
 
 很迷的组合
 
+
+
+*****
+
+####  stygian  
+##### 3180#       发表于 2021-12-31 22:24
+
+ 本帖最后由 stygian 于 2021-12-31 22:25 编辑 
+
+鱼和切咪见过吗，和爱是一起做过ANN
+
+翻了下wiki做ann时候切咪也在
+
+
+
+*****
+
+####  优妮可  
+##### 3181#       发表于 2021-12-31 22:25
+
+没想到的组合
+
+*****
+
+####  lj205  
+##### 3182#       发表于 2021-12-31 22:25
+
+鲤鱼，对前辈都出警wwwwwwwwwwwwwwwwwwwwwwwwwwww
+
+*****
+
+####  saglork  
+##### 3183#       发表于 2021-12-31 22:26
+
+公然广播水时间还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 3184#       发表于 2021-12-31 22:26
+
+<img src="https://p.sda1.dev/3/74b5e61fcb9244dd62d49e13cdaa0cb8/734F986FF418EB32B4E78E45F4D91D9A.jpg" referrerpolicy="no-referrer">蜜柑外星人👽
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 3185#       发表于 2021-12-31 22:26
+
+放广播怎么都感觉太敷衍了，，，还想看现场三团互动的
+
+*****
+
+####  cybernetics31  
+##### 3186#       发表于 2021-12-31 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要给现场撒尿时间的嘛
+
+*****
+
+####  stygian  
+##### 3187#       发表于 2021-12-31 22:27
+
+下面就是三首ANN单曲连唱了呗，然后再水一下就能倒数了
+
+*****
+
+####  Arccueid  
+##### 3188#       发表于 2021-12-31 22:29
+
+新单曲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chenflyyy  
+##### 3189#       发表于 2021-12-31 22:30
+
+广播中一个个插ann曲感觉也不是很难接受了
+
+*****
+
+####  stygian  
+##### 3190#       发表于 2021-12-31 22:30
+
+喷了，校服裙+tee，造型师怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 3191#       发表于 2021-12-31 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这谁想出来的服装搭配
+
+*****
+
+####  saglork  
+##### 3192#       发表于 2021-12-31 22:31
+
+拼盘live最后都是穿统一的主题t嘛，正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 3193#       发表于 2021-12-31 22:32
+
+<img src="https://p.sda1.dev/3/eb5612d116d8e1b5cb71d30ee6b2a857/IMG_CMP_171135410.jpeg" referrerpolicy="no-referrer">新衣服
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 3194#       发表于 2021-12-31 22:32
+
+还行吧，也不是很难看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3195#       发表于 2021-12-31 22:32
+
+shooting voice！
+下面应该也是两团的广播曲
+
+*****
+
+####  stygian  
+##### 3196#       发表于 2021-12-31 22:34
+
+摄像师是真喜欢pay子啊，镜头给了好多
+
+*****
+
+####  cybernetics31  
+##### 3197#       发表于 2021-12-31 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3198#       发表于 2021-12-31 22:35
+
+现场太好听了，舞也好看！
+
+*****
+
+####  仟音一心  
+##### 3199#       发表于 2021-12-31 22:35
+
+这衣服还行啊
+
+<img src="https://img.saraba1st.com/forum/202112/31/223537an09emtt4i4ktxxd.png" referrerpolicy="no-referrer">
+
+<strong>A6D19921-8F34-4172-80B6-DA1E00B2A94D.png</strong> (115.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/223537l22sg5gki0jkdigd.png" referrerpolicy="no-referrer">
+
+<strong>A6E2AE85-8430-4CB0-B578-04389303F6EA.png</strong> (135.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/223537dz8z48dsa628cd4d.png" referrerpolicy="no-referrer">
+
+<strong>09955F51-F44E-4EE8-B4B5-9141EF10FA12.png</strong> (157.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/223538m0ss7sjssii48a78.png" referrerpolicy="no-referrer">
+
+<strong>E6765599-F634-495F-9F3B-299A62ADABBB.png</strong> (148.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:35 上传
+
+B93EAE96-DD0B-4400-B428-710F80CAF8A8.jpeg
+(181.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/223538ddkqdfdqr0l8orrz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3200#       发表于 2021-12-31 22:36
+
+这件T恤挺好看的
+
+剩下时间唱完ANN三曲就要大合唱收尾
+
+*****
+
+####  普之舜舜  
+##### 3201#       发表于 2021-12-31 22:37
+
+<img src="https://p.sda1.dev/3/11107662311afb18b515585e0f93e92b/-177c974aa99e5034.png" referrerpolicy="no-referrer">
+这哪位大哥，这么猛的呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iuhehc  
+##### 3202#       发表于 2021-12-31 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120887&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2021-12-31 22:37</a>
+
+这哪位大哥，这么猛的呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+一开始就注意到了 超级显眼 这得举了快3小时了 牛的
+
+*****
+
+####  lj205  
+##### 3203#       发表于 2021-12-31 22:40
+
+唱完广播然后欢乐今宵就准备倒数了
+
+*****
+
+####  chenflyyy  
+##### 3204#       发表于 2021-12-31 22:41
+
+ 本帖最后由 chenflyyy 于 2021-12-31 22:42 编辑 
+
+虹这曲子比听的时候感觉闹腾不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arccueid  
+##### 3205#       发表于 2021-12-31 22:41
+
+菜宝说了个没问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

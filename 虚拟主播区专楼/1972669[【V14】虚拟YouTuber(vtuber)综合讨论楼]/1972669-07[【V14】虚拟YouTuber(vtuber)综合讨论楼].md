@@ -9631,3 +9631,12 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  影山银  
+##### 9821#       发表于 2021-12-31 22:20
+
+下半场录像又被版权了？ENKR到底行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
