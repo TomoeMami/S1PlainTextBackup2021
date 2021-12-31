@@ -13471,3 +13471,36 @@ Top 5 states in positivity rates</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2620#       发表于 2022-1-1 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123157&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 00:41</a>
+
+确实只是单抗而不是血清疗法，你有相关的报道佐证你的血清疗法么？
+
+— from Google Pixel 3 XL, Android ...</blockquote>
+这篇可以参考，上次我还跟人吐槽，这帮精英真是吸血鬼。
+
+<img src="https://img.saraba1st.com/forum/202201/01/012641y10ae99lawwdhzai.png" referrerpolicy="no-referrer">
+
+<strong>123.PNG</strong> (139.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 01:26 上传
+
+[https://www.science.org/content/article/heres-what-known-about-president-donald-trump-s-covid-19-treatment](https://www.science.org/content/article/heres-what-known-about-president-donald-trump-s-covid-19-treatment)
+
+*****
+
+####  yaomingkangde  
+##### 2621#       发表于 2022-1-1 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123548&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-1 01:27</a>
+这篇可以参考，上次我还跟人吐槽，这帮精英真是吸血鬼。</blockquote>
+这点真的是误解，这文章说的就是再生元的中和抗体鸡尾酒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

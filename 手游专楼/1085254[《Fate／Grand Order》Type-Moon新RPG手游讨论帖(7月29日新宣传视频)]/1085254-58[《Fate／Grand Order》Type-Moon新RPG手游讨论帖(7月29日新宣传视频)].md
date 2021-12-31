@@ -7798,3 +7798,21 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86268#       发表于 2022-1-1 01:28
+
+说好的发硬币系统没搞出来，倒弄个收割硬币的，有病吧
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  J-002  
+##### 86269#       发表于 2022-1-1 01:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">全部家当50个11连就new剑刷秦良玉两个4星，福袋双黄爷爷女帝，我也不知道该高兴还是掀桌
+
