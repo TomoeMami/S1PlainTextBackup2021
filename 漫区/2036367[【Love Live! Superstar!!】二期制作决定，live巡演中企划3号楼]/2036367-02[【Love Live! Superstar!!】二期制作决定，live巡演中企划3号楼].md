@@ -17142,3 +17142,12 @@ ready steady positive/tiny stars/ku-ru-ku-ru cruller/day1/常夏
 
 20位(8pt) 常夏☆サンシャイン
 
+
+
+*****
+
+####  lj205  
+##### 2955#       发表于 2021-12-31 16:31
+
+星团和其他4人的GOODS都卖完了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

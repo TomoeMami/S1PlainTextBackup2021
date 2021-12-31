@@ -9389,3 +9389,12 @@ pomu开的那个虹人发痴台氛围真好<img src="https://static.saraba1st.co
 
 当然是enkr罪大恶极压榨主播能省则省，统一偶像服也只有参加那场演唱会的优待组才有，故意制造阶级分裂员工，资本本资了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 9795#       发表于 2021-12-31 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一般出道都要等一年以上才能3D化，新3D这种给几个上位势当甜头已经很厉害了
+

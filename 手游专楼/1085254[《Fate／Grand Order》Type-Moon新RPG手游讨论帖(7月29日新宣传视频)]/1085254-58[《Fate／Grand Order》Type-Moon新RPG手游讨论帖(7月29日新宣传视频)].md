@@ -5607,3 +5607,35 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NB他整个免费石也能买福袋 不然跟我这白嫖毫无关系
 
+
+
+*****
+
+####  khxooo  
+##### 86025#       发表于 2021-12-31 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115820&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-31 16:21</a>
+要不这样，“玩家能预想到的事，舍弃”，今年没有福袋</blockquote>
+A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 86026#       发表于 2021-12-31 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5星白送都有过,虽然范围不大
+
+免费石福袋可以期待一下!!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86027#       发表于 2021-12-31 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115953&amp;ptid=1085254" target="_blank">zore 发表于 2021-12-31 16:31</a>
+
+5星白送都有过,虽然范围不大
+
+免费石福袋可以期待一下!!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉关服前都不会出的 
+
