@@ -17087,3 +17087,58 @@ C768D650-3B88-466A-B12E-15E62ADC4B5A.jpeg
 
 虹咲大部分舞蹈都是G-Rabby老师
 
+
+
+*****
+
+####  stygian  
+##### 2954#       发表于 2021-12-31 15:26
+
+ 本帖最后由 stygian 于 2021-12-31 15:28 编辑 
+
+拉板2021拉拉曲投票结果
+
+我个人今年的话top5
+
+ready steady positive/tiny stars/ku-ru-ku-ru cruller/day1/常夏
+
+1位(82pt) 夢がここからはじまるよ
+
+2位(45pt) 私のSymphony
+
+3位(26pt) Day1
+
+4位(26pt) DREAMY COLOR
+
+5位(25pt) KU-RU-KU-RU Cruller!
+
+6位(24pt) MONSTER GIRLS
+
+7位(23pt) Twinkle Town
+
+8位(21pt) Nameless Love Song
+
+9位(14pt) コンセントレイト！
+
+10位(14pt) Tiny Stars
+
+11位(14pt) ミラクル STAY TUNE！
+
+12位(12pt) Not Sad
+
+13位(12pt) あこがれランララン
+
+14位(12pt) 未来予報ハレルヤ！
+
+15位(10pt) Hurray Hurray
+
+16位(10pt) Dream Rainbow
+
+17位(9pt) 未来は風のように
+
+18位(9pt) 心の羽よ君へ飛んでけ！
+
+18位(9pt) I'm Still...　
+
+20位(8pt) 常夏☆サンシャイン
+

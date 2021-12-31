@@ -5542,3 +5542,25 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 非萌已经好久没出过货了  跳不动了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以才会出货啊 明显你的欧气都在积攒准备明天来波大的15呼符来三个五宝
 
+
+
+*****
+
+####  都谷捻柏  
+##### 86018#       发表于 2021-12-31 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115131&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-31 15:21</a>
+
+所以才会出货啊 明显你的欧气都在积攒准备明天来波大的15呼符来三个五宝 ...</blockquote>
+还多个盘子
+
+*****
+
+####  qixinno2  
+##### 86019#       发表于 2021-12-31 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115203&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-31 15:28</a>
+
+还多个盘子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歪个没满宝的常驻不就解决了
+
