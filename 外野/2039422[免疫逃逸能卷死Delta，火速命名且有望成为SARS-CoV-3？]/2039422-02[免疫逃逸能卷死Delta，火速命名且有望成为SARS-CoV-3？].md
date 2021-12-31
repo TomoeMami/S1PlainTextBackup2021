@@ -12170,3 +12170,213 @@ https://www.yixuela.com/books/shengwu/rjb ...</blockquote>
 按照你划的范围，就得看病毒所有种群集合在一起的毒力发展现象。就目前而言，地球上所有的新冠病毒并没有 ...</blockquote>
 不要试图和一个一年来不断明里暗里鼓吹美爹mrna疫苗大法好，疫情不算事躺平就过去了；**疫苗不行，积极抗议得不偿失的思想钢印小丑摆事实讲道理。只要周期性一边看它美爹死的人头滚滚，一边看它表演就行了。
 
+
+
+*****
+
+####  母星  
+##### 2522#       发表于 2021-12-31 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111102&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:00</a>
+
+没啊，原版，ABDO都是新冠基因库里面的一个变种
+
+这也是高中生物书里面写的
+
+https://www.yixuela.com/boo ...</blockquote>
+你说的基因库对于你说的演化链而言是两个东西，新冠病毒基因库有Delta，并不意味着从原始株到omicron演化链上存在Delta这个环节。
+
+*****
+
+####  smy20011  
+##### 2523#       发表于 2021-12-31 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111139&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 10:04</a>
+
+你这么理解就可以..
+
+原版病毒就是猿猴的基础..
+
+然后上面进化出了猴子(D)</blockquote>
+猴子/古人猿/智人不是一个种群啊
+
+*****
+
+####  dllplayer  
+##### 2524#       发表于 2021-12-31 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111102&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:00</a>
+
+没啊，原版，ABDO都是新冠基因库里面的一个变种
+
+这也是高中生物书里面写的
+[https://www.yixuela.com/boo](https://www.yixuela.com/boo) ...</blockquote>错了....求删
+
+*****
+
+####  母星  
+##### 2525#       发表于 2021-12-31 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111102&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:00</a>
+
+没啊，原版，ABDO都是新冠基因库里面的一个变种
+
+这也是高中生物书里面写的
+
+https://www.yixuela.com/boo ...</blockquote>
+就像我们不把尼尔德特人作为现存的人类演化链上的一个环节一样
+
+*****
+
+####  dllplayer  
+##### 2526#       发表于 2021-12-31 10:08
+
+ 本帖最后由 dllplayer 于 2021-12-31 10:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111157&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:06</a>
+
+猴子/古人猿/智人不是一个种群啊</blockquote>
+猴子/古人猿/智人现在不是一个种群啊
+
+6000万年前都是同一个玩意儿..然后分家进化了..
+
+你不能说你现在就是站在新冠的6000万年后..而不是刚好站在分家点上吧
+
+把D和O看成不同的猴子和大猩猩就行..
+
+他们在很久很久之前都是一个新冠的原始病毒的兄弟..然后分家进化了..
+
+这样看就能理解了
+
+他们和者HIV的关系..大概就是猴子和猪之间的关系..和感冒病毒的关系大概就是猴子和鸡之间的关系(误
+
+*****
+
+####  geminixxf  
+##### 2527#       发表于 2021-12-31 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110518&amp;ptid=2039422" target="_blank">喧嚣有梦 发表于 2021-12-31 09:09</a>
+好家伙，一天70万</blockquote>
+这不就巧了么！满50送20，就看死亡人数了，是不是某些人口中的感染力越强，毒性越低。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  smy20011  
+##### 2528#       发表于 2021-12-31 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111150&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:05</a>
+
+你说的基因库对于你说的演化链而言是两个东西，新冠病毒基因库有Delta，并不意味着从原始株到omicron演化 ...</blockquote>
+你说的那个是突变链，由原版突变到B1.1再突变到delta
+
+<img src="https://img.saraba1st.com/forum/202112/31/101054dknhhm8fmhn5jkug.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-30 18.10.38.png</strong> (60.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 10:10 上传
+
+这个突变是完全随机的
+
+*****
+
+####  母星  
+##### 2529#       发表于 2021-12-31 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111107&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:01</a>
+
+这标准是你提出的么？还是说有权威背书？</blockquote>
+我是按照你的说定义来比较的呀，当你认定必须要依照这个物种演化链比较毒力时，那不就是跟原始株比较吗？但是我们一般不用物种演化链比较，都是用的基因型的演化路径来比较毒性。
+
+*****
+
+####  smy20011  
+##### 2530#       发表于 2021-12-31 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111189&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 10:08</a>
+
+猴子/古人猿/智人现在不是一个种群啊
+
+6000万年前都是同一个玩意儿..然后分家进化了..
+
+你不能说你现在就是 ...</blockquote>
+那就是说，现在这个病毒不叫做sars-cov2而是叫做sara-cov-delta和sara-cov-omicron？
+
+*****
+
+####  smy20011  
+##### 2531#       发表于 2021-12-31 10:16
+
+ 本帖最后由 smy20011 于 2021-12-31 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111239&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:13</a>
+
+我是按照你的说定义来比较的呀，当你认定必须要依照这个物种演化链比较毒力时，那不就是跟原始株比较吗？ ...</blockquote>
+我说的是，病毒毒力比较的时候，必须和原版毒株比较这一方法，是广泛应用在研究当中么？
+
+你说
+ <blockquote>我们一般不用物种演化链比较，都是用的基因型的演化路径来比较毒性</blockquote>请问有相关研究佐证么？我目前看到的所有毒力相关的论文，都有和delta毒力（住院人数，组织繁殖频率）相比较的内容。如果你说一般都用基因型进行比较的话，这种论文就不应该提及delta啊
+
+*****
+
+####  母星  
+##### 2532#       发表于 2021-12-31 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111221&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:11</a>
+
+你说的那个是突变链，由原版突变到B1.1再突变到delta</blockquote>
+你说的这条突变链，不也是沿着毒性增强路线走的呀？而我们在演化链上看到也是这个现象吧。
+
+*****
+
+####  dllplayer  
+##### 2533#       发表于 2021-12-31 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111221&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:11</a>
+
+你说的那个是突变链，由原版突变到B1.1再突变到delta</blockquote>
+是随机的啊....结果有些没活下来..
+
+有些活下来了...活下来的比之前的更强....人类觉得他们太强了..给他们单独起了个名叫D
+
+没活下来的..没活下来的那就没活下来..
+
+而且因为是病毒..变异非常快..每次复制都在变..只是变完后..有些没影响(还叫原始株)..有些更强了(可以传播到其他器官了)..有些更弱了(还没能感染其他器官就被免疫系统给干掉了)..这就是所谓的适者生存..
+
+*****
+
+####  dllplayer  
+##### 2534#       发表于 2021-12-31 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111272&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:15</a>
+
+那就是说，现在这个病毒不叫做sars-cov2而是叫做sara-cov-delta和sara-cov-omicron？ ...</blockquote>
+你在6000万光年外看地球..找到了地球上的古代灵长目...因为未卜先知...发现了这窝灵长目里有两只..他们分别是猴子和大猩猩的起源..于是...你给他们两只编号..一只叫DELTA 另一只叫omicron 
+
+这窝灵长目的起源动物被统称为sars-cov2
+
+*****
+
+####  母星  
+##### 2535#       发表于 2021-12-31 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111284&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:16</a>
+
+我说的是，病毒毒力比较的时候，必须和原版毒株比较这一方法，是广泛应用在研究当中么？ ...</blockquote>
+这不是方法，而是事实，因为你想否定之前的那些结论，就必须要有一个实例证明沿着原始株各个基因型演化路劲走的病毒呈现出毒力下降的趋向，要不然你怎么反驳的那个结论呢，不能靠假设吧
+
+*****
+
+####  dllplayer  
+##### 2536#       发表于 2021-12-31 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111284&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:16</a>
+
+我说的是，病毒毒力比较的时候，必须和原版毒株比较这一方法，是广泛应用在研究当中么？
+
+你说</blockquote>
+你抓了一只大猩猩和猴子做研究..
+
+发现猴子力量弱..大猩猩力量强..
+
