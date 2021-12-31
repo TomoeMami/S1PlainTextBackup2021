@@ -17557,3 +17557,52 @@ MC互动能不能也多搞点<img src="https://static.saraba1st.com/image/smiley
 
 打铁开始有点力不从心了。。。演完好好休息一礼拜吧
 
+
+
+*****
+
+####  优妮可  
+##### 2995#       发表于 2021-12-31 20:44
+
+可能紧张加激动吧
+
+*****
+
+####  努斯万克  
+##### 2996#       发表于 2021-12-31 20:44
+
+灯怎么了
+
+*****
+
+####  任天索尼子  
+##### 2997#       发表于 2021-12-31 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118952&amp;ptid=2036367" target="_blank">努斯万克 发表于 2021-12-31 20:44</a>
+
+灯怎么了</blockquote>
+腿受伤了，以后都不能跳舞了基本上
+
+*****
+
+####  仟音一心  
+##### 2998#       发表于 2021-12-31 20:47
+
+穿OP这身nonfiction！第一次！
+
+*****
+
+####  stygian  
+##### 2999#       发表于 2021-12-31 20:48
+
+pay子今天状态真不错
+
+果然day1，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 3000#       发表于 2021-12-31 20:49
+
+哇，这么多首一块上啊
+

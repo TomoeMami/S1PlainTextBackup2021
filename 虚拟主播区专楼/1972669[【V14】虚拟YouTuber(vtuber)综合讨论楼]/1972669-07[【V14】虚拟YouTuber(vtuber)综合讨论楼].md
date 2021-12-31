@@ -9468,3 +9468,21 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 还是虹男人选曲有东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 9804#       发表于 2021-12-31 20:45
+
+到底是按什么分的场次…总之热闹起来了
+
+*****
+
+####  lor  
+##### 9805#       发表于 2021-12-31 20:52
+
+上半冥府ysssトンデモワンダーズ 下半饼饼SMC和lizean，歌谣祭真好<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
