@@ -3239,3 +3239,16 @@ A：是的，不过该运营已经接受了运营组和成员们狠狠的拷打�
 
 怎么有种要好起来的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4833#       发表于 2021-12-31 12:35
+
+太正规了我的天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那天运营出道当第六人吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

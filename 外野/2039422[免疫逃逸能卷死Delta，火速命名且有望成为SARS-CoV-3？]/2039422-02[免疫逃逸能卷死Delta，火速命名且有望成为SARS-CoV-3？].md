@@ -13031,3 +13031,41 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  钦念以忱  
+##### 2585#       发表于 2021-12-31 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54091504&amp;ptid=2039422" target="_blank">小野賢章 发表于 2021-12-29 18:45</a>
+
+本来美国可以不汇总数据的，都是一亩三分地坏事做尽，让美国下不了台 ...</blockquote>
+还有约翰霍普金斯大学的华人留学生。
+
+*****
+
+####  creymorgan  
+##### 2586#       发表于 2021-12-31 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112916&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 12:20</a>
+
+所以多打疫苗，开发特效药，增加床位。以防下一个变种roll出一个更加严重的。
+
+至于物理隔离，全世界大概 ...</blockquote>
+重点，不搞帝国主义。
+
+*****
+
+####  Dreki  
+##### 2587#       发表于 2021-12-31 12:37
+
+蚌埠住了，拿高中生物在这汴京半天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lexi  
+##### 2588#       发表于 2021-12-31 12:39
+
+美国前天新增47万，昨天新增57万，加起来两天破百万<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -16967,3 +16967,64 @@ C768D650-3B88-466A-B12E-15E62ADC4B5A.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 2944#       发表于 2021-12-31 12:22
+
+缪斯时期llw的编舞老师就是特别严格的，不知道哪位老师现在是教谁跳舞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  秋月艾莉  
+##### 2945#       发表于 2021-12-31 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112641&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-12-31 11:57</a>
+
+牛舌是什么时候的梗？
+
+—— 来自 S1Fun</blockquote>
+就这期ANN在聊，心心念念要去宫城大恰一通
+
+这图倒是几个月之前的了，就是作者整活
+
+*****
+
+####  lj205  
+##### 2946#       发表于 2021-12-31 12:27
+
+<img src="https://img.saraba1st.com/forum/202112/31/122617o88pe8apkcn0lz22.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A96643F1-ADBB-4FBF-96D9-37B20D229172.jpeg</strong> (304.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 12:26 上传
+
+同时还要学日语
+
+鲤鱼我的超鱼
+
+*****
+
+####  player3960  
+##### 2947#       发表于 2021-12-31 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112932&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2021-12-31 12:22</a>
+
+缪斯时期llw的编舞老师就是特别严格的，不知道哪位老师现在是教谁跳舞
+
+—— 来自 HUAWEI SPN-AL00, ...</blockquote>
+星团的老师就是她吧，之前上三森的广播好像提到过
+
+*****
+
+####  stygian  
+##### 2948#       发表于 2021-12-31 12:33
+
+石川ゆみ，整个系列基本上舞蹈部分都是她负责，虹solo倒是不清楚，团队曲也是她编的
+
