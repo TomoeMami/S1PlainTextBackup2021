@@ -451,3 +451,503 @@ pay子前几首太亮了
 
 虹真轻松………………我甚至也轻松的喝起茶……………………
 
+
+
+*****
+
+####  stygian  
+##### 3059#       发表于 2021-12-31 21:21
+
+久保田这就没在调上<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 3060#       发表于 2021-12-31 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">习惯了
+
+
+
+*****
+
+####  仟音一心  
+##### 3061#       发表于 2021-12-31 21:22
+
+未梦不愧色气担当
+
+*****
+
+####  cybernetics31  
+##### 3062#       发表于 2021-12-31 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然还是切咪最稳
+
+*****
+
+####  普之舜舜  
+##### 3063#       发表于 2021-12-31 21:22
+
+哀温？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Arccueid  
+##### 3064#       发表于 2021-12-31 21:23
+
+确实是，不过有点绷不住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 3065#       发表于 2021-12-31 21:24
+
+秀和菜谁要成为压轴幸运儿/倒霉蛋
+
+菜宝了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3066#       发表于 2021-12-31 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹这有点好  各种衣服很多
+
+*****
+
+####  Arccueid  
+##### 3067#       发表于 2021-12-31 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54119537&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 21:24</a>
+秀和菜谁要成为压轴幸运儿/倒霉蛋</blockquote>
+哈哈菜宝
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 3068#       发表于 2021-12-31 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54119537&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 21:24</a>
+秀和菜谁要成为压轴幸运儿/倒霉蛋</blockquote>
+不是秀
+
+*****
+
+####  普之舜舜  
+##### 3069#       发表于 2021-12-31 21:25
+
+I‘m still！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 3070#       发表于 2021-12-31 21:25
+
+秀这身挺好的，菜宝那身就很一言难尽了，真不适合
+
+*****
+
+####  普之舜舜  
+##### 3071#       发表于 2021-12-31 21:26
+
+菜宝会唱女儿国还是夜明珠呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 3072#       发表于 2021-12-31 21:26
+
+这英文！这英文！！！！！！！！！！！！1
+
+*****
+
+####  stygian  
+##### 3073#       发表于 2021-12-31 21:26
+
+运营行行好下专给菜宝换个风格，从造型到曲子都得调
+
+*****
+
+####  中野四葉  
+##### 3074#       发表于 2021-12-31 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">秀现场还行啊，之前看别人黑屁的我还以为会是什么车祸现场
+
+*****
+
+####  wsdbyh  
+##### 3075#       发表于 2021-12-31 21:26
+
+辣炒米粉来了
+
+*****
+
+####  Arccueid  
+##### 3076#       发表于 2021-12-31 21:27
+
+秀和菜宝都还可以的啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 3077#       发表于 2021-12-31 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草了 菜宝这穿的啥啊
+
+*****
+
+####  dd950728  
+##### 3078#       发表于 2021-12-31 21:28
+
+菜宝唱的挺好，就是这身实在是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3079#       发表于 2021-12-31 21:28
+
+ 本帖最后由 chenflyyy 于 2021-12-31 21:30 编辑 
+
+菜宝这现场还行吧，除了造型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3080#       发表于 2021-12-31 21:28
+
+菜宝现场还可以啊
+
+*****
+
+####  stygian  
+##### 3081#       发表于 2021-12-31 21:28
+
+演的凑合。。。就是这造型真的看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这腰的裁剪迫真公开处刑
+
+*****
+
+####  lj205  
+##### 3082#       发表于 2021-12-31 21:29
+
+菜宝可以的可以的，就是最后没金鸡独立<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">鲤鱼快去笑她
+
+*****
+
+####  cybernetics31  
+##### 3083#       发表于 2021-12-31 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这身着实不行
+
+*****
+
+####  仟音一心  
+##### 3084#       发表于 2021-12-31 21:29
+
+差一点
+
+<img src="https://img.saraba1st.com/forum/202112/31/212954k9awam0hau022ad1.png" referrerpolicy="no-referrer">
+
+<strong>3FEED3F3-F4ED-480A-A57B-C421EEDC2931.png</strong> (306.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 21:29 上传
+
+*****
+
+####  wsdbyh  
+##### 3085#       发表于 2021-12-31 21:30
+
+这衣服裁剪的把菜宝的身材弄得像水桶一样
+
+*****
+
+####  starring  
+##### 3086#       发表于 2021-12-31 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">菜宝这造型还是hold不住
+
+*****
+
+####  iuhehc  
+##### 3087#       发表于 2021-12-31 21:30
+
+菜宝这衣服啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3088#       发表于 2021-12-31 21:31
+
+菜宝这身我的评价：少年英雄小哪吒
+
+*****
+
+####  稀勢のささ  
+##### 3089#       发表于 2021-12-31 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">背后还整个披风？ 干脆整个全身甲上去算了
+
+*****
+
+####  CAserlumos  
+##### 3090#       发表于 2021-12-31 21:31
+
+多来点跨团mc啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  中野四葉  
+##### 3091#       发表于 2021-12-31 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">完了完了 要公开处刑了
+
+*****
+
+####  Arccueid  
+##### 3092#       发表于 2021-12-31 21:31
+
+草这转圈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 3093#       发表于 2021-12-31 21:33
+
+秀的很亮眼，菜宝的动画二期改下造型吧2333
+
+*****
+
+####  普之舜舜  
+##### 3094#       发表于 2021-12-31 21:33
+
+谢谢大家！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 3095#       发表于 2021-12-31 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以夜明珠那身不更好吗
+
+*****
+
+####  stygian  
+##### 3096#       发表于 2021-12-31 21:35
+
+完蛋，音响师怎么回事，这都能出错？
+
+*****
+
+####  dd950728  
+##### 3097#       发表于 2021-12-31 21:35
+
+草，音响问题？
+
+*****
+
+####  player3960  
+##### 3098#       发表于 2021-12-31 21:35
+
+虽然说出来不解风情，但其实菜宝这种情况减肥可破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  普之舜舜  
+##### 3099#       发表于 2021-12-31 21:35
+
+这个歌曲有问题？听起来节奏不对？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 3100#       发表于 2021-12-31 21:35
+
+刚刚那首听起来怎么怪怪的呀？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  稀勢のささ  
+##### 3101#       发表于 2021-12-31 21:36
+
+还以为我耳朵坏了
+
+*****
+
+####  chenflyyy  
+##### 3102#       发表于 2021-12-31 21:36
+
+星上来了，还是有跨团mc的
+
+*****
+
+####  仟音一心  
+##### 3103#       发表于 2021-12-31 21:36
+
+三团mc？
+
+*****
+
+####  stygian  
+##### 3104#       发表于 2021-12-31 21:36
+
+耳返里给的时间和会场音响里放的不同步，直接错开了
+
+*****
+
+####  寒风夜  
+##### 3105#       发表于 2021-12-31 21:37
+
+呃呃 全一半
+
+*****
+
+####  stygian  
+##### 3106#       发表于 2021-12-31 21:37
+
+最高和最低还行
+
+*****
+
+####  中野四葉  
+##### 3107#       发表于 2021-12-31 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们俩能站一块吗
+
+*****
+
+####  dd950728  
+##### 3108#       发表于 2021-12-31 21:37
+
+出现了！
+
+*****
+
+####  chenflyyy  
+##### 3109#       发表于 2021-12-31 21:37
+
+草这身高差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saglork  
+##### 3110#       发表于 2021-12-31 21:37
+
+146和168<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3111#       发表于 2021-12-31 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶意
+
+*****
+
+####  仟音一心  
+##### 3112#       发表于 2021-12-31 21:37
+
+终极身高差！！！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 3113#       发表于 2021-12-31 21:37
+
+最萌身高差，笑死我了哈哈哈哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TRIScRE  
+##### 3114#       发表于 2021-12-31 21:38
+
+<img src="https://img.saraba1st.com/forum/202112/31/213805ij0x6odi706n6nyy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211231213727.png</strong> (465.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 21:38 上传
+
+最高和最矮
+
+*****
+
+####  cybernetics31  
+##### 3115#       发表于 2021-12-31 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">效果来了
+
+*****
+
+####  lj205  
+##### 3116#       发表于 2021-12-31 21:38
+
+笑疯了
+
+*****
+
+####  iuhehc  
+##### 3117#       发表于 2021-12-31 21:38
+
+世界名画 146|167
+
+*****
+
+####  仟音一心  
+##### 3118#       发表于 2021-12-31 21:39
+
+整活组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3119#       发表于 2021-12-31 21:39
+
+鲤鱼还要叫上打铁
+
+*****
+
+####  仟音一心  
+##### 3120#       发表于 2021-12-31 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54119768&amp;ptid=2036367" target="_blank">TRIScRE 发表于 2021-12-31 21:38</a>
+
+最高和最矮</blockquote>
+带孩子
+
+23F2F140-F11A-4044-AA74-A09C99F0F71E.jpeg
+(746.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/213957m8mjxmqax19xc1mb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
