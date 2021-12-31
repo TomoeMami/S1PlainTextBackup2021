@@ -5426,3 +5426,17 @@ ccc里也说了不要把她和妲己那个狐狸相提并论
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">村正我跳过了。这次说不定也会跳
 
+
+
+*****
+
+####  Jamaisvu  
+##### 86008#       发表于 2021-12-31 11:54
+
+ 本帖最后由 Jamaisvu 于 2021-12-31 12:03 编辑 
+
+FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力强度双爆炸那种。
+
+我奶一个福尔摩斯真名溶解，缝一个克苏鲁外神，然后档案吃书+neta尼尔盖曼那本同人，三技能就叫“绿字的研究”，直接化身新绿拐。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过假若真的缝合外神了，根据小说内容，真名溶解的应该是异闻带莫里亚蒂...
+

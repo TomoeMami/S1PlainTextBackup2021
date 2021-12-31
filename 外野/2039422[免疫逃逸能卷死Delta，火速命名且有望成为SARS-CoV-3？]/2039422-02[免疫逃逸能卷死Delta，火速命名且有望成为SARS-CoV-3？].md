@@ -12941,3 +12941,23 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 
 死亡人数没有同比例增加就接着舞就行了
 
+
+
+*****
+
+####  creymorgan  
+##### 2578#       发表于 2021-12-31 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111911&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 11:03</a>
+
+那你怎么解释，omicron和delta对比，载毒量变大，免疫抑制更强，然而比delta更加轻微这点呢？
+
+也就是说， ...</blockquote>
+不能决定
+
+但不叫不能判断
+
+如果说抛弃具体参数只说实例的话
+
+古代也有流感，但是1918特别厉害。
+

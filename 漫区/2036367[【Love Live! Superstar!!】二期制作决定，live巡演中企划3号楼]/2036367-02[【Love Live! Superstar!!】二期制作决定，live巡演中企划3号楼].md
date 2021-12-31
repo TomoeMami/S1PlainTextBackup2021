@@ -16954,3 +16954,16 @@ C768D650-3B88-466A-B12E-15E62ADC4B5A.jpeg
 
 <img src="https://img.saraba1st.com/forum/202112/31/113610cd2wgdzcu0vu2i2r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Karin11974  
+##### 2943#       发表于 2021-12-31 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110359&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2021-12-31 08:56</a>
+才听完ann，说起牛舌就想起这张タン食ぅ食ぅ</blockquote>
+牛舌是什么时候的梗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
