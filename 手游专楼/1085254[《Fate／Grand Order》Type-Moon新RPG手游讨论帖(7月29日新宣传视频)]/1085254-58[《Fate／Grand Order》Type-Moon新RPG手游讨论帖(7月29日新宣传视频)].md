@@ -5936,3 +5936,124 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 这么短时间应该不能临时改剧本吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86062#       发表于 2021-12-31 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决战礼装都不拿圣剑的么
+
+*****
+
+####  angelooo  
+##### 86063#       发表于 2021-12-31 18:07
+
+<blockquote>zakki 发表于 2021-12-31 17:59
+那边还觉得新语音是他们冲出来的</blockquote>
+是的，我看到这个差点没把头笑掉
+
+*****
+
+####  不垃圾屌丝  
+##### 86064#       发表于 2021-12-31 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54085934&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-12-29 11:24</a>
+エピローグの不安要素
+①霊裳大社って結局何？
+②コヤンとホームズの関係</blockquote>
+结果看来回收了1.5个？
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  都谷捻柏  
+##### 86065#       发表于 2021-12-31 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼禄算不算月姬R废案
+
+*****
+
+####  alucardcz  
+##### 86066#       发表于 2021-12-31 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117165&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-12-31 18:04</a>
+
+现在看起来她就是单纯失忆了
+
+这么短时间应该不能临时改剧本吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有那种可能  剧本不是连贯写的 中间干了很长时间其他事情 最后忘记了  就像那些把伏笔彻底忘了的连载漫画一样
+
+*****
+
+####  nixidek  
+##### 86067#       发表于 2021-12-31 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117017&amp;ptid=1085254" target="_blank">J-002 发表于 2021-12-31 17:50</a>
+
+265光点没消失，麻婆轮到你了（拍肩）
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+麻婆去2.7了，2.65必然和麻婆没关系
+
+*****
+
+####  angelooo  
+##### 86068#       发表于 2021-12-31 18:13
+
+说起来为什么没有人给伊吹道歉啊，一堆人脑补她要和女娲缝要和妲己缝，还义愤填膺地说什么去区区小蛇精竟敢碰瓷女娲大神（不是，看过封神小说的人真的会觉得这个女娲是我们平时认知的那位吗？不然为什么阐教那帮老家伙网上被喷了那么多年23333），人大姐姐一路跟着提供优质助战和高额buff，太特么可靠了，凭什么要被从头黑到尾啊艹，所以我早说了把笔给某些人他们写出来的剧情要恶心十倍
+
+*****
+
+####  alucardcz  
+##### 86069#       发表于 2021-12-31 18:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">换个思路 265打大总统 反正也没人觉得她是最终boss
+
+*****
+
+####  都谷捻柏  
+##### 86070#       发表于 2021-12-31 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117266&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-31 18:13</a>
+
+说起来为什么没有人给伊吹道歉啊，一堆人脑补她要和女娲缝要和妲己缝，还义愤填膺地说什么去区区小蛇精竟敢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你不知道有一个地方，武藏和雷太画的女人是过街老鼠吗
+
+
+
+*****
+
+####  qixinno2  
+##### 86071#       发表于 2021-12-31 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口2.65讲的是光之高扬斯卡娅怎么蹦出来的和给咕哒手中的圣剑附魔
+
+*****
+
+####  保罗赫伯特  
+##### 86072#       发表于 2021-12-31 18:16
+
+玛丽所长一股谐星味，如果最终boss是她真是一点紧张感都没有<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86073#       发表于 2021-12-31 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117293&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-12-31 18:15</a>
+
+你不知道有一个地方，武藏和雷太画的女人是过街老鼠吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是太瑟了吗 可伊吹也不瑟啊
+
+*****
+
+####  v22325  
+##### 86074#       发表于 2021-12-31 18:23
+
+<blockquote>alucardcz 发表于 2021-12-31 18:19
+是太瑟了吗 可伊吹也不瑟啊</blockquote>
+伊吹还是很色的  灵2巨乳童贞杀毛衣人外紫皮醉酒大姐姐  我图都收了好多了  
+

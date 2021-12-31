@@ -9925,3 +9925,52 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 过墙梯计划指翻墙军备竞赛
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LHO  
+##### 892#       发表于 2021-12-31 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117131&amp;ptid=2043948" target="_blank">‮agur4kI 发表于 2021-12-31 18:01</a>
+
+过墙梯计划指翻墙军备竞赛</blockquote>
+不太懂, 军备竞赛是说门的升级带动了墙的升级, 所以就等同于轮子参与了墙的开发?
+
+*****
+
+####  caupollen  
+##### 893#       发表于 2021-12-31 18:10
+
+ 本帖最后由 caupollen 于 2021-12-31 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117089&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-31 17:57</a>
+
+别有用心的把这游戏的介绍页面加上截图往工信部一放, 绝对上黑名单.</blockquote>
+投诉到了steam自己会把这游戏锁了的
+
+*****
+
+####  LHO  
+##### 894#       发表于 2021-12-31 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117131&amp;ptid=2043948" target="_blank">‮agur4kI 发表于 2021-12-31 18:01</a>
+
+过墙梯计划指翻墙军备竞赛</blockquote>
+我重看了一下, 是我眼拙. 原来是过墙梯. 抱歉.
+
+你说的那个防范某些工具可能是轮子搞的这种, 一个是用专用游戏用的工具, 比如uu这类或者很多外服网游玩家用的多年老牌子厂商 
+
+还有一种最简单的防范方式(对普通人来讲), 其实反而是所谓的网上盛传的钓鱼梯. 为什么呢, 钓鱼梯的最明显特征是, 他的主页域名几乎不会被封, 一直是可以直连, 通常就算特殊时期, 他也很少被断. 这也是为什么他们说这是TG用来钓鱼的梯子, 其实不用那么阴谋论, 这类梯子就是实际上实行注册制以后, 正规注册的工具提供商(当然不能排除有可能TG用来钓鱼), 那么如果是这种, 普通玩家,或者说普通用户用这类就好了. 而这类很难是轮子那帮人搞的.
+
+无论轮子还是1450这类人, 作为普通网民来说, 几乎没有能够反击反制能力的(那些是真有资金和美国技术在支撑的. 甚至现在很多都是机器人),真正有效的只有靠相关部门行动, 相关部门搞他们还是很有力度的.
+
+*****
+
+####  白鸟雪音  
+##### 895#       发表于 2021-12-31 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116142&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-31 16:46</a>
+
+再多说一句上面那些回我的, 我为什么说'狗洞论'是别有用心别跟着走, 稍微多想一下,'狗洞论'讨论到最后什么 ...</blockquote>
+有没有那么一种可能，就是墙这个东西确实是“tgxxx”<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
