@@ -5219,3 +5219,26 @@ B站动态看见一个观影团连观影特典都整出来了
 蕉哥哥在B站、贴吧现在都是热门被迫害对象</blockquote>
 一提蕉哥哥 我现在脑子里都是 顺风狂 逆风急 输了哭唧唧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuliaozheX  
+##### 405#       发表于 2021-12-31 13:34
+
+其实我有点好奇蕉哥在车上跟华恋讲的，你也吃了很多香蕉蛋糕香蕉布丁那句是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+是你的问题我无法解决只能靠你自己，还是我能理解你的无助但我没法帮你什么的
+有没有大手来分析分析
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ardito  
+##### 406#       发表于 2021-12-31 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101133&amp;ptid=2043629" target="_blank">550616 发表于 2021-12-30 14:27</a>
+
+这次剧场版让官方错误估计热度，赶快把第二季吐出来，砍掉的那80%部分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看tv版泥潭的评分楼回复跟本楼一比，变化令人沉默
+

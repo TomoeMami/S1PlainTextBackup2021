@@ -9857,3 +9857,12 @@ mk2这货还问我要不要，反正原因就是跟他马子有关<img src="http
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  JY要塞  
+##### 7132#       发表于 2021-12-31 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然有4.3万
+

@@ -13112,3 +13112,31 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 
 流感的脑炎也算是并发症之一
 
+
+
+*****
+
+####  smy20011  
+##### 2592#       发表于 2021-12-31 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113126&amp;ptid=2039422" target="_blank">Dreki 发表于 2021-12-31 12:37</a>
+
+蚌埠住了，拿高中生物在这汴京半天</blockquote>
+有些问题确实是高中生物的常识性问题。。
+
+*****
+
+####  天使日又日  
+##### 2593#       发表于 2021-12-31 13:36
+
+美帝有没有统计有多少是重复感染不同变种的
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  烦死了  
+##### 2594#       发表于 2021-12-31 13:38
+
+死亡率费拉不堪，坛友汴京正酣
+
