@@ -7334,3 +7334,230 @@ BA23AC6B-B5B6-4BAD-BB13-A6ECA91D263E.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">茨木+1金钻头+1 GG
 
+
+
+*****
+
+####  zore  
+##### 86217#       发表于 2021-12-31 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这保底只管0-1啊,到了1就不管了
+
+有啥屁用
+
+*****
+
+####  khxooo  
+##### 86218#       发表于 2021-12-31 23:24
+
+福袋仇凛补宝，算是不亏吧。
+
+*****
+
+####  当光停止  
+##### 86219#       发表于 2021-12-31 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗狐应该是能跟双杀狐啥的凑个整活三狐狸队的。
+
+暗狐2技能带宝具蓄力+2，杀狐宝具3蓄力正好群冲20。
+
+*****
+
+####  pissca  
+##### 86220#       发表于 2021-12-31 23:25
+
+圣诞CBA沉船没课，福袋抽到了，挺好
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  angelooo  
+##### 86221#       发表于 2021-12-31 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121720&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-12-31 23:22</a>
+
+其实我想说有点垃圾的</blockquote>
+那我前面的说法依然成立<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 86222#       发表于 2021-12-31 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121639&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-12-31 23:17</a>
+
+圣杯铸造怎么说</blockquote>
+在商店里的新功能，拿从者硬币换圣杯，一个月能换两次，一次好像是要2000硬币（什么星级从者的硬币都行）
+
+*****
+
+####  黑上シグマ  
+##### 86223#       发表于 2021-12-31 23:26
+
+想抽红ex那组，魔王和霸王花都是new
+
+但…………剩下那仨都是3宝，我抽不下去啊老师orz
+
+*****
+
+####  枪聆弹语  
+##### 86224#       发表于 2021-12-31 23:26
+
+这根本不是天井，天井是抽够这么多送一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对没钱手还贱的完全没用
+
+*****
+
+####  黑上シグマ  
+##### 86225#       发表于 2021-12-31 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121802&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-12-31 23:26</a>
+
+这根本不是天井，天井是抽够这么多送一个对没钱手还贱的完全没用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你对天井是不是有什么误解？
+
+*****
+
+####  exiaexa  
+##### 86226#       发表于 2021-12-31 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121802&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-12-31 23:26</a>
+
+这根本不是天井，天井是抽够这么多送一个对没钱手还贱的完全没用</blockquote>
+你可能被手游的捶打还不够多
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 86227#       发表于 2021-12-31 23:31
+
+150石出了狐狸，算可以吧。
+
+*****
+
+####  exiaexa  
+##### 86228#       发表于 2021-12-31 23:32
+
+这NM绝对是我抽过四星最多的新年，每单4-5个，跟不要钱一样跳出来浪费感情
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86229#       发表于 2021-12-31 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好气 为什么只有萌新受伤 福袋沉暗狐也沉了
+
+*****
+
+####  areklose  
+##### 86230#       发表于 2021-12-31 23:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">果然我的余额用不了。万恶的谷歌只能找代充了
+
+*****
+
+####  莫夜戎  
+##### 86231#       发表于 2021-12-31 23:36
+
+福袋如愿抽到了摩根，我还是喜欢小姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凌云三才  
+##### 86232#       发表于 2021-12-31 23:36
+
+今年这个日替真的拉中拉..一个吸引人的都没有
+
+*****
+
+####  rooarr  
+##### 86233#       发表于 2021-12-31 23:36
+
+真的就是抽到保底才出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86234#       发表于 2021-12-31 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122002&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-31 23:36</a>
+
+真的就是抽到保底才出</blockquote>
+? 你已经这么快330抽了?
+
+*****
+
+####  rooarr  
+##### 86235#       发表于 2021-12-31 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122006&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 23:37</a>
+? 你已经这么快330抽了?</blockquote>
+是啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枪聆弹语  
+##### 86236#       发表于 2021-12-31 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121881&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-31 23:31</a>
+
+你可能被手游的捶打还不够多</blockquote>
+这种宝具类的330抽还是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还只管一次
+
+*****
+
+####  qixinno2  
+##### 86237#       发表于 2021-12-31 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122015&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-31 23:37</a>
+
+是啊就歪了个屁屁枪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">YLS的怜悯
+
+*****
+
+####  zore  
+##### 86238#       发表于 2021-12-31 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉也就抽大拐比较有用了
+
+*****
+
+####  rooarr  
+##### 86239#       发表于 2021-12-31 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122043&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-31 23:39</a>
+YLS的怜悯</blockquote>
+这下谁对保底有意见我打死他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 86240#       发表于 2021-12-31 23:40
+
+tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
+
+*****
+
+####  qixinno2  
+##### 86241#       发表于 2021-12-31 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122069&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-31 23:40</a>
+
+这下谁对保底有意见我打死他</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 反正是对我来说毫无用处的东西 常年石不过三根本无法触发
+
+*****
+
+####  alucardcz  
+##### 86242#       发表于 2021-12-31 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122099&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-31 23:41</a>
+
+笑死 反正是对我来说毫无用处的东西 常年石不过三根本无法触发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁千里眼肯定要赞扬yls了  存起来有头了 不会翻了
+

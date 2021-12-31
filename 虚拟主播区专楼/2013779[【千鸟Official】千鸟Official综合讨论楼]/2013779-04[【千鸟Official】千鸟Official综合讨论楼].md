@@ -3345,3 +3345,50 @@ syl 一月在吱吱隔离结束前完成搬家，文静回到千鸟宿舍，发�
 
 做不了就摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">太真实了
 
+
+
+*****
+
+####  人民de救星  
+##### 4845#       发表于 2021-12-31 23:24
+
+还得是珺神
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 4846#       发表于 2021-12-31 23:25
+
+ 本帖最后由 rgauss 于 2021-12-31 23:29 编辑 
+
+什么骗大米，运营听了立马办新的手机号
+
+syl 文静什么压力怪
+
+*****
+
+####  夜潇箫  
+##### 4847#       发表于 2021-12-31 23:32
+
+文静睡过头，错过珈乐装扮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4848#       发表于 2021-12-31 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121923&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-12-31 23:32</a>
+
+文静睡过头，错过珈乐装扮了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她会买小号的，乃琳的就拿了个。不过文静应该更推乃琳，珈乐的应该对她来说不是那么重要
+
+*****
+
+####  rgauss  
+##### 4849#       发表于 2021-12-31 23:36
+
+文静 铁公鸡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">我的舰长钱可以退给我 然后每次都打一块钱的礼物
+

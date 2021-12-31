@@ -2216,3 +2216,226 @@ E20576C1-1E02-4589-8C37-5FC70AB50236.jpeg
 
 萌p这个heyguys绷不住了
 
+
+
+*****
+
+####  chenflyyy  
+##### 3250#       发表于 2021-12-31 23:25
+
+人多的好处之一，可以名正言顺地贴得很紧（
+
+*****
+
+####  musicat  
+##### 3251#       发表于 2021-12-31 23:25
+
+”hey guys 新年快乐”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 3252#       发表于 2021-12-31 23:26
+
+ksks
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 3253#       发表于 2021-12-31 23:27
+
+<img src="https://img.saraba1st.com/forum/202112/31/232708iiisg1qhmmz4mm1d.png" referrerpolicy="no-referrer">
+
+<strong>77C0EE52-A41B-448C-BEFE-2962EFEDBF1C.png</strong> (45.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:27 上传
+
+*****
+
+####  dd950728  
+##### 3254#       发表于 2021-12-31 23:27
+
+草，就是本人
+
+*****
+
+####  stygian  
+##### 3255#       发表于 2021-12-31 23:27
+
+虹这疯狂整活
+
+*****
+
+####  cybernetics31  
+##### 3256#       发表于 2021-12-31 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是本人
+
+*****
+
+####  CAserlumos  
+##### 3257#       发表于 2021-12-31 23:27
+
+兔兔你在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 3258#       发表于 2021-12-31 23:28
+
+有人已经忘记自己在现实世界的身份了 是谁我不说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TRIScRE  
+##### 3259#       发表于 2021-12-31 23:28
+
+大家好 我是上原步梦
+
+*****
+
+####  普之舜舜  
+##### 3260#       发表于 2021-12-31 23:29
+
+可可可可什么意思？没绷住哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 3261#       发表于 2021-12-31 23:29
+
+我预测有人要切片这段善子召唤可可了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3262#       发表于 2021-12-31 23:29
+
+水虹前辈都好欢乐，相比下星还是拘谨了些
+
+*****
+
+####  D麦林  
+##### 3263#       发表于 2021-12-31 23:30
+
+越前辈越放得开 星还多少有点拘谨 虹已经闹起来 水水直接整起活来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dd950728  
+##### 3264#       发表于 2021-12-31 23:31
+
+群魔乱舞起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3265#       发表于 2021-12-31 23:32
+
+老王精神头不错，放心了
+
+*****
+
+####  cybernetics31  
+##### 3266#       发表于 2021-12-31 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从萌p开始笑到现在，不行了
+
+*****
+
+####  D麦林  
+##### 3267#       发表于 2021-12-31 23:32
+
+水团中流行的特殊萌舞.mp4
+
+*****
+
+####  chenflyyy  
+##### 3268#       发表于 2021-12-31 23:33
+
+草，卡在逢田姐放光线这里了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 3269#       发表于 2021-12-31 23:35
+
+十分的话大伙可以给这次跨年打几分呢
+
+*****
+
+####  TRIScRE  
+##### 3270#       发表于 2021-12-31 23:36
+
+1
+
+FH8evOKaQAMEsv3.jpg
+(984.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:36 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/233611vi8r55eomb8rrnn3.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  名津流  
+##### 3271#       发表于 2021-12-31 23:36
+
+笑死，这群人真是太自由了
+
+*****
+
+####  stygian  
+##### 3272#       发表于 2021-12-31 23:38
+
+八分，看的很开心，台上表现都很棒，就是台下stf细节做的实在有点不行，这几年我看过线上live最差的一场
+
+*****
+
+####  普之舜舜  
+##### 3273#       发表于 2021-12-31 23:39
+
+等下该我放切片了，我开电脑去处理下切片
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  D麦林  
+##### 3274#       发表于 2021-12-31 23:39
+
+草观影会门外垃圾桶里满满的一箱魔爪空罐子
+
+*****
+
+####  cybernetics31  
+##### 3275#       发表于 2021-12-31 23:41
+
+打个9分吧，虹全部solo短曲扣1粉，观感真没小组曲好
+
+*****
+
+####  优妮可  
+##### 3276#       发表于 2021-12-31 23:42
+
+我打个八点五，虹感觉没办法，小组曲怕是灯唱不了几首
+
+*****
+
+####  普之舜舜  
+##### 3277#       发表于 2021-12-31 23:44
+
+我打了9.5分吧 第一次看到这么热闹的跨年晚会，0.5分扣在音效部分不同步
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -10101,3 +10101,12 @@ ZZ问题交给专业的人吧, 反正也讨论不出来个结果, 反正你也�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说UU都没用的，可能你那边网络把UU墙了
 
+
+
+*****
+
+####  任天索尼子  
+##### 907#       发表于 2021-12-31 23:40
+
+乱搞墙的人自然该骂，只不过神神人更弱智，你要润出去了只怕到时候真开战了你在集中营里面玩STEAM。
+

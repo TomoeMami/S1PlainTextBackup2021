@@ -9649,3 +9649,14 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 彩虹怎么还不死
 
+
+
+*****
+
+####  rzrbtk  
+##### 9823#       发表于 2021-12-31 23:39
+
+郡郡教授fgo抽卡对决，新年第一天就有新人联动，觉得我郡2022是真的行（至少得比2021行吧？），
+
+当然也可能开年麻将杯初赛就被飞<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
