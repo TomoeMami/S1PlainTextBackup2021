@@ -11980,3 +11980,193 @@ Omicron跟原版相比，毒力存在减少的现象吗？复制速率跟毒力�
 
 人教版高中高二生物必修2，里面的进化定义就是种群基因型的变化，不存在两条进化链，始终就是原版-A-D-O
 
+
+
+*****
+
+####  母星  
+##### 2508#       发表于 2021-12-31 09:44
+
+<blockquote>smy20011 发表于 2021-12-31 09:33
+进化研究是的种群的基因型变化而不是某个基因型如何变化来的
+
+https://www.yixuela.com/books/shengwu/rjb ...</blockquote>
+按照你划的范围，就得看病毒所有种群集合在一起的毒力发展现象。就目前而言，地球上所有的新冠病毒并没有显示出比2年前地球上所有的新冠病毒毒力更低的现象吧。
+
+*****
+
+####  洞庭湖  
+##### 2509#       发表于 2021-12-31 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54103723&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2021-12-30 17:42</a>
+
+有没有大佬说说上次意大利医疗熔断是什么病床数？我看美国涨的很快啊，一天普通病床占用涨了3%，ICU病床 ...</blockquote>
+[https://protect-public.hhs.gov/pages/hospital-utilization](https://protect-public.hhs.gov/pages/hospital-utilization)
+
+普通病床77%，ICU78%了，分别上涨2%和1%。
+
+1230-1.png
+(123.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/094439caksqz8d22qcqz2r.png" referrerpolicy="no-referrer">
+
+1230-2.png
+(124.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/094440wdqzhfdddzgdfigx.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cumbland  
+##### 2510#       发表于 2021-12-31 09:46
+
+病毒演化根本不在乎毒力高低的。
+
+*****
+
+####  kira1988  
+##### 2511#       发表于 2021-12-31 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不是don't look up吗？只不过换成了don't care covid
+
+我真怀疑各大药厂像那个bash老大一样要求与病毒（陨石）共存
+
+*****
+
+####  smy20011  
+##### 2512#       发表于 2021-12-31 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110910&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 09:44</a>
+
+按照你划的范围，就得看病毒所有种群集合在一起的毒力发展现象。就目前而言，地球上所有的新冠病毒并没有 ...</blockquote>
+这就回到之前说的，你的“毒力变重”是跟上一个流行的比，还是跟原始流行的比。
+
+感冒的冠状病毒和新冠不算是一个“种群”吧
+
+*****
+
+####  卡普空  
+##### 2513#       发表于 2021-12-31 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110568&amp;ptid=2039422" target="_blank">pyd68tc 发表于 2021-12-31 09:13</a>
+
+没事，婴儿即不会上网也不能投票
+
+—— 来自 HUAWEI LYA-AL10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+死人也是 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  母星  
+##### 2514#       发表于 2021-12-31 09:51
+
+<blockquote>smy20011 发表于 2021-12-31 09:42
+人教版高中高二生物必修2，里面的进化定义就是种群基因型的变化，不存在两条进化链，始终就是原版-A-D-O ...</blockquote>
+要是想认定只有一个进化链，得把D踢出去，D跟O没有演化上的继承关系。
+
+*****
+
+####  ysys  
+##### 2515#       发表于 2021-12-31 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101945&amp;ptid=2039422" target="_blank">ZZY19941124 发表于 2021-12-30 15:28</a>
+
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
+目前看来杀伤力确实不足啊
+
+人数激增，但是重症啥的增长幅度并没那么大
+
+只不过基数激增的情况下，哪怕重症比例低一点，绝对人数还是在暴涨的，最后的结果好不到哪去
+
+*****
+
+####  dllplayer  
+##### 2516#       发表于 2021-12-31 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110498&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-31 09:07</a>
+
+其实挺矛盾的
+
+又希望欧美患病后可以群体免疫，起码证明了疫苗的有效性
+
+又希望欧美接受一波又一波的疫情冲击 ...</blockquote>
+前两天那个疯传的会体内残留的就是尸检报告啊
+
+*****
+
+####  母星  
+##### 2517#       发表于 2021-12-31 09:55
+
+<blockquote>smy20011 发表于 2021-12-31 09:50
+这就回到之前说的，你的“毒力变重”是跟上一个流行的比，还是跟原始流行的比。
+
+感冒的冠状病毒和新冠不 ...</blockquote>
+这个比较简单，认为必须以种群为标准时，所有新毒株需要跟原始株比较。认为必须以基因型为标准时，那就跟它演化路径上的上一代老毒株比较就可以了。
+
+*****
+
+####  smy20011  
+##### 2518#       发表于 2021-12-31 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110995&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 09:51</a>
+
+要是想认定只有一个进化链，得把D踢出去，D跟O没有演化上的继承关系。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/31/095905jgl9x6l1blp9goo1.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-30 17.58.12.png</strong> (49.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 09:59 上传
+
+没啊，原版，ABDO都是新冠基因库里面的一个变种
+
+这也是高中生物书里面写的
+[https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15026.html](https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15026.html)
+
+*****
+
+####  smy20011  
+##### 2519#       发表于 2021-12-31 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111043&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 09:55</a>
+
+这个比较简单，认为必须以种群为标准时，所有新毒株需要跟原始株比较。认为必须以基因型为标准时，那就跟 ...</blockquote>
+这标准是你提出的么？还是说有权威背书？
+
+*****
+
+####  dllplayer  
+##### 2520#       发表于 2021-12-31 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110892&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 09:42</a>
+
+人教版高中高二生物必修2，里面的进化定义就是种群基因型的变化，不存在两条进化链，始终就是原版-A-D-O ...</blockquote>
+你这么理解就可以..
+
+原版病毒就是猿猴的基础..
+
+然后上面进化出了猴子(D)
+
+进化出了古人猿(A)然后现在古人猿进化出了长臂猿(O)..至于会不会进化出人和猩猩科..会不会进化出智人..都还不清楚...
+
+
+
+*****
+
+####  crazyt  
+##### 2521#       发表于 2021-12-31 10:05
+
+<blockquote>母星 发表于 2021-12-31 09:44
+按照你划的范围，就得看病毒所有种群集合在一起的毒力发展现象。就目前而言，地球上所有的新冠病毒并没有 ...</blockquote>
+不要试图和一个一年来不断明里暗里鼓吹美爹mrna疫苗大法好，疫情不算事躺平就过去了；**疫苗不行，积极抗议得不偿失的思想钢印小丑摆事实讲道理。只要周期性一边看它美爹死的人头滚滚，一边看它表演就行了。
+
