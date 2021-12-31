@@ -2629,3 +2629,20 @@ set list
 
 查看全部评分
 
+
+
+*****
+
+####  普之舜舜  
+##### 3296#       发表于 2022-1-1 00:44
+
+ 本帖最后由 普之舜舜 于 2022-1-1 00:45 编辑 
+
+前面提到的福井day2我上传了
+福井「DAY2」，链接：[https://www.aliyundrive.com/s/JyZUN2ZbJwq](https://www.aliyundrive.com/s/JyZUN2ZbJwq)
+
+目前星团所有的live我都保存在这个《巡演》文件夹里面会实时更新，有需要可以把链接收藏起来
+<strong>「liella!在巡演」链接</strong>：[https://www.aliyundrive.com/s/W4Xu7qkx9fB](https://www.aliyundrive.com/s/W4Xu7qkx9fB)
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
