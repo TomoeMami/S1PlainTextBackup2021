@@ -13271,3 +13271,18 @@ Robert Koch Institute report released today states that 95.58% of the #Omicron c
 证明并非完全无关 至少死亡率高到一定程度了是会造成影响 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">非典传染性和隐蔽性比新冠还是差太多
 
+
+
+*****
+
+####  REI-000  
+##### 2606#       发表于 2021-12-31 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54086063&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-29 11:31</a>
+你不懂老美，纽约州检测能力早就到顶了，快筛包？ 不好意思，测不准。
+
+ ...</blockquote>
+582044了，决战巅峰在此一举
+
+— from Sony Xperia XZ2 Compact, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+

@@ -9803,3 +9803,74 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 
 探索队列在被国产页游各种污染后突然蹦出这么个玩意一度让我觉得STEAM是什么后现代乐园。
 
+
+
+*****
+
+####  caupollen  
+##### 883#       发表于 2021-12-31 17:23
+
+ 本帖最后由 caupollen 于 2021-12-31 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116478&amp;ptid=2043948" target="_blank">镰刀机甲 发表于 2021-12-31 17:11</a>
+
+我刚看的时候还觉得是某种平行世界，太乐了。
+
+探索队列在被国产页游各种污染后突然蹦出这么个玩 ...</blockquote>
+瞄了两眼开发者是个大马人但却‘心系’香港和祖国大陆的废青，比之前直接P国旗游戏的这个还算好了
+
+*****
+
+####  afer  
+##### 884#       发表于 2021-12-31 17:24
+
+ 本帖最后由 afer 于 2021-12-31 17:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116420&amp;ptid=2043948" target="_blank">caupollen 发表于 2021-12-31 17:06</a>
+
+这游戏是疫情刚开始开发的吗现在看只能感觉喜感
+
+看了下还真是 [https://papaonn.blogspot.com/](https://papaonn.blogspot.com/) 大马 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个动态感染数，这作者真不是反美斗士么？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是小丑竟是他自己了，最好玩的是下面的魔怔人评论感觉是从去年1月份穿越过来的。
+
+*****
+
+####  kkk9233  
+##### 885#       发表于 2021-12-31 17:26
+
+又没法直连了 寄
+
+*****
+
+####  镰刀机甲  
+##### 886#       发表于 2021-12-31 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116713&amp;ptid=2043948" target="_blank">afer 发表于 2021-12-31 17:24</a>
+
+那个动态感染数，这作者真不是反美斗士么？
+
+真是小丑竟是他自己了，最好玩的是下面的魔怔人 ...</blockquote>
+那评论简直就和TNO结局视频一样。
+
+迟飞———时钟人。
+
+你说我除了高呼当代马克思万岁外还能怎么样？
+
+吃毒气弹么？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  afer  
+##### 887#       发表于 2021-12-31 17:37
+
+ 本帖最后由 afer 于 2021-12-31 17:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116809&amp;ptid=2043948" target="_blank">镰刀机甲 发表于 2021-12-31 17:31</a>
+
+那评论简直就和TNO结局视频一样。
+
+迟飞———时钟人。
+
+你说我除了高呼当代马克思万岁外还能怎么样？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从游戏到评论，挨个点个小红旗，让红旗插满。
+

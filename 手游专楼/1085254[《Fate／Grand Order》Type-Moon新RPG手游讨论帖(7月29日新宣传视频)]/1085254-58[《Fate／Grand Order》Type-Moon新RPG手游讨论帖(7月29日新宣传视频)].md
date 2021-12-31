@@ -5745,3 +5745,104 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 有个疑惑，菌类在这次剧情占比会有多少？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86041#       发表于 2021-12-31 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116659&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 17:21</a>
+
+这就没了？大总统偷家，彷徨海被炸然后就没了？？先不提老福跳反，怎么连小芬奇都没便当啊。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这“大”太让人失望了。。 a狐真就这样无了。。还尾声。。尾个猫跟a狐那边有啥关系
+
+该把舅舅崭了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86042#       发表于 2021-12-31 17:23
+
+等等，杀狐的资料更新才是重点。
+
+コヤンスカヤの二つの欠片、その片方。
+
+还会来只暗的………………
+
+*****
+
+####  zakki  
+##### 86043#       发表于 2021-12-31 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116664&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-12-31 17:21</a>
+有个疑惑，菌类在这次剧情占比会有多少？</blockquote>
+每章的开头结尾在迦勒底的部分肯定是蘑菇写的，其余就不好说了
+
+*****
+
+####  alucardcz  
+##### 86044#       发表于 2021-12-31 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116704&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-12-31 17:23</a>
+
+等等，杀狐的资料更新才是重点。
+
+コヤンスカヤの二つの欠片、その片方。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有光就会有暗 一点也不惊讶
+
+*****
+
+####  空气蛹  
+##### 86045#       发表于 2021-12-31 17:26
+
+新衣服真好看
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  v22325  
+##### 86046#       发表于 2021-12-31 17:26
+
+还有个12点 也许有接上去的剧情
+
+*****
+
+####  zakki  
+##### 86047#       发表于 2021-12-31 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116690&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 17:22</a>
+这“大”太让人失望了。。 a狐真就这样无了。。还尾声。。尾个猫跟a狐那边有啥关系
+
+该把舅舅崭了 ...</blockquote>
+这个没啥问题吧，肯定是迦勒底剧情和杀兔没关，杀兔那边圣杯都给了
+
+*****
+
+####  霧谷藤乃  
+##### 86048#       发表于 2021-12-31 17:36
+
+新决战服看着不错，别的没了……
+
+*****
+
+####  zakki  
+##### 86049#       发表于 2021-12-31 17:36
+
+话说这衣服技能给的也太抠了吧，决战衣服（还是个看起来像是所长服的衣服）技能就这？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86050#       发表于 2021-12-31 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">听说钓鱼佬资料更新了 依然在复读她很美 又让某地的人破防了？
+
+*****
+
+####  贤娘萌娘  
+##### 86051#       发表于 2021-12-31 17:42
+
+一直强调妲己很美，倒是来张图给我康康啊，我也想看美女啊
+
