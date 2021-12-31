@@ -13504,3 +13504,36 @@ Top 5 states in positivity rates</blockquote>
 这篇可以参考，上次我还跟人吐槽，这帮精英真是吸血鬼。</blockquote>
 这点真的是误解，这文章说的就是再生元的中和抗体鸡尾酒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Dreki  
+##### 2622#       发表于 2022-1-1 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117827&amp;ptid=2039422" target="_blank">Humpy 发表于 2021-12-31 19:05</a>
+我个人感觉他可能把物种和种群等同化后偏误性的去理解现代进化论（种群基因频率变化和进化之间的关系确实 ...</blockquote>
+说实话，对生物学来讲拿个名词往上硬套来解释问题真的没有任何意义，迈尔有一本书里面有一句话写的挺好的(原话也可能是某个物理学家说的，有点忘了):大多数生物学的争论都是对定义的认知不一致<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2623#       发表于 2022-1-1 03:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123548&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-1 01:27</a>
+这篇可以参考，上次我还跟人吐槽，这帮精英真是吸血鬼。</blockquote>
+你有点误解了，这是单抗，是免疫细胞和骨髓瘤细胞结合批量生产的抗体。免疫细胞是从人/小鼠中提取的，但是最后生产的不是用血清。 
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  RaidenII  
+##### 2624#       发表于 2022-1-1 05:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123548&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-31 12:27</a>
+这篇可以参考，上次我还跟人吐槽，这帮精英真是吸血鬼。</blockquote>
+The treatment consisted of two monoclonal antibodies—meaning each was produced by making identical copies, or clones, of an antibody gene in a single B cell.
+
+这篇文章里面哪个字提到了单抗是靠抽康复者血清提纯的？
+

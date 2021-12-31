@@ -7816,3 +7816,67 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">全部家当50个11连就new剑刷秦良玉两个4星，福袋双黄爷爷女帝，我也不知道该高兴还是掀桌
 
+
+
+*****
+
+####  khxooo  
+##### 86270#       发表于 2022-1-1 01:52
+
+闲得无聊看了一下剪影图，左二那个武器什么的很像旧闪，那么苍银联动估计很大机会了，爱歌落地微存？
+
+*****
+
+####  holyblood  
+##### 86271#       发表于 2022-1-1 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122329&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-12-31 23:56</a>
+
+话说外星人这职介到底为什么要设计的都这么菜 一个赛着一个菜</blockquote>
+克制属性好吧
+
+*****
+
+####  khxooo  
+##### 86272#       发表于 2022-1-1 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123733&amp;ptid=1085254" target="_blank">holyblood 发表于 2022-1-1 01:57</a>
+
+克制属性好吧</blockquote>
+克制属性好？面对狂阶Boss逆克制有没有都没区别了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 86273#       发表于 2022-1-1 02:14
+
+ 本帖最后由 khxooo 于 2022-1-1 02:16 编辑 
+
+巴巴托斯，又要吃苹果猛刷了，骨灰这东西什么时候到头啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holyblood  
+##### 86274#       发表于 2022-1-1 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123790&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-1-1 02:09</a>
+
+克制属性好？面对狂阶Boss逆克制有没有都没区别了</blockquote>
+反正有些狂关卡我没外星人无法相像怎么打，当然我比较菜就是了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolegequaaa  
+##### 86275#       发表于 2022-1-1 02:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">福袋玉玉二宝，算了起码偶尔能用
+
+这暗狐我连未来可期都说不出口，不特攻伤害也太惨了吧
+
+*****
+
+####  holyblood  
+##### 86276#       发表于 2022-1-1 05:43
+
+这次福袋是优化过么，感觉抽那个都不怎么划算<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。要么是想要的卡同卡池的很多都有了，不想要的卡池就全是new
+
