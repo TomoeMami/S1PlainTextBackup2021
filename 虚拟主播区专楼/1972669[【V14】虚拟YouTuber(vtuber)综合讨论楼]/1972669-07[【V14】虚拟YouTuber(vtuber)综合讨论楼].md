@@ -9357,3 +9357,35 @@ V综有没有枪民懂哥讲一哈👉パカエル / Pakael这个人apex什么�
 
 草W
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9791#       发表于 2021-12-31 15:49
+
+pomu开的那个虹人发痴台氛围真好<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+军舰太乐了不喜欢cp也能笑出声
+
+*****
+
+####  Ketestrait  
+##### 9792#       发表于 2021-12-31 15:49
+
+军舰这表演还挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 9793#       发表于 2021-12-31 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">好久没看虹了，为什么这么多年过去所有人还都是原皮3D……不过听说要搞统一偶像服了是吧。
+
+*****
+
+####  Ketestrait  
+##### 9794#       发表于 2021-12-31 15:59
+
+当然是enkr罪大恶极压榨主播能省则省，统一偶像服也只有参加那场演唱会的优待组才有，故意制造阶级分裂员工，资本本资了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

@@ -13246,3 +13246,14 @@ HIV比新冠妖孽，我记得看到文章说HIV在体内变异速度极快，�
 
 好可怕。
 
+
+
+*****
+
+####  charse2r  
+##### 2604#       发表于 2021-12-31 15:52
+
+Robert Koch Institute report released today states that 95.58% of the #Omicron cases in Germany are fully vaccinated (28% of those had a "booster"), 4.42% are unvaccinated.
+
+有人发给子陵在拉黑下面的mrna吹么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
