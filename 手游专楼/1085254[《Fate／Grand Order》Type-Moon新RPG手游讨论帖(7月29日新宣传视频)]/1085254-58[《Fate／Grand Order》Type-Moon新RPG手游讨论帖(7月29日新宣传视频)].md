@@ -5846,3 +5846,93 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 一直强调妲己很美，倒是来张图给我康康啊，我也想看美女啊
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86052#       发表于 2021-12-31 17:45
+
+和想的一样，偷家了
+
+*****
+
+####  J-002  
+##### 86053#       发表于 2021-12-31 17:50
+
+265光点没消失，麻婆轮到你了（拍肩）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zore  
+##### 86054#       发表于 2021-12-31 17:51
+
+钓鱼佬:妲己...很美
+
+迦勒底众:不是大家不相信你,只是大家想开开眼界
+
+*****
+
+####  zakki  
+##### 86055#       发表于 2021-12-31 17:54
+
+话说结束的时候说的是直奔第七异闻带，所以光点到底是啥，难道是去南美的时候路过了51区？
+
+*****
+
+####  保罗赫伯特  
+##### 86056#       发表于 2021-12-31 17:56
+
+新封面那个中间上方的球状体是什么？原来迦勒底那个地球仪吗？
+
+*****
+
+####  angelooo  
+##### 86057#       发表于 2021-12-31 17:57
+
+<blockquote>alucardcz 发表于 2021-12-31 17:40
+听说钓鱼佬资料更新了 依然在复读她很美 又让某地的人破防了？</blockquote>
+我看了下翻译觉得全文挺正常的，那边破防的怕是看到日语最后一句写着美啥啥的就开始一边云一边喷了吧233
+
+*****
+
+####  v22325  
+##### 86058#       发表于 2021-12-31 17:57
+
+<blockquote>zakki 发表于 2021-12-31 17:36
+话说这衣服技能给的也太抠了吧，决战衣服（还是个看起来像是所长服的衣服）技能就这？ ...</blockquote>
+没有咒弹算什么最终决战礼装！
+
+*****
+
+####  zakki  
+##### 86059#       发表于 2021-12-31 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117088&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-31 17:57</a>
+我看了下翻译觉得全文挺正常的，那边破防的怕是看到日语最后一句写着美啥啥的就开始一边云一边喷了吧233 ...</blockquote>
+那边还觉得新语音是他们冲出来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86060#       发表于 2021-12-31 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116773&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 17:28</a>
+
+这个没啥问题吧，肯定是迦勒底剧情和杀兔没关，杀兔那边圣杯都给了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">萌新我隐约记得伊吹这边好像有伏笔 什么头疼 记忆有问题？  以为还会搞点事
+
+*****
+
+####  保罗赫伯特  
+##### 86061#       发表于 2021-12-31 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117149&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 18:03</a>
+
+萌新我隐约记得伊吹这边好像有伏笔 什么头疼 记忆有问题？  以为还会搞点事 ...</blockquote>
+现在看起来她就是单纯失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这么短时间应该不能临时改剧本吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

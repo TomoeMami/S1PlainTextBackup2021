@@ -13286,3 +13286,17 @@ Robert Koch Institute report released today states that 95.58% of the #Omicron c
 
 — from Sony Xperia XZ2 Compact, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  yaomingkangde  
+##### 2607#       发表于 2021-12-31 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109566&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2021-12-31 02:52</a>
+帮辉瑞炒股的玩意儿，老美精英从来没信过，包括疫苗。 真在上层圈子里的都相信单抗，阿川就接受过 ...</blockquote>
+不懂单抗就别说了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+除了早期研发时的筛选可能从康复者血液或者小鼠平台，
+工业化的单抗都是依靠大规模细胞培养的
+

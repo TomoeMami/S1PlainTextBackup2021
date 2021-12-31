@@ -9874,3 +9874,54 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 
 从游戏到评论，挨个点个小红旗，让红旗插满。
 
+
+
+*****
+
+####  zashou  
+##### 888#       发表于 2021-12-31 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116142&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-31 16:46</a>
+
+再多说一句上面那些回我的, 我为什么说'狗洞论'是别有用心别跟着走, 稍微多想一下,'狗洞论'讨论到最后什么 ...</blockquote>
+墙的错怎么就tg的错了。
+
+最多宣萱的错嘛。
+
+商务部和地方政府的政策与墙就是相悖的。
+
+为什么总要绑架国家，是何居心？
+
+*****
+
+####  LHO  
+##### 889#       发表于 2021-12-31 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116472&amp;ptid=2043948" target="_blank">‮agur4kI 发表于 2021-12-31 17:10</a>
+
+自由/门 没用过还没听过？</blockquote>
+你看看我id注册时间, 那东西能不知道吗, 那不就是最早推轮子的东西么, 还是美国那边提供技术支持的. 我没找跟墙关联的东西啊? 那玩意是美国提供技术那都是放明面的东西啊, 追踪过去他们的新闻站点也都是台湾美国
+
+*****
+
+####  LHO  
+##### 890#       发表于 2021-12-31 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116420&amp;ptid=2043948" target="_blank">caupollen 发表于 2021-12-31 17:06</a>
+
+这游戏是疫情刚开始开发的吗现在看只能感觉喜感
+
+看了下还真是 https://papaonn.blogspot.com/ 大马 ...</blockquote>
+别有用心的把这游戏的介绍页面加上截图往工信部一放, 绝对上黑名单. 
+
+*****
+
+####  ‮agur4kI  
+##### 891#       发表于 2021-12-31 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116981&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-31 17:47</a>
+
+你看看我id注册时间, 那东西能不知道吗, 那不就是最早推轮子的东西么, 还是美国那边提供技术支持的. 我没 ...</blockquote>
+过墙梯计划指翻墙军备竞赛
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

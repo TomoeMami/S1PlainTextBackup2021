@@ -17166,3 +17166,67 @@ ready steady positive/tiny stars/ku-ru-ku-ru cruller/day1/常夏
 
 2021-12-31 17:35 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 2957#       发表于 2021-12-31 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116863&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-31 17:35</a></blockquote>
+三团的都有
+
+129FAE19-6C7C-4B30-BAEE-CD0A2FAC0A34.jpeg
+(1.15 MB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/174219g6c1ah6xahh4zajr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8CC3ABAE-548B-45CF-8A10-F1B255648FF6.jpeg
+(763.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/174219ykooy19ckn7lfnzl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F528EA57-5BCC-4D6C-8A5C-42C3E97BB7ED.jpeg
+(972.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/174219hdmdynasz0dbba0y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2958#       发表于 2021-12-31 17:47
+
+赶不上了，快要赶不上了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2959#       发表于 2021-12-31 17:47
+
+昨晚+上午都在写论文，睡了一觉，醒来都要到晚上了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2960#       发表于 2021-12-31 17:48
+
+我在萌战吧那边建设好楼了，我再睡会7：30左右再起来跨年，困死我了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
