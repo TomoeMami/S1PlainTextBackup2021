@@ -9866,3 +9866,12 @@ mk2这货还问我要不要，反正原因就是跟他马子有关<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然有4.3万
 
+
+
+*****
+
+####  遗忘回想  
+##### 7133#       发表于 2021-12-31 13:54
+
+稍微对长熟肉这弱智东西有点了解都不会说出只有4.3万这种批话了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

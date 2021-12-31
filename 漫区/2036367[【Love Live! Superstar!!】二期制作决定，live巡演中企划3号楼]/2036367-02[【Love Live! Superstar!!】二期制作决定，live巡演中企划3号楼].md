@@ -17039,3 +17039,28 @@ C768D650-3B88-466A-B12E-15E62ADC4B5A.jpeg
 
 26人的春晚贺语语音
 
+
+
+*****
+
+####  梶原ひかり  
+##### 2950#       发表于 2021-12-31 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113070&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 12:33</a>
+石川ゆみ，整个系列基本上舞蹈部分都是她负责，虹solo倒是不清楚，团队曲也是她编的 ...</blockquote>
+水水和裂裂应该是一个人 也就是石川吧...虹咲的舞蹈是另一组负责的记得好像是罗马字拼的
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  stygian  
+##### 2951#       发表于 2021-12-31 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113942&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2021-12-31 13:46</a>
+
+水水和裂裂应该是一个人 也就是石川吧...虹咲的舞蹈是另一组负责的记得好像是罗马字拼的
+
+—— 来自 HUAW ...</blockquote>
+虹色passion我记得也是她，不过虹团的确音乐阵和缪水星都不是一路就是了
+
