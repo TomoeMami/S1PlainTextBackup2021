@@ -951,3 +951,199 @@ I‘m still！
 
 <img src="https://img.saraba1st.com/forum/202112/31/213957m8mjxmqax19xc1mb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dd950728  
+##### 3121#       发表于 2021-12-31 21:40
+
+W圆 W妈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3122#       发表于 2021-12-31 21:41
+
+妈妈组
+
+*****
+
+####  寒风夜  
+##### 3123#       发表于 2021-12-31 21:41
+
+笑啦
+
+*****
+
+####  优妮可  
+##### 3124#       发表于 2021-12-31 21:42
+
+绝对是故意的
+
+*****
+
+####  wsdbyh  
+##### 3125#       发表于 2021-12-31 21:42
+
+水水的话，歌单希望不要和前两天撞太多
+
+*****
+
+####  普之舜舜  
+##### 3126#       发表于 2021-12-31 21:43
+
+水水！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  saglork  
+##### 3127#       发表于 2021-12-31 21:44
+
+爱喵还是全闭麦，有点惨
+
+*****
+
+####  普之舜舜  
+##### 3128#       发表于 2021-12-31 21:44
+
+水蓝开场！！！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 3129#       发表于 2021-12-31 21:44
+
+唱kurukuru吧秋梨膏
+
+*****
+
+####  寒风夜  
+##### 3130#       发表于 2021-12-31 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">唱了3天
+
+*****
+
+####  stygian  
+##### 3131#       发表于 2021-12-31 21:48
+
+想好看的话king和菜宝都要减下重，麻油鸡也得再稍微瘦点
+
+不过king刚回归，也不能要求更多了，回来就好
+
+*****
+
+####  saglork  
+##### 3132#       发表于 2021-12-31 21:50
+
+水蓝确实是把前辈气势唱出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3133#       发表于 2021-12-31 21:50
+
+现场可以打CALL了嘛
+
+*****
+
+####  努斯万克  
+##### 3134#       发表于 2021-12-31 21:51
+
+我对水团最熟悉的歌还是恋爱水族馆
+
+*****
+
+####  depthlee  
+##### 3135#       发表于 2021-12-31 21:51
+
+不是，前面我是当bgm的听现在才认真看……这是可以打call的吗还是真的忍不住了……
+
+*****
+
+####  iuhehc  
+##### 3136#       发表于 2021-12-31 21:52
+
+诶现场可以打call？
+
+*****
+
+####  cybernetics31  
+##### 3137#       发表于 2021-12-31 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">水op怎么可能憋的住啊，是我我也喊
+
+*****
+
+####  L7lv6  
+##### 3138#       发表于 2021-12-31 21:53
+
+<blockquote>player3960 发表于 2021-12-31 21:35
+虽然说出来不解风情，但其实菜宝这种情况减肥可破
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户 ...</blockquote>
+还是得高点才行
+
+*****
+
+####  chenflyyy  
+##### 3139#       发表于 2021-12-31 21:56
+
+水的live是真的嗨，很难忍得住打call吧，这才是我印象中的日式偶像live的样子
+
+*****
+
+####  努斯万克  
+##### 3140#       发表于 2021-12-31 21:57
+
+逢田姐真美啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3141#       发表于 2021-12-31 21:57
+
+演出时候的sks我经常幻视成大岛优子
+
+*****
+
+####  中野四葉  
+##### 3142#       发表于 2021-12-31 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">太嗨了，现地怎么可能忍得了
+
+*****
+
+####  努斯万克  
+##### 3143#       发表于 2021-12-31 21:59
+
+是不是假唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 3144#       发表于 2021-12-31 21:59
+
+应该是不允许的吧，疫情政策也没变，不过大家都憋不住也就法不责众了。反正完了官方发个通告意思意思就好了。下不为例哦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cybernetics31  
+##### 3145#       发表于 2021-12-31 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">逢田姐越来越美了
+
+*****
+
+####  saglork  
+##### 3146#       发表于 2021-12-31 22:00
+
+杏树还是好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

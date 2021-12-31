@@ -9525,3 +9525,77 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 黑黑什么歪瓜裂枣，必定被力一千麻按在地上摩擦
 
+
+
+*****
+
+####  雨井绫  
+##### 9811#       发表于 2021-12-31 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">力一千麻唱的还是很久以前就投过的歌，没意思了
+
+*****
+
+####  alcoholic1000  
+##### 9812#       发表于 2021-12-31 21:45
+
+<img src="https://img.saraba1st.com/forum/202112/31/214458d2533oc2l1co31k5.png" referrerpolicy="no-referrer">
+
+<strong>#NJU歌謡祭2021 .png</strong> (106.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 21:44 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/214458k0cvn5e13o912q9e.png" referrerpolicy="no-referrer">
+
+<strong>#NJU歌謡祭2021-2.png</strong> (108.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 21:44 上传
+
+又看了一年管人！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Suny08  
+##### 9813#       发表于 2021-12-31 21:47
+
+最后这里是不是每个人单独跳然后合成进去的，所以每个人的位置都不能动的，要是有明年得再多一倍人又是个大工程啊
+
+*****
+
+####  lays  
+##### 9814#       发表于 2021-12-31 21:50
+
+好了 该数数谁只有一首了
+
+*****
+
+####  UnhappyTails  
+##### 9815#       发表于 2021-12-31 21:50
+
+咋说呢，彩虹有很多我不喜欢的东西，但也有我所热爱的东西，且那些东西从来都没离开，而不是像某小孩梓说的那样
+
+刚吃樱桃过敏吃的我嘴唇起泡嗓子难受（自从开始长期服药就吃特定水果过敏反应还挺严重的）
+
+但还是要吃啊，毕竟甜还是甜
+
+*****
+
+####  白金口袋  
+##### 9816#       发表于 2021-12-31 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54119913&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-12-31 07:47</a>
+
+最后这里是不是每个人单独跳然后合成进去的，所以每个人的位置都不能动的，要是有明年得再多一倍人又是个大 ...</blockquote>
+至少中间的30代叔组应该是一起录的，各种换位胡搞绝对不可能单独玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 9817#       发表于 2021-12-31 21:58
+
+新年新气象，一想到2022会是有mrra的一年就变得很有期待
+

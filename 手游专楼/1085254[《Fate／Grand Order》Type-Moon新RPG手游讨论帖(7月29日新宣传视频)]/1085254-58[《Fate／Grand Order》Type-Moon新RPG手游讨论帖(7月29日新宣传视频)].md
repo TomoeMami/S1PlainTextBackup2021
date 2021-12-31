@@ -6300,3 +6300,49 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 竟然还有人吐槽广告多，今年已经很少了吧，往年多的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 86099#       发表于 2021-12-31 21:47
+
+木 之 本 樱
+
+*****
+
+####  exiaexa  
+##### 86100#       发表于 2021-12-31 21:51
+
+NMD为什么要限定niconico直播啊艹
+
+阿B这边的转播，弹幕不过脑子的也太多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  areklose  
+##### 86101#       发表于 2021-12-31 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜长残了。韦伯是不是基佬
+
+*****
+
+####  zakki  
+##### 86102#       发表于 2021-12-31 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120003&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-31 21:51</a>
+NMD为什么要限定niconico直播啊艹
+
+阿B这边的转播，弹幕不过脑子的也太多了</blockquote>
+弹幕太智障了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">小太刀ptsd，樱井ptsd比特么小太刀和樱井本人恶心多了
+
+*****
+
+####  zakki  
+##### 86103#       发表于 2021-12-31 21:58
+
+翻页
+
