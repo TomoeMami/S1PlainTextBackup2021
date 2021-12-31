@@ -9522,3 +9522,48 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 
 笑了，什么互开左籍，节目效果稳中向好
 
+
+
+*****
+
+####  nopaina  
+##### 862#       发表于 2021-12-31 10:48
+
+成都电信 商店好几天打不开了 报118错误  
+
+刚刷新了下打开了
+
+*****
+
+####  hjgg65876  
+##### 863#       发表于 2021-12-31 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109902&amp;ptid=2043948" target="_blank">黑兽 发表于 2021-12-31 07:42</a>
+
+哪来的狗搁这故意混淆foreign agent跟一般民众，时差是吧</blockquote>
+RT也没被封啊
+
+*****
+
+####  褪色的雪花  
+##### 864#       发表于 2021-12-31 10:53
+
+坐标郑姆斯特丹 昨晚开始回复正常，顺滑的像假的一样
+不知道是不是暂时的
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hjgg65876  
+##### 865#       发表于 2021-12-31 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108026&amp;ptid=2043948" target="_blank">LHO 发表于 2021-12-30 23:17</a>
+
+...怎么着, 没理可讲摆烂了? 
+
+当年我在油管上骂台巴子时候, 你这个账号还没注册呢. 墙的策略不是我定的, ...</blockquote>
+台湾也有人抱怨youtube对于挺中言论不封杀，他们做的批评大陆的视频反而会被封掉。你了解过他们说的事实吗？
+
+twitter上你去看看那些民运的言论，也会发现很多次都在抱怨他们的帖子被删之类的，觉得twitter和youtube已经完全被中国渗透收买了，还有人呼吁google调查内部的党员内鬼呢，这些你又如何解释？
+

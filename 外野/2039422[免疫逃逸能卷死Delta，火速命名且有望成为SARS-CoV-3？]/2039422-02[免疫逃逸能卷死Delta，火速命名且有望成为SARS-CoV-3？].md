@@ -12555,3 +12555,187 @@ https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15018.html</blockquote>
 
 有没有那种检出多种新冠，就是因为多次感染残留了多种新冠病毒，最后死于DELT
 
+
+
+*****
+
+####  smy20011  
+##### 2550#       发表于 2021-12-31 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111552&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 10:36</a>
+
+你搞反了因果关系..
+
+不是突变链上越往上毒性越强..
+
+而是只有强的才会被人发现..若非常强.可能提出来赐名 ...</blockquote>
+只要你PCR测序出来，然后上传到数据库中，这个变种就会出现在那个突变树中
+
+你说的”强“实际上指的是感染能力与突破免疫能力，而不是致病性。新的变种必然能够突破omicron的免疫屏障，或者比omicron更加具有传染性。你如果从原版-Alpha-Delta-Omicron这样来看的话，这个趋势还是挺明显的。
+
+
+
+*****
+
+####  dllplayer  
+##### 2551#       发表于 2021-12-31 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111591&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2021-12-31 10:40</a>
+
+那个只是说有残留吧
+
+有没有那种检出多种新冠，就是因为多次感染残留了多种新冠病毒，最后死于DELT ...</blockquote>
+样本还不够多...
+
+没到那种随手捞一个大体老师结果就是得过2种新冠的..
+
+再等等吧...
+
+希望不要等到<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  母星  
+##### 2552#       发表于 2021-12-31 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111548&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:35</a>
+
+人教版高中生物必修2
+
+https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15018.html</blockquote>
+我不是在跟你说你这话正确与否，而是说请不要把你说过的话认定为是我说的，这种技巧没有意义
+
+*****
+
+####  creymorgan  
+##### 2553#       发表于 2021-12-31 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111272&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:15</a>
+
+那就是说，现在这个病毒不叫做sars-cov2而是叫做sara-cov-delta和sara-cov-omicron？ ...</blockquote>
+从4个无接种病例感染奥米克戎后只有1个算是对德尔塔有抗力。
+
+很有可能是双向失效，那就是血清分型。
+
+当然这规模不大，不能定论双向失效，只是说有较大可能。
+
+到时候具体命名可能叫做S1N1和S2N1吧。
+
+*****
+
+####  smy20011  
+##### 2554#       发表于 2021-12-31 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111644&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:44</a>
+
+我不是在跟你说你这话正确与否，而是说请不要把你说过的话认定为是我说的，这种技巧没有意义 ...</blockquote>
+我以为你在用突变的时候已经默认了解到突变的不定项性了
+
+*****
+
+####  dllplayer  
+##### 2555#       发表于 2021-12-31 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111609&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:41</a>
+
+只要你PCR测序出来，然后上传到数据库中，这个变种就会出现在那个突变树中
+
+你说的”强“实际上指的是感 ...</blockquote>
+进入数据库的海了去了..
+
+但是不是所有进了数据库的都有编号赐名
+
+更不是都能有希腊字母...
+
+至于强..不强衡量标准也非常多..
+
+问题你都能这么说了..说明也不是不懂..在这里骗科普算啥
+
+*****
+
+####  母星  
+##### 2556#       发表于 2021-12-31 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111696&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:48</a>
+
+我以为你在用突变的时候已经默认了解到突变的不定项性了</blockquote>
+我没有用过什么突变，用突变的主要是你吧。
+
+*****
+
+####  smy20011  
+##### 2557#       发表于 2021-12-31 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111738&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 10:51</a>
+
+进入数据库的海了去了..
+
+但是不是所有进了数据库的都有编号赐名
+
+更不是都能有希腊字母...</blockquote>
+但是“强”指的是病毒更适应环境，而不是病毒致病力更高不是么？
+
+你也说了，衡量标准很多，而ICU/机器通氧率以及死亡率，只是“强”的一个方面。
+
+*****
+
+####  smy20011  
+##### 2558#       发表于 2021-12-31 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111741&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:51</a>
+
+我没有用过什么突变，用突变的主要是你吧。</blockquote>
+我回答的是你这一句
+
+"你说的这条突变链，不也是沿着毒性增强路线走的呀？而我们在演化链上看到也是这个现象吧。"
+
+我针对前半句来说，如果一个链是突变链，那么这条链上就不会有什么“路线”
+
+*****
+
+####  dllplayer  
+##### 2559#       发表于 2021-12-31 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111760&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:52</a>
+
+但是“强”指的是病毒更适应环境，而不是病毒致病力更高不是么？
+
+你也说了，衡量标准很多，而ICU/机器通 ...</blockquote>
+是啊....若是光是看进化树的话..肯定是更适应环境..也就不用发论文了呀
+
+问题就是其他指标有的说到...才会各种探讨...一方面是评价到底对人类会造成多大影响
+
+另一方面也是通过预估影响来做预案降低损失...
+
+就好比你来比较现在的智人和尼安德特人个体哪个更强....
+
+那么这个强的标准有很多....这有啥问题?
+
+*****
+
+####  母星  
+##### 2560#       发表于 2021-12-31 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111797&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:55</a>
+
+我回答的是你这一句
+
+"你说的这条突变链，不也是沿着毒性增强路线走的呀？而我们在演化链上看到也是这个现 ...</blockquote>
+这句话，我也没提突变呀，提的是突变链......当你用“突变链”的时候，看到的结果是经过筛选之后的。突变是对个体而言的，并不是对一个过程而言的，路线是筛选的结果。讨论突变是随机的，讨论突变链肯定是有路线的。
+
+*****
+
+####  creymorgan  
+##### 2561#       发表于 2021-12-31 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111760&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 10:52</a>
+
+但是“强”指的是病毒更适应环境，而不是病毒致病力更高不是么？
+
+你也说了，衡量标准很多，而ICU/机器通 ...</blockquote>
+也不是致病力更低
+
+载毒量变大是同时有利于传播和致死率的
+
+免疫抑制也是同时有利于传播和致死率的
+
