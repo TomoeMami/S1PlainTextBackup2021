@@ -10007,3 +10007,32 @@ U管为啥不封杀波士顿圆脸啊，B站倒是把回形针封杀，你狗也
 
 ZZ问题交给专业的人吧, 反正也讨论不出来个结果, 反正你也干涉不到. 也就这样了.
 
+
+
+*****
+
+####  solarcool  
+##### 898#       发表于 2021-12-31 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116266&amp;ptid=2043948" target="_blank">镰刀机甲 发表于 2021-12-31 16:55</a>
+
+你从第一页翻，看STEAM被X谁最开心不就知道了。
+
+狗洞人在网络问题，P大点事间反复横跳。
+
+觉青在好耶，果 ...</blockquote>
+那到底怎么算在乎steam啊，难道又是什么提“对策”才叫在乎steam？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+如果参加论战就叫不在乎steam的话，那恐怕进来发贴的第一刻就可以被打成不在乎steam了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风浦可符香(P.N)  
+##### 899#       发表于 2021-12-31 20:35
+
+“中国人是需要管的” “我大清国自有国情在此” “敌对势力亡我之心不死”，三句话扩写了几十年了也没点花样
+
+然后呢，具体到任何问题比如：steam到底为啥打不开啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">？ 
+
+“P大点事” “这事不能说得太细” <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

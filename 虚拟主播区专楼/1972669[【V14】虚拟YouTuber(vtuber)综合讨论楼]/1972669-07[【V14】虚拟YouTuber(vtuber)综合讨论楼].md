@@ -9444,3 +9444,27 @@ syl smc三人图灵爱可还行<img src="https://static.saraba1st.com/image/smil
 
 SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨井绫  
+##### 9801#       发表于 2021-12-31 20:27
+
+<img src="https://p.sda1.dev/3/4563d9ee2f061f8ecde213b4803a28b2/IMG_CMP_85389828.jpeg" referrerpolicy="no-referrer">
+看到这组合想起我还有个rrmg同人本……当时买别的东西的时候凑数买的
+
+*****
+
+####  pansherry  
+##### 9802#       发表于 2021-12-31 20:35
+
+田角美容室<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ketestrait  
+##### 9803#       发表于 2021-12-31 20:36
+
+还是虹男人选曲有东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

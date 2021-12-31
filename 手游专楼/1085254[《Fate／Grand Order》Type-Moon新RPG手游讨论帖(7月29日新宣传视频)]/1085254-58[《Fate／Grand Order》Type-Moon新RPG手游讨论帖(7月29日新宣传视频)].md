@@ -6242,3 +6242,15 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  khxooo  
+##### 86093#       发表于 2021-12-31 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117266&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-31 18:13</a>
+
+说起来为什么没有人给伊吹道歉啊，一堆人脑补她要和女娲缝要和妲己缝，还义愤填膺地说什么去区区小蛇精竟敢 ...</blockquote>
+是啊，别人用尽全力帮迦勒底，却不断的被攻击嘲讽。现在什么都没有发生，一个道歉都没有，太符合某些人设了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

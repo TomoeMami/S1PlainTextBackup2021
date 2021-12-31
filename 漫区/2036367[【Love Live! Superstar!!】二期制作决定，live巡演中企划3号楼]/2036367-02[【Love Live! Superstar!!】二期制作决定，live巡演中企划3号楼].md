@@ -17453,3 +17453,107 @@ MC互动能不能也多搞点<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 2985#       发表于 2021-12-31 20:24
+
+虹的衣服不统一哈哈
+
+*****
+
+####  iuhehc  
+##### 2986#       发表于 2021-12-31 20:27
+
+感觉talk会比想象中多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dd950728  
+##### 2987#       发表于 2021-12-31 20:27
+
+官方终于懂事了
+
+*****
+
+####  仟音一心  
+##### 2988#       发表于 2021-12-31 20:28
+
+比❤️
+
+<img src="https://img.saraba1st.com/forum/202112/31/202853px6q6gkwt7gcllqg.png" referrerpolicy="no-referrer">
+
+<strong>7A623AE1-22C1-42C3-B00C-2AF3062A8921.png</strong> (142.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/202853jzbpsi40qi42zd46.png" referrerpolicy="no-referrer">
+
+<strong>8DD49B5F-32A7-47FA-B6AD-AEBE204558E2.png</strong> (110.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 20:28 上传
+
+*****
+
+####  cybernetics31  
+##### 2989#       发表于 2021-12-31 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">灯坐着还行
+
+*****
+
+####  stygian  
+##### 2990#       发表于 2021-12-31 20:30
+
+秀这身挺好看的
+
+*****
+
+####  仟音一心  
+##### 2991#       发表于 2021-12-31 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118641&amp;ptid=2036367" target="_blank">wsdbyh 发表于 2021-12-31 20:21</a>
+
+灯直接坐了</blockquote>
+喷了
+
+65780A89-E5EC-41B3-B7CB-F46842437480.jpeg
+(115.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/203120l390nhs6ddggizbi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 2992#       发表于 2021-12-31 20:37
+
+变色真的很整齐，好看<img src="https://p.sda1.dev/3/dfd11e6a17f956ac34913b4bd82e0468/77f6d9b5e832d705.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 2993#       发表于 2021-12-31 20:39
+
+还以为一团一首轮着来，没想到OP就紧接着拍手歌。
+
+*****
+
+####  stygian  
+##### 2994#       发表于 2021-12-31 20:40
+
+打铁开始有点力不从心了。。。演完好好休息一礼拜吧
+
