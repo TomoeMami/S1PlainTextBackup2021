@@ -16769,3 +16769,25 @@ r3加妃喵去星团也够九人了
 
 想拿G店打折码冲一波鲤鱼面对面，结果普通版已经是二次预约，感觉倍率有点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梶原ひかり  
+##### 2929#       发表于 2021-12-31 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108668&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-31 00:27</a>
+
+想拿G店打折码冲一波鲤鱼面对面，结果普通版已经是二次预约，感觉倍率有点 ...</blockquote>
+鲤鱼太火 倍率太高么？连普通版都很难？
+
+*****
+
+####  lj205  
+##### 2930#       发表于 2021-12-31 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109988&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2021-12-31 08:03</a>
+鲤鱼太火 倍率太高么？连普通版都很难？</blockquote>
+G店因为能网上下单，所以倍率应该会有点高
+A店限制线下加现金，可能会相对容易一些
+
