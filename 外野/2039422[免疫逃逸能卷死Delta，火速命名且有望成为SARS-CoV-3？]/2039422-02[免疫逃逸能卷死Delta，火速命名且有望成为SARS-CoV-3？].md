@@ -13447,3 +13447,27 @@ Top 5 states in positivity rates</blockquote>
 
 2020.10 给YKW用的再生元中和抗体也是体外细胞培养出来的
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2618#       发表于 2022-1-1 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122791&amp;ptid=2039422" target="_blank">yaomingkangde 发表于 2022-1-1 00:16</a>
+我说了，中和抗体生产，不是你想象中的从康复者血清里提取然后纯化
+
+是从康复者血清/受新冠病毒感染的小鼠 ...</blockquote>
+我只说了前期是靠血清，实际应用都不做提纯的，直接用给人输康复者分离血清，见过实例。我从没说过工业化受限于血清提取。很欣慰了解到单抗已经有量产，这点确实是我没跟进。另外，阿川是用了血清的，也用了小鼠体细胞培养的抗体。
+
+*****
+
+####  smy20011  
+##### 2619#       发表于 2022-1-1 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123062&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-1 00:32</a>
+我只说了前期是靠血清，实际应用都不做提纯的，直接用给人输康复者分离血清，见过实例。我从没说过工业化 ...</blockquote>
+确实只是单抗而不是血清疗法，你有相关的报道佐证你的血清疗法么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

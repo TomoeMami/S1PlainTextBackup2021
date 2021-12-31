@@ -7778,3 +7778,12 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 剪影里好像有公主，不要啊公主倒贴给迦勒底皇帝那种事绝对不要啊，至少月姬r里线出了后10年吧[f:003 ...</blockquote>
 什么艾伦耶格尔
 
+
+
+*****
+
+####  xiongxingyu  
+##### 86266#       发表于 2022-1-1 00:32
+
+哈哈哈哈哈哈，我中了，我终于中了。3年了，3年来我活生生把水骑呆从1宝抽到4宝，今年，大象终于不和水骑呆同个池子了，顶着6个里有3个已经满宝的压力，我终于在福袋里抽到大象了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">卡池全图鉴达成<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

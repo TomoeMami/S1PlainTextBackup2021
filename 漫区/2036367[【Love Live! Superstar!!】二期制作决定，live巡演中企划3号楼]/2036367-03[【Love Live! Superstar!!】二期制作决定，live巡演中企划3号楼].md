@@ -2554,3 +2554,78 @@ FH8evOKaQAMEsv3.jpg
 
 我记得146说好像演完麻油鸡和妃喵要去她家的，其他团的应该也有线下贴贴计划吧
 
+
+
+*****
+
+####  stygian  
+##### 3292#       发表于 2022-1-1 00:26
+
+ 本帖最后由 stygian 于 2022-1-1 00:28 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/01/002658f77nnmw0iv0pmjjw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 00:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/002706xsjs88qs88fqm1ww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/002718wk40zjjv5vn175vq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 00:27 上传
+
+set list
+
+*****
+
+####  damian-wade  
+##### 3293#       发表于 2022-1-1 00:33
+
+就看到了最后大家的新年祝福，萌P可以的，自她整活以后气氛一下子就欢乐起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 3294#       发表于 2022-1-1 00:34
+
+草原来萌P那句hey guys日本人都往PH那个广告上想的，是我年轻了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 3295#       发表于 2022-1-1 00:37
+
+工具人舜舜同学又来了，鹅我等着呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+三团跨年录播分享文件 'lovelive三团跨年晚会'，点击链接保存，或者复制本段内容，打开'阿里云盘'APP ，无需下载极速在线查看，视频原画倍速播放。 链接：[https://www.aliyundrive.com/s/5Bn8xmKSdTi](https://www.aliyundrive.com/s/5Bn8xmKSdTi)
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 一个陆仁贾| + 2|好评加鹅|
+| 稀勢のささ| + 1|好评加鹅|
+| stygian| + 2|顺便一提福井DAY2还没更（|
+
+查看全部评分
+

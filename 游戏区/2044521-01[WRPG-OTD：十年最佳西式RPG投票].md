@@ -704,3 +704,23 @@ arkane那些在我心目中还是算进动作大类，Prey-FPS、Dishonour-潜�
 
 fo4这么拉跨吗？
 
+
+
+*****
+
+####  repal  
+##### 68#       发表于 2022-1-1 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120736&amp;ptid=2044521" target="_blank">煌焰 发表于 2021-12-31 22:30</a>
+ 老滚5居然没过50%，泥潭婆度又提升了？  哦，居然有极乐迪斯科，那没事了 ...</blockquote>
+那也过了40%，婆度怕不是下降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  repal  
+##### 69#       发表于 2022-1-1 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54120847&amp;ptid=2044521" target="_blank">稻高一尺 发表于 2021-12-31 22:35</a>
+ fo4这么拉跨吗？</blockquote>
+fo4在WRPG这四个字母里，也就跟“W”沾边……
+
