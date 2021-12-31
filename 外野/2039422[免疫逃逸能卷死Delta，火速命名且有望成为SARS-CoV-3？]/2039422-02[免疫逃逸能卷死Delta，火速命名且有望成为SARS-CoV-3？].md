@@ -12961,3 +12961,73 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 
 古代也有流感，但是1918特别厉害。
 
+
+
+*****
+
+####  马化云  
+##### 2579#       发表于 2021-12-31 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101945&amp;ptid=2039422" target="_blank">ZZY19941124 发表于 2021-12-30 15:28</a>
+
+虽然有延迟，但我还是想问一下，美帝和英国这几天的死亡人数怎么样了？奥株说它毒性弱，致死性弱，我真的很 ...</blockquote>
+看公布的报告是死亡人数略略升高，不明显。
+
+*****
+
+####  惊奇记事簿  
+##### 2580#       发表于 2021-12-31 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111615&amp;ptid=2039422" target="_blank">dllplayer 发表于 2021-12-31 10:42</a>
+样本还不够多...
+
+没到那种随手捞一个大体老师结果就是得过2种新冠的..
+
+再等等吧...</blockquote>
+看起来还没有这方面研究
+
+
+
+*****
+
+####  eveshell  
+##### 2581#       发表于 2021-12-31 12:14
+
+在现代交通下，死亡率不需要下降就可以传播，所以就是靠随机。o弱点，下一个也许可以强点，传播总会强，效果是死人还是多。
+
+*****
+
+####  KOGmk2  
+##### 2582#       发表于 2021-12-31 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112123&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-31 11:19</a>
+
+无人可知，人类以前大流行的经验可能并不能完全适用于现在
+
+因为现在的人类比100多年前的人类耐操多了，毒 ...</blockquote>
+主要是现代交通体系把传染力这个选择压力踢出了赛场导致毒力在超过某个触发蓝星全面社工防疫机制以前并不影响传染力
+
+*****
+
+####  smy20011  
+##### 2583#       发表于 2021-12-31 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112846&amp;ptid=2039422" target="_blank">eveshell 发表于 2021-12-31 12:14</a>
+
+在现代交通下，死亡率不需要下降就可以传播，所以就是靠随机。o弱点，下一个也许可以强点，传播总会强，效 ...</blockquote>
+所以多打疫苗，开发特效药，增加床位。以防下一个变种roll出一个更加严重的。
+
+至于物理隔离，全世界大概只有中国做得到。
+
+*****
+
+####  neptunehs  
+##### 2584#       发表于 2021-12-31 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112846&amp;ptid=2039422" target="_blank">eveshell 发表于 2021-12-31 12:14</a>
+在现代交通下，死亡率不需要下降就可以传播，所以就是靠随机。o弱点，下一个也许可以强点，传播总会强，效 ...</blockquote>
+但同样是院感 死亡率46%的B.1.616直接被摁死了
+证明并非完全无关 至少死亡率高到一定程度了是会造成影响传播的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

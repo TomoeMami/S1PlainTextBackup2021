@@ -9792,3 +9792,27 @@ mk2这货还问我要不要，反正原因就是跟他马子有关<img src="http
 
 没人会骚扰一个肥坦的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 7126#       发表于 2021-12-31 12:17
+
+<blockquote>#虚拟灰姑娘# Virtual Cinderella Project专属团综 第二集
+
+今晚20:00 准时上线！
+
+在企划开始前，为了企划能够爆火这个愿望
+
+节目组决定带三位先发成员进行瀑布修行！
+
+去除心中的杂念，磨炼意志
+
+三位虚拟偶像将会如何进行现实中的瀑布修行呢？
+
+而怕水的猫咪@花园Serena 能不能撑过此次修行呢！？让我们拭目以待！
+
+企划专属团综每周五 20:00不见不散~ </blockquote>
+这比隔壁虹还综艺
+

@@ -5440,3 +5440,29 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 我奶一个福尔摩斯真名溶解，缝一个克苏鲁外神，然后档案吃书+neta尼尔盖曼那本同人，三技能就叫“绿字的研究”，直接化身新绿拐。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过假若真的缝合外神了，根据小说内容，真名溶解的应该是异闻带莫里亚蒂...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 86009#       发表于 2021-12-31 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54112601&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-12-31 11:54</a>
+
+FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力强度双爆炸那种。
+
+我奶一个福尔摩斯真名溶解，缝一 ...</blockquote>
+绿字的研究这篇小说还是挺有趣的：[https://www.bilibili.com/read/mobile?id=4009711](https://www.bilibili.com/read/mobile?id=4009711)
+
+万一今天晚上真实装福尔摩斯相关干员的话，希望能用上些许设定，要不每年整这么多外星人只为了卖萌也太没意思了....
+
+*****
+
+####  alucardcz  
+##### 86010#       发表于 2021-12-31 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111631&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-12-31 10:43</a>
+
+活动刷了90个石头，今晚可以看看是不是有奇迹了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">你又要豹跳了吗
+
