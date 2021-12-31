@@ -6175,3 +6175,12 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 2021-12-31 19:04 上传
 
+
+
+*****
+
+####  kuarwbwe  
+##### 86087#       发表于 2021-12-31 19:18
+
+大妈其实和小太刀差不多，本身够菜，正好能拿来做唯一指定肉坦。也都有点此世全部之错的味了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
