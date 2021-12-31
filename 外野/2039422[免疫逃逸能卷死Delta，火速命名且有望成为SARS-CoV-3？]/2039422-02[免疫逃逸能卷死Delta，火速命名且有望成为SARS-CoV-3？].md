@@ -11735,3 +11735,24 @@ Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron c
 
 但是铁口直断毒力肯定是更强/更弱的，我觉得没有依据
 
+
+
+*****
+
+####  橋白  
+##### 2488#       发表于 2021-12-31 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109128&amp;ptid=2039422" target="_blank">血狂毘沙门 发表于 2021-12-31 01:24</a>
+我开始相信那个病毒会在脑子里一直复制的说法了
+
+真的病毒上脑 脑控老外 ...</blockquote>
+你看楼里不就中招一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lord_Voldemort  
+##### 2489#       发表于 2021-12-31 08:00
+
+我已经在关心下一个版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这种传播能力，这么大的感染基数，下一版很快就会来了
+
