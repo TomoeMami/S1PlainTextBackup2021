@@ -6217,3 +6217,28 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 毫无违和</blockquote>
 是不是装反手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86091#       发表于 2021-12-31 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118171&amp;ptid=1085254" target="_blank">poor 发表于 2021-12-31 19:42</a>
+别脑补隔壁破防了，她们已经开始说服自己太公望对妲己一点想法没有了
+
+—— 来自 vivo V1981A, Andr ...</blockquote>
+没脑补啊，刚开始隔壁真破防了，现在去b站或者微博看还是有不少破防人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poor  
+##### 86092#       发表于 2021-12-31 20:17
+
+ 本帖最后由 poor 于 2021-12-31 20:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118477&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 20:09</a>
+没脑补啊，刚开始隔壁真破防了，现在去b站或者微博看还是有不少破防人 ...</blockquote>
+可惜去晚了。不过某楼的热评还是能看出她们对杀兔的恨意都要溢出屏幕了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

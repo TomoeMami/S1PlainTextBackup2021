@@ -17314,3 +17314,142 @@ QQ频道子频道【放送间】：[https://qun.qq.com/qqweb/qunpro/ ... m=24661
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 2968#       发表于 2021-12-31 20:02
+
+太多地方看和讨论了
+
+*****
+
+####  Arccueid  
+##### 2969#       发表于 2021-12-31 20:05
+
+星团开局啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chenflyyy  
+##### 2970#       发表于 2021-12-31 20:05
+
+liella打头阵啊
+
+
+
+*****
+
+####  cat1230  
+##### 2971#       发表于 2021-12-31 20:06
+
+开始了，星团排面
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  中野四葉  
+##### 2972#       发表于 2021-12-31 20:07
+
+真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saglork  
+##### 2973#       发表于 2021-12-31 20:08
+
+小百合紧张啊，声音都发颤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Karin11974  
+##### 2974#       发表于 2021-12-31 20:11
+
+你鲤鱼姐最后脚掉下来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 2975#       发表于 2021-12-31 20:11
+
+菜宝这身<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saglork  
+##### 2976#       发表于 2021-12-31 20:12
+
+人多就是好啊，虹团唱的肉眼可见的轻松多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 2977#       发表于 2021-12-31 20:14
+
+弹幕都是呼唤楠木蹬的
+
+*****
+
+####  iuhehc  
+##### 2978#       发表于 2021-12-31 20:14
+
+菜宝这身大红色在虹里面好显眼啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Karin11974  
+##### 2979#       发表于 2021-12-31 20:15
+
+菜宝这身材穿这套有点处刑
+
+*****
+
+####  zylwz  
+##### 2980#       发表于 2021-12-31 20:16
+
+三个团曲子编在一起了
+
+MC互动能不能也多搞点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+别跟fes搞得一样了啊
+
+*****
+
+####  普之舜舜  
+##### 2981#       发表于 2021-12-31 20:17
+
+水水这身衣服真好看！
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 2982#       发表于 2021-12-31 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">菜宝这小粗腿
+
+*****
+
+####  wsdbyh  
+##### 2983#       发表于 2021-12-31 20:21
+
+灯直接坐了
+
+*****
+
+####  普之舜舜  
+##### 2984#       发表于 2021-12-31 20:22
+
+几个团都互动起来了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

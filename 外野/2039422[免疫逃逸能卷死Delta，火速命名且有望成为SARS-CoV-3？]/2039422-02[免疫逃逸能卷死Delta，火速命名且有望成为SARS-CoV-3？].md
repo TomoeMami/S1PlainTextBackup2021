@@ -13334,3 +13334,33 @@ od毒力比较这事，我认为很难有公共卫生方面的实锤
 
 但事实上种群只是指一定时间、空间下同物种自由繁殖（或交换基因）的个体集合，和物种并不等同。而病毒这种特殊情况中，更是有患者个体内的病毒颗粒集合作为种群的特例……
 
+
+
+*****
+
+####  pushare  
+##### 2610#       发表于 2021-12-31 20:04
+
+这阳性率，检测系统快当机了吧
+Top 5 states in positivity rates
+
+New Jersey: 86.8%
+District of Columbia: 68%
+Pennsylvania: 62.9%
+Kansas: 62%
+Wisconsin: 50.3%
+
+
+
+*****
+
+####  smy20011  
+##### 2611#       发表于 2021-12-31 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54118428&amp;ptid=2039422" target="_blank">pushare 发表于 2021-12-31 20:04</a>
+这阳性率，检测系统快当机了吧
+Top 5 states in positivity rates</blockquote>
+直接发阳性证明好了，反正就隔离5天
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
