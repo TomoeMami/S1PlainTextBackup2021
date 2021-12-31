@@ -5242,3 +5242,17 @@ B站动态看见一个观影团连观影特典都整出来了
 这次剧场版让官方错误估计热度，赶快把第二季吐出来，砍掉的那80%部分</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看tv版泥潭的评分楼回复跟本楼一比，变化令人沉默
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 407#       发表于 2021-12-31 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113828&amp;ptid=2043629" target="_blank">wuliaozheX 发表于 2021-12-31 13:34</a>
+
+其实我有点好奇蕉哥在车上跟华恋讲的，你也吃了很多香蕉蛋糕香蕉布丁那句是什么意思
+
+是你的问题我无 ...</blockquote>
+蕉哥把大家都拖进皆杀，唯有华恋拖不进去，只能把她送到车站下车等神乐光过来接盘，你这两种说法其实差不多，爱城华恋的问题只有她自己（神乐光 才能解决
+
