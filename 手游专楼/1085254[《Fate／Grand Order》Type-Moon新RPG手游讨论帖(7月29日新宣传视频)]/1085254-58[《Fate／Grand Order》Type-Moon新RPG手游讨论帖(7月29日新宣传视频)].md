@@ -5496,3 +5496,15 @@ FGO不是刚换了新公司吗，新年估计要冲一波业绩，得是厨力�
 你又要豹跳了吗</blockquote>
 2单的石头，怎么能算豹呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 86014#       发表于 2021-12-31 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113311&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-12-31 12:53</a>
+
+如果缝合外星人，那我家老福不就原地增值翻倍了么？！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后异格福是一张新的卡
+

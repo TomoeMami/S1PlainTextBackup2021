@@ -9846,3 +9846,14 @@ mk2这货还问我要不要，反正原因就是跟他马子有关<img src="http
 
 什么，竟然有这么多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 7131#       发表于 2021-12-31 13:08
+
+已经比麻麻本人的数据好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

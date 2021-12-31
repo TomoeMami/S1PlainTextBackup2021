@@ -13096,3 +13096,19 @@ https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg
 
 人类对目前新冠理解还远远不足，鬼才知道新冠入侵人脑后在长期环境下会发生什么
 
+
+
+*****
+
+####  smy20011  
+##### 2591#       发表于 2021-12-31 13:19
+
+ 本帖最后由 smy20011 于 2021-12-31 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113272&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-31 12:49</a>
+[https://www.bilibili.com/video/BV1bi4y1R7gw](https://www.bilibili.com/video/BV1bi4y1R7gw)
+
+希望那些认为是流感的人可以看看，哪家流感病毒能突破血脑 ...</blockquote>
+[http://rs.yiigle.com/CN101070202115/1332482.htm](http://rs.yiigle.com/CN101070202115/1332482.htm)
+
+流感的脑炎也算是并发症之一
+
