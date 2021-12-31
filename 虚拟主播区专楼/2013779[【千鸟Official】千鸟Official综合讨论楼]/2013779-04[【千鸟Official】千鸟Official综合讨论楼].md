@@ -3475,3 +3475,33 @@ syl 文静什么压力怪
 
 syl 楼友们新年快乐
 
+
+
+*****
+
+####  rgauss  
+##### 4861#       发表于 2022-1-1 00:05
+
+文静真的铁公鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 4862#       发表于 2022-1-1 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">静子房间这sc审核太慢了吧，20分钟前发的还没出来
+
+*****
+
+####  GAKOTO  
+##### 4863#         楼主| 发表于 2022-1-1 00:10
+
+2022了！新年快乐✧٩(ˊωˋ*)و✧
+
+*****
+
+####  T型钉宫病毒  
+##### 4864#       发表于 2022-1-1 00:12
+
+2022年1月1日 队长艾瑞思生日，文静打了30SC，望周知！
+

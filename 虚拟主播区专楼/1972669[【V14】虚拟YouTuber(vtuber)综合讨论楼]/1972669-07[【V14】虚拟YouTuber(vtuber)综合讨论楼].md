@@ -9660,3 +9660,12 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 当然也可能开年麻将杯初赛就被飞<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 9824#       发表于 2022-1-1 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">新年了，不知道会不会有新气象。
+

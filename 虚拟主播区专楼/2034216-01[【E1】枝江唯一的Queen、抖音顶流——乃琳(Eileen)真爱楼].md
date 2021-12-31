@@ -5009,3 +5009,12 @@ syl年末了事真多<img src="https://static.saraba1st.com/image/smiley/face201
 
 x3</blockquote>
 
+
+
+*****
+
+####  滴滴答咚  
+##### 372#       发表于 2022-1-1 00:08
+
+ylg第一次和as一起跨年，今晚直播看得很开心。原本听蜀绣的时候还担心乃琳状态不好现在看来可能只是藏牌太深了！期待2号的纪念回，希望奶宝别给自己太大压力。过来给这个楼盖一层，顺便祝楼友新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -7738,3 +7738,43 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 更恐怖的是外星人还可克制菌皇亲爷爷。</blockquote>
 罪加一等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86262#       发表于 2022-1-1 00:08
+
+这暗兔材料异常的友好
+
+随便点点就30了
+
+唯一的问题就是未来可期
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yzj134100  
+##### 86263#       发表于 2022-1-1 00:18
+
+福袋果然就给了唯一有的那个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">果然是大晦气日
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zakki  
+##### 86264#       发表于 2022-1-1 00:19
+
+剪影里好像有公主，不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  薛定谔的小猫  
+##### 86265#       发表于 2022-1-1 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122847&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-1 00:19</a>
+
+剪影里好像有公主，不要啊公主倒贴给迦勒底皇帝那种事绝对不要啊，至少月姬r里线出了后10年吧[f:003 ...</blockquote>
+什么艾伦耶格尔
+

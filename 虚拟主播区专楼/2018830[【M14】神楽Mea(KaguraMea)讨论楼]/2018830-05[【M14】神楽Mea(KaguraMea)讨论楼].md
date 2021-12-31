@@ -10015,3 +10015,28 @@ u1s1综艺质量是真不错 你麻的吐槽和凹人设也很到位 每周能�
 我咋感觉小麻只认得兔妈妈和兰熊，再加一个毕业粉毛呀</blockquote>
 你猜动物园总共几个人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 7150#       发表于 2022-1-1 00:11
+
+新年快乐，麻麻在姨的道路上又前进了一步<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yywzjsw  
+##### 7151#       发表于 2022-1-1 00:16
+
+新年快乐，希望小麻变的更偶像点
+
+*****
+
+####  掉头学姐  
+##### 7152#       发表于 2022-1-1 00:17
+
+新年快乐，希望今年能交到男朋友
+

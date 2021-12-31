@@ -13413,3 +13413,37 @@ Top 5 states in positivity rates</blockquote>
 再生元官网有个抗体生产通用工艺的动画，做的挺好的，简单易懂，除了是英文
 [Regeneron: Leaders in Industrial Operations and Product Supply](https://www.regeneron.com/about/industrial-operations)
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2616#       发表于 2022-1-1 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122165&amp;ptid=2039422" target="_blank">yaomingkangde 发表于 2021-12-31 23:45</a>
+哥，不了解的领域还是少扯了
+
+中和抗体 生产（即使是临床试验用）也靠的是体外细胞培养表达蛋白，不是你想 ...</blockquote>
+你自己复盘查查，2020年早期连单抗蛋白是哪跟哪都没研究清楚，单抗药出现已经快到今年了，之前靠的就是康复者血清，黑市里康复者分离血清比黄金还贵，最出名的例子就是阿川。现在是什么情况我确实没有跟，但据我所知，并没有量产。你可以懂你的专业，但你不一定懂现实。
+
+*****
+
+####  yaomingkangde  
+##### 2617#       发表于 2022-1-1 00:16
+
+ 本帖最后由 yaomingkangde 于 2022-1-1 00:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122612&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-1 00:06</a>
+
+你自己复盘查查，2020年早期连单抗蛋白是哪跟哪都没研究清楚，单抗药出现已经快到今年了，之前靠的就是康 ...</blockquote>
+我说了，中和抗体生产，不是你想象中的从康复者血清里提取然后纯化
+
+是从康复者血清/受新冠病毒感染的小鼠中筛选最有潜力的抗体氨基酸序列，依据该序列制备细胞株，然后体外培养细胞来表达抗体蛋白
+
+我不太懂你说的现实是啥，你要说中和抗体不能量产
+
+再生元、礼来/君实、GSK/vir、国内的清华大学/腾盛博药，加起来已经有四家实现工业化生产了
+
+你如果说工业化生产受限于康复者血清采集难度，那我上面也解释了，在确定氨基酸序列之后，中和抗体的工业化生产完全与康复者血清采集无关
+
+2020.10 给YKW用的再生元中和抗体也是体外细胞培养出来的
+
