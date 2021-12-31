@@ -1921,3 +1921,298 @@ happy new  Japanese yeah tiger！
 草，倒数的时候我梯子崩了，切到斗鱼看最后part</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实只是eplus垃圾，我在水那会就崩了折腾半天都是高糊画质，然后管子还是满速的
 
+
+
+*****
+
+####  chenflyyy  
+##### 3220#       发表于 2021-12-31 23:04
+
+该难忘今宵了，好快<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3221#       发表于 2021-12-31 23:04
+
+LIVE with a smile!
+
+*****
+
+####  Arccueid  
+##### 3222#       发表于 2021-12-31 23:05
+
+妈的倒数时候崩了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 3223#       发表于 2021-12-31 23:08
+
+真好啊
+
+<img src="https://img.saraba1st.com/forum/202112/31/230824vcokf9kkvvn1c1fv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:08 上传
+
+*****
+
+####  仟音一心  
+##### 3224#       发表于 2021-12-31 23:09
+
+一灯
+
+609992C7-843B-4E09-9327-B44679B8CB49.jpeg
+(154.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/230911vyp1kjvjvpjdrfvf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  普之舜舜  
+##### 3225#       发表于 2021-12-31 23:10
+
+ 本帖最后由 普之舜舜 于 2021-12-31 23:13 编辑 
+
+后面还有安可吗？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cybernetics31  
+##### 3226#       发表于 2021-12-31 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">回来了都回来了
+
+*****
+
+####  stygian  
+##### 3227#       发表于 2021-12-31 23:12
+
+杏酱有当年高桥南的味儿了，总长！
+
+鱼哭了
+
+*****
+
+####  努斯万克  
+##### 3228#       发表于 2021-12-31 23:12
+
+感想：虹咲的颜值方差有点大
+
+*****
+
+####  lj205  
+##### 3229#       发表于 2021-12-31 23:13
+
+前辈好温柔，还给星星演唱会加油
+
+*****
+
+####  仟音一心  
+##### 3230#       发表于 2021-12-31 23:13
+
+ 本帖最后由 仟音一心 于 2021-12-31 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121486&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 23:08</a>
+
+真好啊</blockquote>
+
+传承
+
+E20576C1-1E02-4589-8C37-5FC70AB50236.jpeg
+(332.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/231513xrxq9obzq8qzn9sc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7203E7BA-2494-4A5E-BD51-62B1CE3BC367.jpeg
+(385.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:12 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/231242gyys33d2343jk6yz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3231#       发表于 2021-12-31 23:14
+
+我今晚用的PIA看，非常流畅，比E+舒服
+
+*****
+
+####  普之舜舜  
+##### 3232#       发表于 2021-12-31 23:16
+
+好感动呀<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">现在我呀，可能是世界上最空虚的人了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 3233#       发表于 2021-12-31 23:16
+
+仿佛喝了浓烈的酒
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 3234#       发表于 2021-12-31 23:18
+
+转业画手又秀画功了
+
+*****
+
+####  普之舜舜  
+##### 3235#       发表于 2021-12-31 23:20
+
+还有哦
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  chenflyyy  
+##### 3236#       发表于 2021-12-31 23:21
+
+ 本帖最后由 chenflyyy 于 2021-12-31 23:22 编辑 
+
+这站的下26人吗（
+
+应该是分着来的吧，鲤鱼中文庆祝了，sayu卡壳了草
+
+*****
+
+####  stygian  
+##### 3237#       发表于 2021-12-31 23:21
+
+鱼宝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3238#       发表于 2021-12-31 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">她心里有我
+
+*****
+
+####  普之舜舜  
+##### 3239#       发表于 2021-12-31 23:22
+
+谢谢鲤鱼姐
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TRIScRE  
+##### 3240#       发表于 2021-12-31 23:23
+
+<img src="https://img.saraba1st.com/forum/202112/31/232301n8idkrxxwa38s3t3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20211231232223.png</strong> (312.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:23 上传
+
+
+
+*****
+
+####  普之舜舜  
+##### 3241#       发表于 2021-12-31 23:23
+
+菜宝 提前祝大家新年快乐
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 3242#       发表于 2021-12-31 23:23
+
+家乡人晚点等你一起跨年！！！
+
+*****
+
+####  仟音一心  
+##### 3243#       发表于 2021-12-31 23:23
+
+哭了的
+
+6FF3FB01-CB05-4EC9-AE7D-42C30E46EFCB.jpeg
+(354.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202112/31/232410xn555tuo4urn77k4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3244#       发表于 2021-12-31 23:23
+
+秀全英文啊，萌p算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arccueid  
+##### 3245#       发表于 2021-12-31 23:23
+
+蚌埠住了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  普之舜舜  
+##### 3246#       发表于 2021-12-31 23:23
+
+萌p笑死我了，什么嗨，guy？
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  後藤正文  
+##### 3247#       发表于 2021-12-31 23:23
+
+整活了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3248#       发表于 2021-12-31 23:23
+
+草死了，萌P再度被害
+
+*****
+
+####  iuhehc  
+##### 3249#       发表于 2021-12-31 23:24
+
+萌p这个heyguys绷不住了
+

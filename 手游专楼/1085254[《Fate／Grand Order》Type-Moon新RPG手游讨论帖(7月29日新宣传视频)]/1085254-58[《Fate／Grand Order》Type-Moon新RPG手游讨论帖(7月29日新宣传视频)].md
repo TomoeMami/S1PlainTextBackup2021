@@ -7089,3 +7089,248 @@ BA23AC6B-B5B6-4BAD-BB13-A6ECA91D263E.jpeg
 
 追水荚膜又失败了，虽然NEW个阿荣也不亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 86191#       发表于 2021-12-31 23:06
+
+喷了暗狐这卡面，吗的这个才是真货？
+
+*****
+
+####  exiaexa  
+##### 86192#       发表于 2021-12-31 23:07
+
+这圣杯铸造也太弱智了
+
+能不能给个硬币铸造啊，本来硬币就不够用
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仰望神的括约肌  
+##### 86193#       发表于 2021-12-31 23:08
+
+日替池毫无引力<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  当光停止  
+##### 86194#       发表于 2021-12-31 23:08
+
+召唤计数包含 有偿（含每日单抽）无偿 呼符
+
+不跨池继承 日替各自计算
+
+保底只保一次底 
+
+好像还有最近500次的历史抽卡查询？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  黑上シグマ  
+##### 86195#       发表于 2021-12-31 23:09
+
+哟西，一单之内出了暗狐，SAFE！
+
+*****
+
+####  alucardcz  
+##### 86196#       发表于 2021-12-31 23:09
+
+草.福袋沉了......
+
+*****
+
+####  保罗赫伯特  
+##### 86197#       发表于 2021-12-31 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121479&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-12-31 23:07</a>
+
+这圣杯铸造也太弱智了
+
+能不能给个硬币铸造啊，本来硬币就不够用</blockquote>
+这就是一个给你利用低星从者硬币的机会，感觉有点残酷啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 86198#       发表于 2021-12-31 23:13
+
+福袋赌狂那成功<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86199#       发表于 2021-12-31 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121562&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-12-31 23:13</a>
+
+福袋赌狂那成功</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，超羡慕
+
+*****
+
+####  仰望神的括约肌  
+##### 86200#       发表于 2021-12-31 23:14
+
+一发10连来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/31/231442j7lh7yohirhvzhog.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-31-23-13-12-42_13e7a6b10873871.jpg</strong> (480.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 23:14 上传
+
+*****
+
+####  枪聆弹语  
+##### 86201#       发表于 2021-12-31 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹，出了一个追2宝不算保底的是吧
+
+*****
+
+####  保罗赫伯特  
+##### 86202#       发表于 2021-12-31 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121490&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-12-31 23:08</a>
+
+召唤计数包含 有偿（含每日单抽）无偿 呼符
+
+不跨池继承 日替各自计算
+
+保底只保一次底 </blockquote>
+开服了五六年之后fgo终于能看抽卡历史记录了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说这个保底机制是只有新年池有，还是之后池子都有的常驻机制了？
+
+*****
+
+####  凌云三才  
+##### 86203#       发表于 2021-12-31 23:16
+
+这辅助不辅助的，输出不输出的，感觉没什么竞争力啊
+
+*****
+
+####  千叶铁矢  
+##### 86204#       发表于 2021-12-31 23:16
+
+暗狐技能有点一般呀
+
+*****
+
+####  cckuku  
+##### 86205#       发表于 2021-12-31 23:16
+
+看了下技能，现在的30充都能拿的出手了吗？新年从者有点没牌面啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86206#       发表于 2021-12-31 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">萌新血沉 全麻了
+
+*****
+
+####  千叶铁矢  
+##### 86207#       发表于 2021-12-31 23:17
+
+圣杯铸造怎么说
+
+*****
+
+####  alucardcz  
+##### 86208#       发表于 2021-12-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121621&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-12-31 23:16</a>
+
+看了下技能，现在的30充都能拿的出手了吗？新年从者有点没牌面啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟是群充
+
+*****
+
+####  zakki  
+##### 86209#       发表于 2021-12-31 23:18
+
+暗狐技能和光狐比差太多
+
+*****
+
+####  cckuku  
+##### 86210#       发表于 2021-12-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121648&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-12-31 23:18</a>
+ 毕竟是群充</blockquote>
+她atk才11000多，还是外星人职介。打手打不了，30群冲拿来当辅助也不上不下的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86211#       发表于 2021-12-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121618&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-12-31 23:16</a>
+
+暗狐技能有点一般呀</blockquote>
+自信点，把有点拿掉
+
+*****
+
+####  在海岸  
+##### 86212#       发表于 2021-12-31 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沉了，不过这货铁仓管啊，看宝具是不是就是那个陨石精
+
+*****
+
+####  zakki  
+##### 86213#       发表于 2021-12-31 23:22
+
+ 本帖最后由 zakki 于 2021-12-31 23:23 编辑 
+
+今年这春晚实属不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 86214#       发表于 2021-12-31 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121679&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-12-31 23:20</a>
+自信点，把有点拿掉</blockquote>
+其实我想说有点垃圾的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86215#       发表于 2021-12-31 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121674&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-12-31 23:20</a>
+
+她atk才11000多，还是外星人职介。打手打不了，30群冲拿来当辅助也不上不下的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">策划可能觉得数值超模了(
+
+*****
+
+####  qixinno2  
+##### 86216#       发表于 2021-12-31 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">茨木+1金钻头+1 GG
+

@@ -9997,3 +9997,21 @@ free chat还有27分钟寿命
 
 u1s1综艺质量是真不错 你麻的吐槽和凹人设也很到位 每周能看一期这个不播也行了
 
+
+
+*****
+
+####  T_Hb  
+##### 7148#       发表于 2021-12-31 23:09
+
+又是哪里偷的free素材，纯纯的懒狗
+
+*****
+
+####  奇拉奇拉  
+##### 7149#       发表于 2021-12-31 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110610&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2021-12-31 09:17</a>
+我咋感觉小麻只认得兔妈妈和兰熊，再加一个毕业粉毛呀</blockquote>
+你猜动物园总共几个人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

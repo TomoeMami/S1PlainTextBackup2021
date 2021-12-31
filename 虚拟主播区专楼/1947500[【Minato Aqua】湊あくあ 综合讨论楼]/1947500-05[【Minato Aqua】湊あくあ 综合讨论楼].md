@@ -16406,3 +16406,39 @@ https://news.yahoo.co.jp/articles/f495c92040dde2b9ec91c5811e9d1ce4406a29e4
 
 飞跃的夸宝，在高高在上的舞台上，还在原地踏步的直播民，感受到了心与心之间遥远的距离<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 7345#       发表于 2021-12-31 23:01
+
+不是说自己想开更多的演唱会 可惜不能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7346#       发表于 2021-12-31 23:05
+
+明年夸宝大概会花更多的精力去做自己喜欢的事情，没东西看的大家也去做自己喜欢的事情吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 。提前一小时的新年快乐！
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Scardy| + 1|那只能祝大家新年快乐了|
+| 越动天下| + 1|正好术圈的歌天天有要淘的🙃|
+
+查看全部评分
+
+*****
+
+####  zpy393  
+##### 7347#       发表于 2021-12-31 23:19
+
+不知不觉三年了嗷，说实话我当初以为热情最多持续半年到头了。虽说现在不如以前有激情，不过光靠余火也能烧很久的样子，提前祝大家新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
