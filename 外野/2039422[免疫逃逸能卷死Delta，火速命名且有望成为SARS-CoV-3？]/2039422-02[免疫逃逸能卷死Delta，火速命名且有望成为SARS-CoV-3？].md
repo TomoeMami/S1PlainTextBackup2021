@@ -11867,3 +11867,116 @@ Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron c
 到目前为止，我们有发现同一条演化路径里存在新毒株比老毒株毒力更低的情况吗？病毒毒力随机变化的话，那 ...</blockquote>
 如果说举例的话，Omicron病毒在肺复制的速度，比原版还要低。而且演化路径不是原版 - alpha - delta - omicron这样么？Omicron的严重程度比delta低啊
 
+
+
+*****
+
+####  neptunehs  
+##### 2500#       发表于 2021-12-31 09:26
+
+ 本帖最后由 neptunehs 于 2021-12-31 09:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110589&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 09:15</a>
+如果说举例的话，Omicron病毒在肺复制的速度，比原版还要低。而且演化路径不是原版 - alpha - delta - omi ...</blockquote>
+看拍老师的文就知道 delta跟omicron是不相关的
+路径是原始株-beta-b.1.几来着-omicron
+delta是alpha那边的我记得
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  海关  
+##### 2501#       发表于 2021-12-31 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54101016&amp;ptid=2039422" target="_blank">creymorgan 发表于 2021-12-30 14:16</a>
+
+咽拭子容易假阴性是因为病程发展还没到咽，测不到。
+
+要想提高准确度，那就肛拭子呗。 ...</blockquote>
+别傻了~之前原版病毒下呼吸道感染厉害时是肺泡洗液的准确率最高，其次是鼻咽拭子~~~现在o病毒呼吸道感染厉害的话就应该是鼻咽拭子准确率会提高~~~怎么也轮不到肛拭子（肛拭子是口鼻咽拭子反应巨大情况下的备选方案，在口岸新冠检测甚至没用过，什么要求必须肛拭子就是国外某黑报道胡说的）~~~
+
+*****
+
+####  smy20011  
+##### 2502#       发表于 2021-12-31 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110708&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-31 09:26</a>
+
+看拍老师的文就知道 delta跟omicron是不相关的
+
+路径是原始株-beta-b.1.几来着-omicron</blockquote>
+进化研究是的种群的基因型变化而不是某个基因型如何变化来的
+[https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15026.html](https://www.yixuela.com/books/shengwu/rjb/rjbswgebx2/15026.html)
+
+你说的那个是突变树，而不是进化树吧，beta根本就没有大流行起来
+
+*****
+
+####  neptunehs  
+##### 2503#       发表于 2021-12-31 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110786&amp;ptid=2039422" target="_blank">smy20011 发表于 2021-12-31 09:33</a>
+进化研究是的种群的基因型变化而不是某个基因型如何变化来的
+
+https://www.yixuela.com/books/shengwu/rjb ...</blockquote>
+但是omicron驱逐了delta跟delta演化出omicron是完全不一样的意思
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2504#       发表于 2021-12-31 09:35
+
+<blockquote>smy20011 发表于 2021-12-31 09:15
+如果说举例的话，Omicron病毒在肺复制的速度，比原版还要低。而且演化路径不是原版 - alpha - delta - omi ...</blockquote>
+Omicron跟原版相比，毒力存在减少的现象吗？复制速率跟毒力不是一个概念。跟delta比较也有问题，D跟O很久之前就分道扬镳了，O不是由D演化而来的，正确的应该是，原-A-O和原-D才对。
+
+*****
+
+####  smy20011  
+##### 2505#       发表于 2021-12-31 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110799&amp;ptid=2039422" target="_blank">neptunehs 发表于 2021-12-31 09:34</a>
+
+但是omicron驱逐了delta跟delta演化出omicron是完全不一样的意思
+
+—— 来自 Xiaomi M2012K11AC, Android ...</blockquote>
+进化研究的就是一个基因型如何驱逐了另一个基因型
+
+你看的那个是突变树，即病毒传染过程中随机突变产生的一棵树，这个过程是完全随机的。
+
+一个突变可以让新冠完全不传播，或者完全不治病（ACE受体不能结合），但是只要被测序了，就会到那突变树上。
+
+演化就是描述在环境的选择下，某一种突变类型会变成这个种群的主要突变类型这样一个现象。
+
+*****
+
+####  creymorgan  
+##### 2506#       发表于 2021-12-31 09:40
+
+<blockquote>smy20011 发表于 2021-12-31 09:33
+进化研究是的种群的基因型变化而不是某个基因型如何变化来的
+
+https://www.yixuela.com/books/shengwu/rjb ...</blockquote>
+在生物分类上奥米克戎和其他大概不是一个种了
+
+*****
+
+####  smy20011  
+##### 2507#       发表于 2021-12-31 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110813&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 09:35</a>
+
+Omicron跟原版相比，毒力存在减少的现象吗？复制速率跟毒力不是一个概念。跟delta比较也有问题，D跟O很久 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202112/31/094138cmeicecp4ica3alr.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-30 17.41.20.png</strong> (38.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 09:41 上传
+
+人教版高中高二生物必修2，里面的进化定义就是种群基因型的变化，不存在两条进化链，始终就是原版-A-D-O
+

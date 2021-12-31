@@ -16840,3 +16840,45 @@ A店限制线下加现金，可能会相对容易一些
 
 有没有人用过tx会议或者zoom一起看eplus的，会被封吗？晚上想和朋友一起看
 
+
+
+*****
+
+####  普之舜舜  
+##### 2935#       发表于 2021-12-31 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110478&amp;ptid=2036367" target="_blank">dd950728 发表于 2021-12-31 09:05</a>
+有没有人用过tx会议或者zoom一起看eplus的，会被封吗？晚上想和朋友一起看</blockquote>
+有转播群，我发一发
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2936#       发表于 2021-12-31 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110478&amp;ptid=2036367" target="_blank">dd950728 发表于 2021-12-31 09:05</a>
+有没有人用过tx会议或者zoom一起看eplus的，会被封吗？晚上想和朋友一起看</blockquote>
+一般腾讯会议不会被封，不过会议码率不行，我们用的是有密码的虎牙
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 2937#       发表于 2021-12-31 09:32
+
+以下内容需要积分高于 20 才可浏览
+
+转播群893055716
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  dd950728  
+##### 2938#       发表于 2021-12-31 09:34
+
+谢谢，我已经买了配信了，只是想拉几个朋友一块儿看
+
