@@ -6148,3 +6148,30 @@ A爹：你再说一次<img src="https://static.saraba1st.com/image/smiley/face20
 
 写手们给力点把质量推到通古斯的十倍八倍的啊，我想看傻逼们爆炸
 
+
+
+*****
+
+####  超阳电子炮  
+##### 86085#       发表于 2021-12-31 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54117115&amp;ptid=1085254" target="_blank">zakki 发表于 2021-12-31 17:59</a>
+
+那边还觉得新语音是他们冲出来的</blockquote>
+我也笑喷了
+
+*****
+
+####  仰望神的括约肌  
+##### 86086#       发表于 2021-12-31 19:04
+
+毫无违和<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/31/190427nusfhchgf0fq0ffu.jpg" referrerpolicy="no-referrer">
+
+<strong>6e03bd53ef414160291877041fc92749.JPG</strong> (26.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 19:04 上传
+
