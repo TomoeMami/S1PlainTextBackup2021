@@ -11756,3 +11756,50 @@ Reuters：COVID-19 hospitalization surge among U.S. children spurs new Omicron c
 我已经在关心下一个版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这种传播能力，这么大的感染基数，下一版很快就会来了
 
+
+
+*****
+
+####  烦死了  
+##### 2490#       发表于 2021-12-31 08:46
+
+英格兰足球联赛取消比赛日核酸检测，避免比赛推迟
+
+散了吧， 昂撒神族根本没有在怕费拉不堪的新冠，经济南波湾
+
+[https://www.dailymail.co.uk/spor ... -EFLs-72-clubs.html](https://www.dailymail.co.uk/sport/football/article-10355801/Footballers-Covid-tests-day-matches-SCRAPPED-EFLs-72-clubs.html)
+
+
+
+*****
+
+####  izumis1  
+##### 2491#       发表于 2021-12-31 08:51
+
+有趣的是拜登上去之后，不管纽约新增多少，纽约州长再也不bb联邦政府了
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  66666  
+##### 2492#       发表于 2021-12-31 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110305&amp;ptid=2039422" target="_blank">izumis1 发表于 2021-12-31 08:51</a>
+
+有趣的是拜登上去之后，不管纽约新增多少，纽约州长再也不bb联邦政府了
+
+—— 来自 HUAWEI NOH-AN00, Andro ...</blockquote>
+本身就是拜登干掉青州牧捧上去的，不奇怪
+
+*****
+
+####  izumis1  
+##### 2493#       发表于 2021-12-31 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110322&amp;ptid=2039422" target="_blank">66666 发表于 2021-12-31 08:52</a>
+本身就是拜登干掉青州牧捧上去的，不奇怪</blockquote>
+一州长身成万骨。。。不对，十万骨。。还是不对，百万骨枯啊
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

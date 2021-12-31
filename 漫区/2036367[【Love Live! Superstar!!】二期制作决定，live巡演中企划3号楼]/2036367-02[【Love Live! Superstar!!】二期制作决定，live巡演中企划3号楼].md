@@ -16791,3 +16791,43 @@ r3加妃喵去星团也够九人了
 G店因为能网上下单，所以倍率应该会有点高
 A店限制线下加现金，可能会相对容易一些
 
+
+
+*****
+
+####  Karin11974  
+##### 2931#       发表于 2021-12-31 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54108668&amp;ptid=2036367" target="_blank">lj205 发表于 2021-12-31 00:27</a>
+想拿G店打折码冲一波鲤鱼面对面，结果普通版已经是二次预约，感觉倍率有点 ...</blockquote>
+怎么面对面，线上吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 2932#       发表于 2021-12-31 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54110247&amp;ptid=2036367" target="_blank">Karin11974 发表于 2021-12-31 08:44</a>
+
+怎么面对面，线上吗？
+
+—— 来自 S1Fun</blockquote>
+是的呀，不过那个线上的也需要日本手机注册
+
+*****
+
+####  秋月艾莉  
+##### 2933#       发表于 2021-12-31 08:56
+
+才听完ann，说起牛舌就想起这张タン食ぅ食ぅ<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202112/31/085544g5q20y6qvf96ovss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B85D4388-FFE3-4D91-A7DA-936901FBB842.jpeg</strong> (770.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-12-31 08:55 上传
+
