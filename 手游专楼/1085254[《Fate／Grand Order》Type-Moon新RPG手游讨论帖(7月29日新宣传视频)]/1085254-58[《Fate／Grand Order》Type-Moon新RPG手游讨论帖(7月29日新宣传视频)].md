@@ -7880,3 +7880,15 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 这次福袋是优化过么，感觉抽那个都不怎么划算<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。要么是想要的卡同卡池的很多都有了，不想要的卡池就全是new
 
+
+
+*****
+
+####  都谷捻柏  
+##### 86277#       发表于 2022-1-1 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124163&amp;ptid=1085254" target="_blank">holyblood 发表于 2022-01-01 05:43:49</a>
+这次福袋是优化过么，感觉抽那个都不怎么划算。要么是想要的卡同卡池的很多都有了，不想要的卡池就全是new ...</blockquote>是优化过，让大多数人在每个福袋里都能找到雷，其实这不算技术活，毕竟这个游戏的五星强度一样有二八定律。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
