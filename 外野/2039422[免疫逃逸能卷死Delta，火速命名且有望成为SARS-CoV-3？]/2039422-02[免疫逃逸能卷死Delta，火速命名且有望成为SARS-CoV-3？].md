@@ -14542,3 +14542,26 @@ nextstrain的内容也说明我说的是对的呀</blockquote>
 你引用我的话不也删减了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我再说一遍 看看那人的历史回复你就知道屏蔽是最好的选项
 
+
+
+*****
+
+####  母星  
+##### 2710#       发表于 2022-1-1 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128543&amp;ptid=2039422" target="_blank">橋白 发表于 2022-1-1 15:49</a>
+
+我再说一遍 看看那人的历史回复你就知道屏蔽是最好的选项</blockquote>
+不至于，这哥们每次发的各种论据都像是在支持我的论点一样，应该是发自他内心的赞同吧，只不过表述上可能有问题
+
+*****
+
+####  smy20011  
+##### 2711#       发表于 2022-1-1 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128784&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 16:12</a>
+不至于，这哥们每次发的各种论据都像是在支持我的论点一样，应该是发自他内心的赞同吧，只不过表述上可能 ...</blockquote>
+我还在等你证明alpha的后代是omicron呢。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
