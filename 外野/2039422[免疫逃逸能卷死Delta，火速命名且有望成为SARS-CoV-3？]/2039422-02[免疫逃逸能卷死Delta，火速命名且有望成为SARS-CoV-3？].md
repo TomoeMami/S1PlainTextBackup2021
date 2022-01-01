@@ -13831,3 +13831,68 @@ https://weibo.com/1960116444/L8FO0aRws
 做出国移民和留学中介生意的人，就靠这些来谋财害命，圆脸视频喷的简直让人感叹，最会伤害中国人的恐怕就 ...</blockquote>
 对，我想起来了，西雅图夏至这位是做房地产的好像
 
+
+
+*****
+
+####  smy20011  
+##### 2648#       发表于 2022-1-1 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126480&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 12:41</a>
+
+呐呐呐，欢迎大家收看#今日强美#
+
+根据西奈山的一封新出炉的血清学研究doi: http://t.cn/A6J7qfgG</blockquote>
+抗体效率下降不是早知道了么？但是从真实数据上看防重症依然有效果。
+
+*****
+
+####  neptunehs  
+##### 2649#       发表于 2022-1-1 12:51
+
+ 本帖最后由 neptunehs 于 2022-1-1 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126541&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 12:48</a>
+抗体效率下降不是早知道了么？但是从真实数据上看防重症依然有效果。</blockquote>
+现在的问题是有不少没重症的也longcovid了（by 前两天的大体老师结论
+现在因为疫苗而没重症的会不会longcovid根本没数据吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  公共知识  
+##### 2650#       发表于 2022-1-1 12:53
+
+<blockquote>smy20011 发表于 2022-1-1 12:39
+综合起来，住院率是delta的30%左右，三针疫苗还可以降低80%</blockquote>
+都说了，有抗体的人可能delta根本感染不了，你o感染了，是轻症，以此说你o不牛逼就不合理。
+
+*****
+
+####  smy20011  
+##### 2651#       发表于 2022-1-1 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126563&amp;ptid=2039422" target="_blank">neptunehs 发表于 2022-1-1 12:51</a>
+
+现在的问题是有不少没重症的也longcovid了
+
+现在因为疫苗而没重症的会不会longcovid根本没数据吧</blockquote>
+longcovid也和轻重有关吧，现在连住院和死亡数据都是早期，longcovid这种估计得2-3个月才能看出来有链接么？挺好奇的
+
+*****
+
+####  公共知识  
+##### 2652#       发表于 2022-1-1 12:55
+
+还有就是，病毒在体内的长期存在会有什么后遗症现在还不好说，毕竟疫情至今也才两年。参考乙肝病毒小三阳的，肝癌几率**上升。
+
+*****
+
+####  smy20011  
+##### 2653#       发表于 2022-1-1 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126581&amp;ptid=2039422" target="_blank">公共知识 发表于 2022-1-1 12:53</a>
+
+都说了，有抗体的人可能delta根本感染不了，你o感染了，是轻症，以此说你o不牛逼就不合理。 ...</blockquote>
+英国的数据是综合了疫苗以及感染史的。
+
