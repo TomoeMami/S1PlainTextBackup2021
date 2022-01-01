@@ -2246,3 +2246,26 @@ ps5版至少loading问题可以解决了
 
 剑女喜欢这个也有够成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  酷乐  
+##### 186#       发表于 2022-1-1 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115887&amp;ptid=2042784" target="_blank">Yui_hirasawa 发表于 2021-12-31 16:26</a>
+这系列从空轨到现在出了有10部了吧，10几年时间能有多少人追下来一直玩啊，半路入坑大多都会一知半解的吧。 ...</blockquote>
+11部了，加上晓和那由多是13部。
+
+*****
+
+####  Total_Lau  
+##### 187#       发表于 2022-1-1 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115887&amp;ptid=2042784" target="_blank">Yui_hirasawa 发表于 2021-12-31 16:26</a>
+
+这系列从空轨到现在出了有10部了吧，10几年时间能有多少人追下来一直玩啊，半路入坑大多都会一知半解的吧。 ...</blockquote>
+毕竟是最后的遮羞布
+
+什么都抖明白了下作就只能盼艾约结婚了
+

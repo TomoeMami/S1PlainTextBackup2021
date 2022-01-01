@@ -10116,3 +10116,12 @@ u1s1综艺质量是真不错 你麻的吐槽和凹人设也很到位 每周能�
 
 该不会本来是兰熊上的，突然没空，叫你麻顶一顶    <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 7161#       发表于 2022-1-1 20:13
+
+直播间打开，5分钟你咩没说一句话，youtube关闭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

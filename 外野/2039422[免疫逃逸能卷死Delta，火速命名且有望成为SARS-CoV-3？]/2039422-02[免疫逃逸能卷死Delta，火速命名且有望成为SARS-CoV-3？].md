@@ -14579,3 +14579,14 @@ nextstrain的内容也说明我说的是对的呀</blockquote>
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
 你证明了呀，朋友，我不需要否定你的观点。而且你是不是真的发自心内支持我呀？我感觉你又拿拍烂的公众号、又拿nextstrain的截图，每一条都能证明我的观点，最后还说“你对了，但你没法找到下一个变种是啥”这种让我感到异常疑惑的发言，你到底是不是碍于面子不好意思表达，所以采取的这种表达形式呢？
 
+
+
+*****
+
+####  pushare  
+##### 2713#       发表于 2022-1-1 20:14
+
+新冠和非新冠入院的比例有了
+
+<img src="https://p.sda1.dev/4/b89dc0f19874c7681d2c11f02ab45187/IMG_CMP_221167689.jpeg" referrerpolicy="no-referrer">
+

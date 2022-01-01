@@ -8515,3 +8515,15 @@ FIAVjrYVgAIhVv2.jpg
 
 既然公主暴论了 那我在暴论的基础上暴论个 明年月姬动画重制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86335#       发表于 2022-1-1 20:05
+
+ 本帖最后由 zakki 于 2022-1-1 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54130383&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-1-1 18:55</a>
+没旧闪，公主是有的</blockquote>
+你这个是出口转内销了，nga一个人猜着画，传到外国你又发了回来，而且他说他是纯猜的，除了头发，剪影里根本看不出姿势和手，裙子什么的，这是二次加工过了
+
