@@ -2696,3 +2696,17 @@ sayu终于发推了，还是和杏树的合照，满足该睡了<img src="https:
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  stygian  
+##### 3302#       发表于 2022-1-1 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124468&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-1 08:39</a>
+
+前两个还知道，后两个是啥梗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+鬼头有次fmt说了KBTIT名台词谢谢茄子，萌P就昨晚hey guys，和PH类似于澳门赌场的小广告开头一句hey guys we have a gift for you语气一摸一样
+

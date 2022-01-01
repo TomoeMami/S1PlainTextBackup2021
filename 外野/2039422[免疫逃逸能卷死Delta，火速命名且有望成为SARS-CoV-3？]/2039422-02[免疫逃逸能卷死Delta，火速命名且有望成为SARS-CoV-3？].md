@@ -13562,3 +13562,14 @@ The treatment consisted of two monoclonal antibodies—meaning each was produced
 
 在此之前，血浆疗法8月24日就拿到授权，我之前帖子也更新了。
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2627#       发表于 2022-1-1 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124158&amp;ptid=2039422" target="_blank">RaidenII 发表于 2022-1-1 05:40</a>
+The treatment consisted of two monoclonal antibodies—meaning each was produced by making identica ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面我就澄清了，单抗不是靠血清提取，是之前一直用的康复者血清疗法。
+
