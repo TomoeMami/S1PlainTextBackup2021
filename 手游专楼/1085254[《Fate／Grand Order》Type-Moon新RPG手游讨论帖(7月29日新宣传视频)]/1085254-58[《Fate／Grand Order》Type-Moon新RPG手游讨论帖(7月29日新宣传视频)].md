@@ -8538,3 +8538,12 @@ FIAVjrYVgAIhVv2.jpg
 
 在fgo这种除了拐和天花板的打手外，角色基本就是季抛的游戏，我是不知道联动上去有什么好的，就像卡莲，始皇，刚出的时候多热闹，现在也没人讨论了。还要担心蘑菇会不会给你整个什么花嫁，215，帝王花一样的烂活，什么学姐线被志贵拒绝的公主来到了迦勒底遇见了咕哒什么的想想就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空气蛹  
+##### 86337#       发表于 2022-1-1 21:28
+
+现在比较心急的就是魔夜移植啥时候能上了，如果只有重新配音和高清化的话应该不用太多时间吧，希望能春季玩到<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

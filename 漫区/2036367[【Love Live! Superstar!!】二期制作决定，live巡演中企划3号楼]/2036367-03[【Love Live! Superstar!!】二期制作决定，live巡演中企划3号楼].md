@@ -3453,3 +3453,28 @@ FAE55894-38CD-4E77-AEDA-758F1E62CCA0.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那除夕可以跟菜宝一起过吗
 
+
+
+*****
+
+####  damian-wade  
+##### 3369#       发表于 2022-1-1 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54131578&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-1-1 21:03</a>
+那除夕可以跟菜宝一起过吗</blockquote>
+菜宝那可怜的合租屋，咋过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ykyin09  
+##### 3370#       发表于 2022-1-1 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54131863&amp;ptid=2036367" target="_blank">damian-wade 发表于 2022-1-1 21:30</a>
+
+菜宝那可怜的合租屋，咋过
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">严谨点，明明是国内大学宿舍（
+
