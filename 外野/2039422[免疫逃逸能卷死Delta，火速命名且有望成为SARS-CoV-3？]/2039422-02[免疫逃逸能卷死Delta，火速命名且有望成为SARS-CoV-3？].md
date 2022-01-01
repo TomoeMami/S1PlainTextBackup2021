@@ -14565,3 +14565,17 @@ nextstrain的内容也说明我说的是对的呀</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  母星  
+##### 2712#       发表于 2022-1-1 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128804&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 16:14</a>
+
+我还在等你证明alpha的后代是omicron呢。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
+你证明了呀，朋友，我不需要否定你的观点。而且你是不是真的发自心内支持我呀？我感觉你又拿拍烂的公众号、又拿nextstrain的截图，每一条都能证明我的观点，最后还说“你对了，但你没法找到下一个变种是啥”这种让我感到异常疑惑的发言，你到底是不是碍于面子不好意思表达，所以采取的这种表达形式呢？
+
