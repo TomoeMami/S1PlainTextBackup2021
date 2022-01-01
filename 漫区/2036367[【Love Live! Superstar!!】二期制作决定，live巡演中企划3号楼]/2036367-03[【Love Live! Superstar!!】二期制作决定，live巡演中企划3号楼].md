@@ -3507,3 +3507,14 @@ FAE55894-38CD-4E77-AEDA-758F1E62CCA0.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除夕鲤鱼不一定放假啊
 
+
+
+*****
+
+####  lj205  
+##### 3374#       发表于 2022-1-1 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54132016&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-1-1 21:46</a>
+除夕鲤鱼不一定放假啊</blockquote>
+经纪人说是会稍微放假，本来以为会有直播唠嗑
+

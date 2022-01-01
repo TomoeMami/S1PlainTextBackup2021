@@ -3320,3 +3320,16 @@ Subaru...
 
 绫怎么又是C位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13832#       发表于 2022-1-1 22:11
+
+这新组合的名字也太难记了吧，还是就FAM或者AFM好了
+
+看了一下数字绫总2021和2020的直播总时长居然差不多，不可思议
+
+其他数字里SC甚至比去年还涨了快50%，至于同接播的次数太少感觉已经没有看的意义了
+

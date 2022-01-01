@@ -10134,3 +10134,103 @@ u1s1综艺质量是真不错 你麻的吐槽和凹人设也很到位 每周能�
 
 看了一下，这人玩到八十分钟就跑了。
 
+
+
+*****
+
+####  T_Hb  
+##### 7163#       发表于 2022-1-1 22:05
+
+ 本帖最后由 T_Hb 于 2022-1-1 22:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么闲，什么都要插一脚
+
+*****
+
+####  路人庚  
+##### 7164#       发表于 2022-1-1 22:13
+
+第一个兔菊
+
+*****
+
+####  格林卡罗尔  
+##### 7165#       发表于 2022-1-1 22:14
+
+想起来初期的时候到处找人联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 第一个凸的兔鞠
+
+*****
+
+####  2014720  
+##### 7166#       发表于 2022-1-1 22:15
+
+啊啊，是兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+这破企划同接是一次比一次底了，还抓着搞
+
+*****
+
+####  雪风utopia  
+##### 7167#       发表于 2022-1-1 22:18
+
+没活的姨就是这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7168#       发表于 2022-1-1 22:18
+
+全是男人，互相谦让<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 7169#       发表于 2022-1-1 22:18
+
+全体亲友认知的爱都路了
+
+今天这事不知道还要听几次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 7170#       发表于 2022-1-1 22:19
+
+第二个星男
+
+
+
+*****
+
+####  yywzjsw  
+##### 7171#       发表于 2022-1-1 22:20
+
+说起来，今年能不能听到你麻：我发了新年快乐，结果没多少人回我！
+
+*****
+
+####  T_Hb  
+##### 7172#       发表于 2022-1-1 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗贝尔目标10回联动，这就现场约上了，罗贝尔你好温柔
+
+*****
+
+####  格林卡罗尔  
+##### 7173#       发表于 2022-1-1 22:21
+
+我看出来了，这个直播是拉联动用的，被凸的人有难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 7174#       发表于 2022-1-1 22:21
+
+，
+
+ 本帖最后由 yywzjsw 于 2022-1-1 22:23 编辑 
+
+组长去年才20多次，五元多少次来着？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
