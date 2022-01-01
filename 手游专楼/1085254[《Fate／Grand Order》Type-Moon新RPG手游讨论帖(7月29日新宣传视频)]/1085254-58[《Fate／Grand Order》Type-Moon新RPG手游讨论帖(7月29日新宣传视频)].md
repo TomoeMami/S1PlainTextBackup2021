@@ -8019,3 +8019,15 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 起来就白嫖到了，好耶
 
+
+
+*****
+
+####  都谷捻柏  
+##### 86291#       发表于 2022-1-1 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125865&amp;ptid=1085254" target="_blank">areklose 发表于 2022-1-1 11:37</a>
+
+就是当个半拐用，其实一键拉满全体充能和魔放挺省心的，只可惜不是50。有时候打个普通活动没必要叠叠乐， ...</blockquote>
+用法没问题，问题就出在伤害上啊，当然拉个5宝那确实不错
+

@@ -682,3 +682,14 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
 
 如果只能选一个，我肯定选Prey
 
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 66#       发表于 2022-1-1 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54116857&amp;ptid=2044935" target="_blank">费老师 发表于 2021-12-31 17:35</a>
+ 战地叛逆连队是隐藏佳作。但是居然没有孤岛危机2？孤岛危机2战役是隐藏神作！ ...</blockquote>
+隐身机制（当面隐身敌人强行看不见）和升级完之后的持续时间太强了，要是砍两刀再调一下敌人ai，调成一代那种，就完美了
+

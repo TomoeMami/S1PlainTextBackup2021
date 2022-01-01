@@ -13739,3 +13739,19 @@ https://weibo.com/1960116444/L8FO0aRws
 
 我好奇的是为啥他们要在微博使劲发这种东西，这些不应该去推特发么？
 
+
+
+*****
+
+####  rap72  
+##### 2642#       发表于 2022-1-1 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54121556&amp;ptid=2039422" target="_blank">罗莉控 发表于 2021-12-31 23:13</a>
+有，朝鲜………
+
+----发送自 HUAWEI BKL-AL20,Android 10</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你发现了华点
+可是外部也没法获取朝鲜的真实数据啊
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
