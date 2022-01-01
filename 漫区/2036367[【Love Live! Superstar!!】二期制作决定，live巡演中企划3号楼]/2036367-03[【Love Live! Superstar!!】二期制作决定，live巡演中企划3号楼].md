@@ -2989,3 +2989,16 @@ D25242BD-50E5-4DFE-998E-9C3C0686FF58.jpeg
 
 话说最后退场时候逢田姐吐槽完兔又模仿兔手势的地方竟然没人做切片，拉板还挺多人提那块的
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 3329#       发表于 2022-1-1 14:23
+
+<img src="https://p.sda1.dev/4/ce0459b6fe1790c27ed735d607971393/IMG_CMP_48045687.jpeg" referrerpolicy="no-referrer">
+
+DD指数68，除了杏树，能上4%的都是预料之外
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -14174,3 +14174,192 @@ longcovid也和轻重有关吧，现在连住院和死亡数据都是早期，lo
 那好 请问alpha的后续变种是什么 它的毒力有增强么?</blockquote>
 就是Omicron啊
 
+
+
+*****
+
+####  smy20011  
+##### 2680#       发表于 2022-1-1 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127322&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:00</a>
+
+就是Omicron啊</blockquote>
+请给出alpha后续是omicron的证明 毕竟所有图中alpha和omicron没有直接的亲子关系
+
+*****
+
+####  母星  
+##### 2681#       发表于 2022-1-1 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127345&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:02</a>
+
+请给出alpha后续是omicron的证明 毕竟所有图中alpha和omicron没有直接的亲子关系 ...</blockquote>
+我的证据就是你以前的回复呀，你总不能不认吧。
+
+smy20011
+
+ 发表于 2021-12-31 11:08 | 只看该作者
+
+dllplayer 发表于 2021-12-31 11:05
+
+不是砍掉各种干扰只有4个样本..4个样本里只有一个更轻微么
+
+[https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg](https://mp.weixin.qq.com/s/rWwT7eCEpIfyz0nhmygSrg)
+
+就算是焦老师也同意omicron比delta更轻
+
+就整个毒力演化路径而言，
+
+Omicron的毒力：
+
+比原始株更高，
+
+比最近祖先B.1.1也更高，
+
+比同辈Alpha还是更高，
+
+比八竿子打不到一块儿的大表哥Delta则略低0~30%左右。
+
+*****
+
+####  smy20011  
+##### 2682#       发表于 2022-1-1 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127380&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:04</a>
+我的证据就是你以前的回复呀，你总不能不认吧。</blockquote>
+hmm，要不你再仔细看看？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2683#       发表于 2022-1-1 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127345&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:02</a>
+
+请给出alpha后续是omicron的证明 毕竟所有图中alpha和omicron没有直接的亲子关系 ...</blockquote>
+smy20011
+
+“如果说举例的话，Omicron病毒在肺复制的速度，比原版还要低。而且演化路径不是原版 - alpha - delta - omicron这样么？Omicron的严重程度比delta低啊”
+
+这也是你的回复吧
+
+*****
+
+####  母星  
+##### 2684#       发表于 2022-1-1 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127391&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:05</a>
+
+hmm，要不你再仔细看看？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+你可不光这一条回复哦
+
+*****
+
+####  smy20011  
+##### 2685#       发表于 2022-1-1 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127394&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:06</a>
+smy20011
+
+“如果说举例的话，Omicron病毒在肺复制的速度，比原版还要低。而且演化路径不是原版 - alpha - ...</blockquote>
+你如果认同这个的话，毒力上升根本不成立啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2686#       发表于 2022-1-1 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127419&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:07</a>
+
+你如果认同这个的话，毒力上升根本不成立啊
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v ...</blockquote>
+我可没说我认同啊，这又不是一回事，你问Omicron的关系跟Alpha的关系那肯定是从你这儿得来的，虽然这个链条整体是错的，但你认为O来自于A是对的
+
+*****
+
+####  smy20011  
+##### 2687#       发表于 2022-1-1 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127467&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:11</a>
+我可没说我认同啊，这又不是一回事，你问Omicron的关系跟Alpha的关系那肯定是从你这儿得来的，虽然这个链 ...</blockquote>
+笑死了，能不能别断章取义啊 你nextstrain又不是上不去，看一眼不就知道了？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2688#       发表于 2022-1-1 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127502&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:14</a>
+
+笑死了，能不能别断章取义啊 你nextstrain又不是上不去，看一眼不就知道了？
+
+— from Google Pixel 3 XL ...</blockquote>
+你说的有对有错，还不让人用对的了，非让人用错的，真是霸道<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  母星  
+##### 2689#       发表于 2022-1-1 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127502&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:14</a>
+
+笑死了，能不能别断章取义啊 你nextstrain又不是上不去，看一眼不就知道了？
+
+— from Google Pixel 3 XL ...</blockquote>
+nextstrain的内容也说明我说的是对的呀
+
+*****
+
+####  smy20011  
+##### 2690#       发表于 2022-1-1 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127545&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:17</a>
+nextstrain的内容也说明我说的是对的呀</blockquote>
+发个截图解释一下？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2691#       发表于 2022-1-1 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127548&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:18</a>
+
+发个截图解释一下？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+截图你不发了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  母星  
+##### 2692#       发表于 2022-1-1 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127548&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:18</a>
+
+发个截图解释一下？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+而且你之前还很贴心的说明了O跟ALpha的关系，还用得着我去解释么
+
+*****
+
+####  smy20011  
+##### 2693#       发表于 2022-1-1 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127556&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:18</a>
+截图你不发了</blockquote>
+截图我发了，就是没有关系啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -8120,3 +8120,45 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">萌新看了看获取时间 发现新年从者就没一个出过货 都是后面各种奇怪的原因出的
 
+
+
+*****
+
+####  森兰丸  
+##### 86301#       发表于 2022-1-1 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127256&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-1 13:56</a>
+
+萌新看了看获取时间 发现新年从者就没一个出过货 都是后面各种奇怪的原因出的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">萌新不是刚出了太公望.....非洲人自从摩根后到现在可是快大半年没出货了....CBA沉的太伤了
+
+*****
+
+####  森兰丸  
+##### 86302#       发表于 2022-1-1 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127061&amp;ptid=1085254" target="_blank">areklose 发表于 2022-1-1 13:42</a>
+
+为啥你不想你的王姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这不都是宇宙人光炮么....定位相似
+
+*****
+
+####  alucardcz  
+##### 86303#       发表于 2022-1-1 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127415&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-1 14:07</a>
+
+萌新不是刚出了太公望.....非洲人自从摩根后到现在可是快大半年没出货了....CBA沉的太伤了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新什么时候出了太公望 我甚至3石都没舍得丢 你幻视了
+
+*****
+
+####  森兰丸  
+##### 86304#       发表于 2022-1-1 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127464&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-1 14:10</a>
+
+萌新什么时候出了太公望 我甚至3石都没舍得丢 你幻视了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">哈？我记得打杀狐时看到你的助战栏里有太公望啊....难道是我看错了
+
