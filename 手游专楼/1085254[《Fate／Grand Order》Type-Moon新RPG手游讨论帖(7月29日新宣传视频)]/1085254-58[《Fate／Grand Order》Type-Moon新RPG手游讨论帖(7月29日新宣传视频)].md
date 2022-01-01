@@ -7892,3 +7892,12 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  qixinno2  
+##### 86278#       发表于 2022-1-1 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发的石头没有灵魂 依然什么都没出
+
