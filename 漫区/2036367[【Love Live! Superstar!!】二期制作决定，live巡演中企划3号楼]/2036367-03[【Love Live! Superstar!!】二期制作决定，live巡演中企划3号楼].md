@@ -2841,3 +2841,66 @@ sayu终于发推了，还是和杏树的合照，满足该睡了<img src="https:
 
 其他人的合照都安排官方发布吗
 
+
+
+*****
+
+####  wsdbyh  
+##### 3316#       发表于 2022-1-1 11:46
+
+<blockquote>仟音一心 发表于 2022-1-1 11:35
+有</blockquote>
+我记得她两是一个事务所的吧
+
+*****
+
+####  优妮可  
+##### 3317#       发表于 2022-1-1 11:48
+
+恭喜里p，企划第三个结婚了
+
+*****
+
+####  damian-wade  
+##### 3318#       发表于 2022-1-1 11:52
+
+恭喜里P，婚礼现场会播lwb吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 3319#       发表于 2022-1-1 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125964&amp;ptid=2036367" target="_blank">wsdbyh 发表于 2022-1-1 11:46</a>
+我记得她两是一个事务所的吧</blockquote>
+是的 HolyPeak
+
+*****
+
+####  ads147147  
+##### 3320#       发表于 2022-1-1 11:56
+
+缪最小的结婚了，缪大家感觉都是隐婚了吧，没说而已（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  仟音一心  
+##### 3321#       发表于 2022-1-1 11:58
+
+Lantis Festival官方
+
+06:22开始
+
+D25242BD-50E5-4DFE-998E-9C3C0686FF58.jpeg
+(133.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 11:58 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/115807r9rm19b13ttbp8mk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

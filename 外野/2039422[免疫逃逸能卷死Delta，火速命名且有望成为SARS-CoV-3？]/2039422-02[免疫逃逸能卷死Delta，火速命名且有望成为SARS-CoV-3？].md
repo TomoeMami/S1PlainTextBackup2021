@@ -13685,3 +13685,57 @@ https://weibo.com/1960116444/L8FO0aRws
 
 南非12月初七日平均死亡在20人左右，现在到了60人，这叫没增长？带英现在七日平均是挺低的，但前天死的332例创alpha爆发以来新高又怎么说？美国也是，27号死的四千多例全都不算人了是吧？这群傻逼要说omicron整体致死率比delta低还能找到不少现阶段数据佐证，但硬要说各国死亡人数不升反降真是纯纯放屁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  琉璃  
+##### 2637#       发表于 2022-1-1 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125521&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 10:57</a>
+
+https://weibo.com/1960116444/L8FO0aRws
+
+“Omicron虽然致死率低，但感染基数这么大，死的人还是会更多”是 ...</blockquote>
+美国日均死从2000级别上升到4000级别，还真TM死得少啊！
+
+我是很少骂人的，但这种不拿人命当事的货色都是从哪里冒出来的？
+
+*****
+
+####  eveshell  
+##### 2638#       发表于 2022-1-1 11:48
+
+<blockquote>琉璃 发表于 2022-1-1 11:45
+美国日均死从2000级别上升到4000级别，还真TM死得少啊！
+
+我是很少骂人的，但这种不拿人命当事的货色都是 ...</blockquote>
+美华左派，和川粉一样一样的
+
+*****
+
+####  惊奇记事簿  
+##### 2639#       发表于 2022-1-1 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125521&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 10:57</a>
+https://weibo.com/1960116444/L8FO0aRws
+
+“Omicron虽然致死率低，但感染基数这么大，死的人还是会更多”是 ...</blockquote>
+叫他通知下欧美叫他们别搞封锁么
+
+*****
+
+####  公共知识  
+##### 2640#       发表于 2022-1-1 11:50
+
+说o症状轻和致死率低的要考虑一点，o感染的很多都是有疫苗和德尔塔抗体的。如果感染的是无抗体人士，致死率很可能没这么低。而抗体是有时效的。
+
+
+
+*****
+
+####  蔵女  
+##### 2641#       发表于 2022-1-1 11:50
+
+我好奇的是为啥他们要在微博使劲发这种东西，这些不应该去推特发么？
+

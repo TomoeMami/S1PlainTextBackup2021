@@ -9669,3 +9669,12 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">新年了，不知道会不会有新气象。
 
+
+
+*****
+
+####  死体残留  
+##### 9825#       发表于 2022-1-1 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">100w送nijinoon胜队啊 ankr真豪气
+
