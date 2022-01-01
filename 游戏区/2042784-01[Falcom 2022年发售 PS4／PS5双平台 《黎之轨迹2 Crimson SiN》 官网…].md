@@ -2278,3 +2278,19 @@ ps5版至少loading问题可以解决了
 
 按照法老控一切以热度说话，死的都可以让你活的的水平，剑女正宫位置应该是稳到爆吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stonego  
+##### 189#       发表于 2022-1-1 22:27
+
+共和国篇3正传+1外传打底了，看来轨迹是真要年货化了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 190#       发表于 2022-1-1 22:32
+
+建议 falcom 多看看 anime，多来点虐(女)主和重女，金毛捶地哭，欧内该
+

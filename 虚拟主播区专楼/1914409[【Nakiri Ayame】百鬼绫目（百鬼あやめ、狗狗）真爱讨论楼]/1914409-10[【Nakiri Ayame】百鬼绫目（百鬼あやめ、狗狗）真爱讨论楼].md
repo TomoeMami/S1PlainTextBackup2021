@@ -3333,3 +3333,12 @@ Subaru...
 
 其他数字里SC甚至比去年还涨了快50%，至于同接播的次数太少感觉已经没有看的意义了
 
+
+
+*****
+
+####  Fami水  
+##### 13833#       发表于 2022-1-1 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总签的合同应该和别人不是同一份吧 直播时长基本每年垫底
+
