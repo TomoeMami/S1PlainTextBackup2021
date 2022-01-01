@@ -13896,3 +13896,78 @@ longcovid也和轻重有关吧，现在连住院和死亡数据都是早期，lo
 都说了，有抗体的人可能delta根本感染不了，你o感染了，是轻症，以此说你o不牛逼就不合理。 ...</blockquote>
 英国的数据是综合了疫苗以及感染史的。
 
+
+
+*****
+
+####  eveshell  
+##### 2654#       发表于 2022-1-1 13:07
+
+<blockquote>neptunehs 发表于 2022-1-1 12:51
+现在的问题是有不少没重症的也longcovid了（by 前两天的大体老师结论
+
+现在因为疫苗而没重症的会不会longc ...</blockquote>
+我看long covid 是表面检测不出的重症，或者没治好
+
+*****
+
+####  母星  
+##### 2655#       发表于 2022-1-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125145&amp;ptid=2039422" target="_blank">bigapple555 发表于 2022-1-1 10:12</a>
+
+你们为什么愿意对一头 -80鹅的猪弹琴？还TM高中生物书，不是你们也是闲的慌啊 ...</blockquote>
+因为这位用尽浑身解数，也没能证明新冠病毒各演化分支的毒力下降了。你跟一个普通人辩论赢了，只能说是自己的辩论方法高超，跟一个把认为毒力下降当作个人信条的人辩论赢了，那不就说明自己说的更接近事实真相么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2656#       发表于 2022-1-1 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126802&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 13:18</a>
+
+因为这位用尽浑身解数，也没能证明新冠病毒各演化分支的毒力下降了。你跟一个普通人辩论赢了，只能说是自 ...</blockquote>
+"为了证明毒力上升，我们修改了了进化的定义“
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tillnight|-2|洗了两年地洗干净了吗|
+
+查看全部评分
+
+*****
+
+####  母星  
+##### 2657#       发表于 2022-1-1 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125145&amp;ptid=2039422" target="_blank">bigapple555 发表于 2022-1-1 10:12</a>
+
+你们为什么愿意对一头 -80鹅的猪弹琴？还TM高中生物书，不是你们也是闲的慌啊 ...</blockquote>
+当然啦，他从头至尾也没有能正面就B.1.1这个Omicron直系祖先的毒力很有可能低于Omicron的事实发表什么看法，所以结果显而易见
+
+*****
+
+####  母星  
+##### 2658#       发表于 2022-1-1 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126819&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:20</a>
+
+"为了证明毒力上升，我们修改了了进化的定义“</blockquote>
+我没有修改，是你修改的
+
+*****
+
+####  母星  
+##### 2659#       发表于 2022-1-1 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126819&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:20</a>
+
+"为了证明毒力上升，我们修改了了进化的定义“</blockquote>
+为了证明自己，还假设一条不存在的演化链，这种技巧并不能影响到你的论点是错的事实呀
+

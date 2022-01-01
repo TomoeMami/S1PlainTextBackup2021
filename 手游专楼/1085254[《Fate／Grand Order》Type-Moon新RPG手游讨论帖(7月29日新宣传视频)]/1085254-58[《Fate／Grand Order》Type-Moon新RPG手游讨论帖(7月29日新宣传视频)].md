@@ -8054,3 +8054,12 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 用法没问题，问题就出在伤害上啊，当然拉个5宝那确实不错</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你楼上上不是说了5宝也不行吗
 
+
+
+*****
+
+####  森兰丸  
+##### 86294#       发表于 2022-1-1 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一看发了30石....再看看我的3宝泳装阿比....想想这暗狐还是不抽了
+
