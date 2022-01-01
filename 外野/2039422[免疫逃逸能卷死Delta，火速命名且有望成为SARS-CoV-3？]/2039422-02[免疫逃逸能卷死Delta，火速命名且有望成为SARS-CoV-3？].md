@@ -13582,3 +13582,15 @@ The treatment consisted of two monoclonal antibodies—meaning each was produced
 
 【#纽约让“非白人”优先获得有限的新冠口服药# 】纽约州卫生部本周在一份文件中宣布，两种新冠肺炎口服药，Paxlovid和molnupiravir，已获得紧急使用授权，它们将“分别降低88%的住院和30%的死亡风险”。 该部门表示，最初的供应量“将非常有限”，因此必须根据“优先次序指南”进行分配。该指南目前优先考虑那些免疫功能中度或严重低下或至少有一个严重疾病风险因素的人。虽然这些风险因素包括患有癌症、痴呆症或糖尿病等疾病，但该部门表示，非白人“应该被视为一个风险因素，因为长期以来系统性的健康和社会不平等问题导致了其患严重疾病和死于新冠的风险增加”。  网友们对该指导意见表示愤慨，将其描述为“公然的种族主义”和“道德上令人震惊的事”。
 
+
+
+*****
+
+####  bigapple555  
+##### 2629#       发表于 2022-1-1 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54111150&amp;ptid=2039422" target="_blank">母星 发表于 2021-12-31 10:05</a>
+
+你说的基因库对于你说的演化链而言是两个东西，新冠病毒基因库有Delta，并不意味着从原始株到omicron演化 ...</blockquote>
+你们为什么愿意对一头 -80鹅的猪弹琴？还TM高中生物书，不是你们也是闲的慌啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
