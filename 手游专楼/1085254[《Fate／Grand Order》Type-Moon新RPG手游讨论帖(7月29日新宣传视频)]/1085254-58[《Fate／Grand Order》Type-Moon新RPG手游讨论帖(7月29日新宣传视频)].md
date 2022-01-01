@@ -8547,3 +8547,12 @@ FIAVjrYVgAIhVv2.jpg
 
 现在比较心急的就是魔夜移植啥时候能上了，如果只有重新配音和高清化的话应该不用太多时间吧，希望能春季玩到<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 86338#       发表于 2022-1-2 01:11
+
+那个公主纯属画的人瞎奶的，你看原图完全看不出
+

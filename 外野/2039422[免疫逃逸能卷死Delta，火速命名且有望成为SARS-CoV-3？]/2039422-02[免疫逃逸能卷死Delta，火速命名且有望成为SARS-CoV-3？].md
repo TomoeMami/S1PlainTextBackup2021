@@ -14768,3 +14768,58 @@ https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247487204&amp;idx=1&a
 
 我是说这个图里的-24应该换成-70
 
+
+
+*****
+
+####  eveshell  
+##### 2728#       发表于 2022-1-2 01:05
+
+<blockquote>smy20011 发表于 2022-1-2 01:00
+我是说这个图里的-24应该换成-70</blockquote>
+你贴个链接？图？什么新论文改的？
+
+*****
+
+####  smy20011  
+##### 2729#       发表于 2022-1-2 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134077&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:05</a>
+
+你贴个链接？图？什么新论文改的？</blockquote>
+[https://assets.publishing.servic ... severity_update.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1044481/Technical-Briefing-31-Dec-2021-Omicron_severity_update.pdf)
+
+英国最新的report 也根据了图中说的情况进行了调整
+
+*****
+
+####  smy20011  
+##### 2730#       发表于 2022-1-2 01:13
+
+还有就是如果omicron不算新冠的话(血清分型) 那是不是可以说以后没有新冠了,只有新新冠
+
+
+
+*****
+
+####  豪福  
+##### 2731#       发表于 2022-1-2 01:15
+
+楼上这逼怎么这么有精神，还是有神经
+
+*****
+
+####  smy20011  
+##### 2732#       发表于 2022-1-2 01:16
+
+还有就是在说delta和alpha对比的时候,说delta毒力比alpha高一大截,但是这两个毒株毒力95% CI是重合的,我不知道这能不能算高一大截
+
+*****
+
+####  eveshell  
+##### 2733#       发表于 2022-1-2 01:20
+
+<blockquote>smy20011 发表于 2022-1-2 01:16
+还有就是在说delta和alpha对比的时候,说delta毒力比alpha高一大截,但是这两个毒株毒力95% CI是重合的,我不 ...</blockquote>
+如果d并不更毒，破坏性却更强，说明o弱毒也可以大杀
+
