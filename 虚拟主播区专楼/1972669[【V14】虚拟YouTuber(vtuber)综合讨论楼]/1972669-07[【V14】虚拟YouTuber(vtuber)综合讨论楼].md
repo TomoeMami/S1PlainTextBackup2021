@@ -9797,3 +9797,24 @@ Yuya和Ara因为诽谤对簿公堂，感觉是这样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">网传kr新霸凌大师ara，一人80七人
 
+
+
+*****
+
+####  越动天下  
+##### 9838#       发表于 2022-1-1 20:51
+
+ 本帖最后由 越动天下 于 2022-1-1 20:52 编辑 
+
+おつかれベイビーズ 这个组合几个人编曲上的实力让我震惊😱😱😱😱  领先管人圈专辑
+
+*****
+
+####  FCCHua  
+##### 9839#       发表于 2022-1-1 20:54
+
+ 本帖最后由 FCCHua 于 2022-1-1 20:59 编辑 
+
+黛灰居然开播了，反过来的惯例和小偶像打电话
+还是交换了line啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
