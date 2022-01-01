@@ -14715,3 +14715,56 @@ https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247487204&amp;idx=1&a
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  eveshell  
+##### 2724#       发表于 2022-1-2 00:50
+
+ 本帖最后由 eveshell 于 2022-1-2 00:52 编辑 
+<blockquote>smy20011 发表于 2022-1-2 00:38
+这位需要更新一下数据了，之前我也转了，经过考虑到疫苗接种情况以及过往暴露史，omicron的住院率比delta ...</blockquote>
+他说的是不考虑接种的弱化30%，考虑的55-70%，反正他的理论我看符合逻辑
+
+*****
+
+####  smy20011  
+##### 2725#       发表于 2022-1-2 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134008&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 00:50</a>
+他说的是不考虑接种的弱化，反正他的理论我看符合逻辑</blockquote>
+是啊，不考虑接种的弱化是70%左右
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  eveshell  
+##### 2726#       发表于 2022-1-2 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134019&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-2 00:52</a>
+
+是啊，不考虑接种的弱化是70%左右
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-pla ...</blockquote>
+你再看一次？
+
+*****
+
+####  smy20011  
+##### 2727#       发表于 2022-1-2 01:00
+
+<blockquote>eveshell 发表于 2022-1-2 00:56
+你再看一次？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/02/005952p44gg4da1aiiszp7.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220101-085820.png</strong> (263.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 00:59 上传
+
+我是说这个图里的-24应该换成-70
+
