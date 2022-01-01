@@ -7946,3 +7946,31 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 我倒是福袋里面有两个完全没有雷还都能new，但也都没有特别想要的，抽了就等于仓管，还在犹豫
 
+
+
+*****
+
+####  exiaexa  
+##### 86284#       发表于 2022-1-1 10:46
+
+试了下暗兔子，感觉特攻给的太保守了
+用的阵容是杀兔（初始20+无礼装）+暗兔（20np+50np）+摩根/兔子王（20np+黑杯）
+
+别问阵容为什么奇怪，问就是我在美利坚刷龙牙
+
+这个阵容的思路是杀兔子吃暗兔子二技能起手，然后群充20，但是这样2宝暗兔子有特攻的情况下也只能做到7w的伤害
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+感觉直接给到200特攻，把伤害拉到10w左右，调整的幅度就会很大了，现在5宝也有点难处理10w以上的大怪
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 86285#       发表于 2022-1-1 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124439&amp;ptid=1085254" target="_blank">areklose 发表于 2022-1-1 08:32</a>
+
+暗狐狸一技能幅度变成50就没人说菜了。话说这修炼场如果缺材料，体感减半挺值得刷。不减半另说 ...</blockquote>
+1技能变50那就是当拐用，她自己伤害还是难顶，只能说这个class太傻逼了。
+

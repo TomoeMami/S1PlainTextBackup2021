@@ -2732,3 +2732,38 @@ sayu终于发推了，还是和杏树的合照，满足该睡了<img src="https:
 菜宝的贺年卡…就像是那种…
 小学生寒假作业本上要求作为寒假活动记录画的那种贺年卡一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ykyin09  
+##### 3305#       发表于 2022-1-1 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125333&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-1-1 10:33</a>
+
+菜宝的贺年卡…就像是那种…
+
+小学生寒假作业本上要求作为寒假活动记录画的那种贺年卡一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟都写过小学生作文了，现在再写个小学生寒假作业有什么问题嘛
+
+*****
+
+####  ads147147  
+##### 3306#       发表于 2022-1-1 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54119952&amp;ptid=2036367" target="_blank">stygian 发表于 2021-12-31 21:48</a>
+
+想好看的话king和菜宝都要减下重，麻油鸡也得再稍微瘦点
+
+不过king刚回归，也不能要求更多了，回来就好
+
+ ...</blockquote>
+之前在菜宝直播切片里看到了菜包之前的视频，那是真的圆，现在这个状态已经是暴减过的，大腿这边要下来就没那么容易了，练舞下来肌肉也很容易撑起来。只能说不太适合岚珠的人设，自己的素质还是可以的了。
+
+*****
+
+####  优妮可  
+##### 3307#       发表于 2022-1-1 10:59
+
+只有杏树和小百合发了跨团合照吗？其她人的呢，不会都藏着了吧，想看。
+

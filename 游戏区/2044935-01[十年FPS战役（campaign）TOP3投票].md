@@ -664,3 +664,12 @@ tmd命运一共8票？？？？<img src="https://static.saraba1st.com/image/smil
 
 战地叛逆连队是隐藏佳作。但是居然没有孤岛危机2？孤岛危机2战役是隐藏神作！
 
+
+
+*****
+
+####  SorroFrost  
+##### 64#       发表于 2022-1-1 10:50
+
+Alyx没玩过，那自然是ttf2、doom和传送门2了
+

@@ -13605,3 +13605,40 @@ The treatment consisted of two monoclonal antibodies—meaning each was produced
 【#纽约让“非白人”优先获得有限的新冠口服药# 】纽约州卫生部本周在一份文件中宣布，两种新冠肺炎口服药 ...</blockquote>
 这个真不是试药么？我在美国可不敢去吃
 
+
+
+*****
+
+####  smy20011  
+##### 2631#       发表于 2022-1-1 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124490&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-1 08:43</a>
+
+合生元的单抗是2020年9月29才发布，拿到FDA紧急授权已经很晚了，一查新闻还想起来了，
+
+当时ykw还因为接受 ...</blockquote>
+之前精英打的我不知道，不过ykw打的不是血清就是了
+
+20万刀一针这也是精英才用得起的药就是了
+
+*****
+
+####  smy20011  
+##### 2632#       发表于 2022-1-1 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125145&amp;ptid=2039422" target="_blank">bigapple555 发表于 2022-1-1 10:12</a>
+
+你们为什么愿意对一头 -80鹅的猪弹琴？还TM高中生物书，不是你们也是闲的慌啊 ...</blockquote>
+这位发明了一个和高中生物不同的进化定义，还不允许我举例反驳咯？
+
+*****
+
+####  eveshell  
+##### 2633#       发表于 2022-1-1 10:57
+
+https://weibo.com/1960116444/L8FO0aRws
+
+“Omicron虽然致死率低，但感染基数这么大，死的人还是会更多”是个合理的假设，但真实世界数据已经推翻这一假设：南非Omicron一波已过，死亡曲线平缓、几乎没有增长；英国新冠死亡数字(七日平均值)目前是近五个月来最低点；美国新增确诊(七日平均值) 近两周来📈180%，但死亡病例📉5%…No，不是因为“死亡延迟，还没开始”，欧美Omicron这一波11月中上旬就开始了，只不过当时没意识到它的存在，11月24日是被“发现”，不是刚“发生”。纽约11月19-21的动漫展，已经超级传播，美国Omicron一波的真实起始，就在11月8日开放边境至11月19之间 - 距今已经七到八周，早已超过“死亡延迟”的时间范围。Omicron致死率低，已有大量科学数据的支持，关键原因：对肺的影响小，集中在鼻喉。加之自然、疫苗双重免疫的作用，Omicron感染多、死亡少已是不争的事实。
+
+民主党虔信者又来了
+
