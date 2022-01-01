@@ -9818,3 +9818,29 @@ Yuya和Ara因为诽谤对簿公堂，感觉是这样
 黛灰居然开播了，反过来的惯例和小偶像打电话
 还是交换了line啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  硫黄  
+##### 9840#       发表于 2022-1-1 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">刚想重温下青春amigo，发现下半不见了
+
+看了下怎么B站的回放都没了
+
+
+
+*****
+
+####  死体残留  
+##### 9841#       发表于 2022-1-1 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133247&amp;ptid=1972669" target="_blank">硫黄 发表于 2022-1-1 23:29</a>
+刚想重温下青春amigo，发现下半不见了
+
+看了下怎么B站的回放都没了</blockquote>
+【【生肉】#NJU歌謡祭2021 _ 后半（临时版）-哔哩哔哩】 https://b23.tv/64qfTqu
+
+油管录播被智障ai ban了
+

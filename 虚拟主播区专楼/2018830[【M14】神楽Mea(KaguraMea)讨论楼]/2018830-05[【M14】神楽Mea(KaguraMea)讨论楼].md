@@ -10537,3 +10537,14 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 干沉默了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 7213#       发表于 2022-1-1 23:30
+
+ 本帖最后由 T_Hb 于 2022-1-1 23:33 编辑 
+
+1月8号晚上8点 among us  有点无语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人又不熟，这游戏也不爱玩
+

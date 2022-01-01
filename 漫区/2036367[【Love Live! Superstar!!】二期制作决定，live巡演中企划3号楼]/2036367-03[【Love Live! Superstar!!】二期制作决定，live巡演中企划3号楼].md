@@ -3752,3 +3752,99 @@ Liyuu 超话 谢谢 nagi❤️爱了 ​​​</blockquote>
 
 好羡慕青山哥哥啊，两美女一起过年，越想越酸
 
+
+
+*****
+
+####  kata魂  
+##### 3392#       发表于 2022-1-1 23:31
+
+再想想，从青山的脸来看说不定青山哥也是个帅哥，哥哥是帅哥说不定就有美丽的嫂子
+
+这波啊，是三个美女一起陪着过年
+
+*****
+
+####  player3960  
+##### 3393#       发表于 2022-1-1 23:32
+
+已经混乱了，新年第一天没看到跨团贴贴照，团内倒是乱成一锅粥，年下组在干嘛？pay在睡觉，打铁在风中凌乱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 3394#       发表于 2022-1-1 23:34
+
+打铁才是最大输家
+
+*****
+
+####  仟音一心  
+##### 3395#       发表于 2022-1-1 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133298&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-1 23:32</a>
+
+已经混乱了，新年第一天没看到跨团贴贴照，团内倒是乱成一锅粥，年下组在干嘛？pay在睡觉，打铁在风中凌乱[ ...</blockquote>
+打铁发了这个
+
+EB3737DF-2065-4742-992C-0623F9DE9CD7.jpeg
+(313.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:35 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/233505fffeexpwucdmzefe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3396#       发表于 2022-1-1 23:35
+
+鲤鱼a上去了，nagi在贴了，nako尽力了，sayu在干嘛？#pay宝状态#<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+妈的，听你们越说越气，我怎么不是青山哥，我要是青山哥我会今天一整天一个人窝在家看小偶像打游戏？<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3397#       发表于 2022-1-1 23:35
+
+微博评论
+
+E486F8A0-BD55-4801-A8DE-88016CF62E5A.jpeg
+(201.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:35 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/233544to1ygq88vv81vwiv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+73F62DFD-7C1E-42A5-B1DE-DBD976388527.jpeg
+(293.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:35 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/233544z4bfhkbvmyhimv3b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3398#       发表于 2022-1-1 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133298&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-1 23:32</a>
+
+已经混乱了，新年第一天没看到跨团贴贴照，团内倒是乱成一锅粥，年下组在干嘛？pay在睡觉，打铁在风中凌乱[ ...</blockquote>
+pay在写那个有可能会成为黑历史的小说<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3399#       发表于 2022-1-1 23:42
+
+打铁看到了吗？这就是你昨晚当我面贴我推的惩罚
+

@@ -14601,3 +14601,53 @@ https://www.zhihu.com/pin/1460486350093283328
 
 鸟类传播他来了
 
+
+
+*****
+
+####  烦死了  
+##### 2715#       发表于 2022-1-1 23:28
+
+说个身边的数据点，一个国内打了2针灭活，出国又打了3针mrna的，现在还是感染omicron<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  03e7  
+##### 2716#       发表于 2022-1-1 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54131364&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 20:38</a>
+
+https://www.zhihu.com/pin/1460486350093283328
+
+鸟类传播他来了</blockquote>
+冠状病毒不是哺乳类专供吗
+
+*****
+
+####  nanrendu  
+##### 2717#       发表于 2022-1-1 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133302&amp;ptid=2039422" target="_blank">03e7 发表于 2022-1-1 23:33</a>
+冠状病毒不是哺乳类专供吗</blockquote>
+怎么可能，有禽流感。
+这对我们来说应该就是防不住的意思了吧。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  eveshell  
+##### 2718#       发表于 2022-1-1 23:35
+
+<blockquote>03e7 发表于 2022-1-1 23:33
+冠状病毒不是哺乳类专供吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/01/233553gf4hfs4kf00gfuk4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1641051299738.jpeg</strong> (188.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-1 23:35 上传
+
