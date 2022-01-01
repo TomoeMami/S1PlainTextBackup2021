@@ -9765,3 +9765,15 @@ syl，pomu selen rosemi今天披露的vrchat用3D模型真可爱
 
 小夜连新年都没出现<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 9835#       发表于 2022-1-1 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129939&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-1-1 18:11</a>
+
+完全看不懂韩文，看了转推里的英文描述，说是遭遇stk＋流言诽谤？这个跟金鱼口了事件一样吗？描述里没说 ...</blockquote>
+Yuya和Ara因为诽谤对簿公堂，感觉是这样
+

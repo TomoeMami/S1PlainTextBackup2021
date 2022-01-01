@@ -8421,3 +8421,44 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 我昨晚才发现现在学妹最高有90级了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86327#       发表于 2022-1-1 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54122847&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-1 00:19</a>
+
+剪影里好像有公主，不要啊公主倒贴给迦勒底皇帝那种事绝对不要啊，至少月姬r里线出了后10年吧[f:003 ...</blockquote>
+没旧闪，公主是有的
+
+FIAVjrYVgAIhVv2.jpg
+(109.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 18:55 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/185530npjinkjn7otqnwik.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86328#       发表于 2022-1-1 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54130036&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2022-1-1 18:22</a>
+
+原来还有召唤履历这么个东西，从来没点开过</blockquote>
+不抽就不用点<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86329#       发表于 2022-1-1 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54130036&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2022-1-1 18:22</a>
+
+原来还有召唤履历这么个东西，从来没点开过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天刚实装
+
