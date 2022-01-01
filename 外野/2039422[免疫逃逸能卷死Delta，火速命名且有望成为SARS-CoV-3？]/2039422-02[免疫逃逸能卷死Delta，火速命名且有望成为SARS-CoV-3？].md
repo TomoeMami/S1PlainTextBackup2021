@@ -14363,3 +14363,83 @@ nextstrain的内容也说明我说的是对的呀</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  母星  
+##### 2694#       发表于 2022-1-1 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127571&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:20</a>
+
+截图我发了，就是没有关系啊
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+你不要盯着截图说假话啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，这令我很尬
+
+*****
+
+####  smy20011  
+##### 2695#       发表于 2022-1-1 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127593&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:22</a>
+你不要盯着截图说假话啊，这令我很尬</blockquote>
+那你必有高见咯，请说明一下
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2696#       发表于 2022-1-1 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127627&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:24</a>
+
+那你必有高见咯，请说明一下
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+你能找出你的截图里，有哪条线路出现毒力下降的情况么，这还不够应证的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  inconolast  
+##### 2697#       发表于 2022-1-1 14:30
+
+这破楼怎么总有人跟傻逼战起来啊
+
+*****
+
+####  smy20011  
+##### 2698#       发表于 2022-1-1 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127655&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:27</a>
+你能找出你的截图里，有哪条线路出现毒力下降的情况么，这还不够应证的 ...</blockquote>
+大哥你别转移话题啊 请给出omicron是alpha后代的证据
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2699#       发表于 2022-1-1 14:37
+
+ 本帖最后由 母星 于 2022-1-1 14:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127744&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:34</a>
+
+大哥你别转移话题啊 请给出omicron是alpha后代的证据
+
+— from Google Pixel 3 XL, Android 12 of S1 Nex ...</blockquote>
+我没有转移话题呀，截图是你的，话也是你的，你说的有关系，我也没否定你说的有关系，这有转移话题么
+
+*****
+
+####  母星  
+##### 2700#       发表于 2022-1-1 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127571&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:20</a>
+
+截图我发了，就是没有关系啊
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+你前头说有关系，后头说没关系，这还不是盯着截图说假话<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

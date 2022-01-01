@@ -713,3 +713,14 @@ ame前一段好像也有提到6期想找忍忍
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">18小时-&gt;8分钟
 
+
+
+*****
+
+####  smy20011  
+##### 1571#         楼主| 发表于 2022-1-1 14:40
+
+快乐歌en版！
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

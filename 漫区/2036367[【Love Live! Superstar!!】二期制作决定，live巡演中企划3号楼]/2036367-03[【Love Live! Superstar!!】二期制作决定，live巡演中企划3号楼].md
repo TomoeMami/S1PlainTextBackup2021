@@ -3002,3 +3002,70 @@ DD指数68，除了杏树，能上4%的都是预料之外
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 3330#       发表于 2022-1-1 14:31
+
+<img src="https://img.saraba1st.com/forum/202201/01/143058x7li4ia4bayjrjkl.jpg" referrerpolicy="no-referrer">
+
+<strong>20220101_142343.jpg</strong> (149.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/143058ellwj5wlftw5idlu.jpg" referrerpolicy="no-referrer">
+
+<strong>20220101_142341.jpg</strong> (152.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/143059grx8dracfcgacs8e.jpg" referrerpolicy="no-referrer">
+
+<strong>20220101_142323.jpg</strong> (306.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/143100vbz326t66bbtea3t.jpg" referrerpolicy="no-referrer">
+
+<strong>20220101_142259.jpg</strong> (372.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:31 上传
+
+
+
+*****
+
+####  仟音一心  
+##### 3331#       发表于 2022-1-1 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127619&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-1-1 14:23</a>
+DD指数68，除了杏树，能上4%的都是预料之外
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+这个是按加起来=100%来算的，你4团包括二赖子全D了，算算平均下来只剩多少了？
+
+*****
+
+####  stygian  
+##### 3332#       发表于 2022-1-1 14:37
+
+<img src="https://img.saraba1st.com/forum/202201/01/143641sqwbk4qwwloqk3ob.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:36 上传
+
+阿卡林也跑146家里了
+

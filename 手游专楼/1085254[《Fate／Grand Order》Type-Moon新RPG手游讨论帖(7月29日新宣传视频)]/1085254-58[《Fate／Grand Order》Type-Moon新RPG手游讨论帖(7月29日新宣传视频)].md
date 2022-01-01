@@ -8162,3 +8162,38 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 萌新什么时候出了太公望 我甚至3石都没舍得丢 你幻视了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">哈？我记得打杀狐时看到你的助战栏里有太公望啊....难道是我看错了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86305#       发表于 2022-1-1 14:28
+
+我到330天井了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+9DFFC65A-C999-419B-995B-883D39F7828A.png
+(1.18 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:28 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/142824m9w1yf3m5wx3l5w5.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86306#       发表于 2022-1-1 14:29
+
+这次卡池出率一定调整过了
+
+*****
+
+####  alucardcz  
+##### 86307#       发表于 2022-1-1 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127610&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-1 14:22</a>
+
+哈？我记得打杀狐时看到你的助战栏里有太公望啊....难道是我看错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">支援
+
