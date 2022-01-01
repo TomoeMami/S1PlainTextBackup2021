@@ -14668,3 +14668,16 @@ https://www.zhihu.com/pin/1460486350093283328
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 2720#       发表于 2022-1-2 00:08
+
+对于毒力的问题上，研究的对象始终是时间上的上一个变种与当前变种的毒力变化，目的是为下一个变种做准备。与delta相比，omicron的传播能力**增强，而毒力减弱。
+
+我个人认为，病毒的毒力是个随机变化的过程，下一个新冠流行病毒，毒力可能增强，也可能减弱。但是不存在一个趋势，说毒力一定增强或者减弱的。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

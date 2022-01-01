@@ -3903,3 +3903,52 @@ pay在写那个有可能会成为黑历史的小说<img src="https://static.sara
 
 太可怕了，花田你那么喜欢塞现实设定，第二季我一定要看到可可在恋恋家过年<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ykyin09  
+##### 3406#       发表于 2022-1-2 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的有点怀疑nagi家聚餐的第三人不会是nako吧。
+
+*****
+
+####  starring  
+##### 3407#       发表于 2022-1-2 00:15
+
+纯好奇，鲤鱼有没有说过自己的家庭成员构成？
+
+sayu和pay都有一个弟弟，nako有一个姐姐，nagi是哥哥
+
+*****
+
+####  lj205  
+##### 3408#       发表于 2022-1-2 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133764&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-2 00:15</a>
+纯好奇，鲤鱼有没有说过自己的家庭成员构成？
+
+sayu和pay都有一个弟弟，nako有一个姐姐，nagi是哥哥 ...</blockquote>
+就是普通三口之家
+
+*****
+
+####  CAserlumos  
+##### 3409#       发表于 2022-1-2 00:19
+
+才发现推上说了几句场面话，微博和阿b直接nagi爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 3410#       发表于 2022-1-2 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133764&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-2 00:15</a>
+纯好奇，鲤鱼有没有说过自己的家庭成员构成？
+
+sayu和pay都有一个弟弟，nako有一个姐姐，nagi是哥哥 ...</blockquote>
+国内这个年纪的纯上海人肯定是独生子女啊。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
