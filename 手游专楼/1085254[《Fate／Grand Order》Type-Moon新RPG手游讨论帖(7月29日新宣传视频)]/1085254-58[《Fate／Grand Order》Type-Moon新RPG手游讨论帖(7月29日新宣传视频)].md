@@ -8197,3 +8197,25 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 哈？我记得打杀狐时看到你的助战栏里有太公望啊....难道是我看错了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">支援
 
+
+
+*****
+
+####  newfaceryo  
+##### 86308#       发表于 2022-1-1 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127671&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-1-1 14:28</a>
+
+我到330天井了</blockquote>
+你累积了多少抽保底了在哪里看？
+
+*****
+
+####  qixinno2  
+##### 86309#       发表于 2022-1-1 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127610&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-1 14:22</a>
+
+哈？我记得打杀狐时看到你的助战栏里有太公望啊....难道是我看错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟我一样看错了
+

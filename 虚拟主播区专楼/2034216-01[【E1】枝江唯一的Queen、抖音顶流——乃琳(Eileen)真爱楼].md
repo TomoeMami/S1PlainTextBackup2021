@@ -5018,3 +5018,36 @@ x3</blockquote>
 
 ylg第一次和as一起跨年，今晚直播看得很开心。原本听蜀绣的时候还担心乃琳状态不好现在看来可能只是藏牌太深了！期待2号的纪念回，希望奶宝别给自己太大压力。过来给这个楼盖一层，顺便祝楼友新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 373#         楼主| 发表于 2022-1-1 15:07
+
+乃琳Queen:[发布动态](https://t.bilibili.com/610597465907255280)<blockquote>元旦快乐！！！
+
+<img src="https://img.saraba1st.com/forum/202201/01/150730aswwpo01hp134wgp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 15:07 上传
+
+x3
+
+2022也要继续快快乐乐喔！！
+
+好好吃饭～好好睡觉～别忘记也祝家里人元旦快乐喔
+
+<img src="https://img.saraba1st.com/forum/202201/01/150738btor6bi0xiiztyvy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 15:07 上传
+
+x3</blockquote>
+

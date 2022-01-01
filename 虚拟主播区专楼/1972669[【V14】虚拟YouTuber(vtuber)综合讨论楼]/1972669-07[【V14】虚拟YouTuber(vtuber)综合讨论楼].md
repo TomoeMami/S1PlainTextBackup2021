@@ -9678,3 +9678,21 @@ SMCきちゃー<img src="https://static.saraba1st.com/image/smiley/face2017/075.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">100w送nijinoon胜队啊 ankr真豪气
 
+
+
+*****
+
+####  FCCHua  
+##### 9826#       发表于 2022-1-1 15:00
+
+虹军服喜加一，同一时间发布还以为是差不多类型的新衣服
+
+*****
+
+####  free  
+##### 9827#       发表于 2022-1-1 15:05
+
+[https://www.bilibili.com/video/BV1XP4y1J7NX](https://www.bilibili.com/video/BV1XP4y1J7NX)
+
+杏en这个手书动画fanart真不错
+
