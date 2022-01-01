@@ -8321,3 +8321,36 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 —— 来自 ...</blockquote>
 你以为这游戏只有呆毛脸？时代变了，以后就是狐狸脸的天下了，快进到某个新从者拥有对狐狸脸特攻233
 
+
+
+*****
+
+####  alucardcz  
+##### 86319#       发表于 2022-1-1 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129425&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-1 17:24</a>
+
+等等....这辣鸡游戏已经石锤实装保底了么.....可为啥我CBA还是沉的这么惨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天刚实装900石
+
+*****
+
+####  alucardcz  
+##### 86320#       发表于 2022-1-1 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129328&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2022-1-1 17:16</a>
+
+我的意思是想问，330抽保底的话你在哪里看已经抽了多少发了。
+
+顺便说一下的话，我3单出的第一只。 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/01/175344slblhu0vcmllwaqq.jpg" referrerpolicy="no-referrer">
+
+<strong>333333.jpg</strong> (436.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 17:53 上传
+
+左下 自己数(
+

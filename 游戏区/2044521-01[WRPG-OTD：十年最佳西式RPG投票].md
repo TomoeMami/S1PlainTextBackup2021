@@ -733,3 +733,17 @@ fo4在WRPG这四个字母里，也就跟“W”沾边……
 
 原来巫师3这么没牌面
 
+
+
+*****
+
+####  茛菪  
+##### 71#       发表于 2022-1-1 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123166&amp;ptid=2044521" target="_blank">repal 发表于 2022-1-1 00:42</a>
+
+fo4在WRPG这四个字母里，也就跟“W”沾边……</blockquote>
+要较真的话，FO4的RPG纯度比滚5高多了，系统再阉割至少保留了SPECIAL属性值，任务里有属性检定和perk检定（虽然屈指可数），装备slot复杂度回归了晨风的内衣+各部位外甲分离，剧情线有正经的多派系站队结局。
+
+你要论证fo4不是wrpg当然也可以，但那和这个投票显然不会有任何相关性。
+

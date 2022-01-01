@@ -9715,3 +9715,19 @@ selen 她真的 我哭死
 后知后觉，原来虹kr也出了金鱼口了事件
 [https://twitter.com/AraChae2434/status/1476090184341274625](https://twitter.com/AraChae2434/status/1476090184341274625)
 
+
+
+*****
+
+####  winda  
+##### 9830#       发表于 2022-1-1 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在麓贵隆直接要把你韩串讨论版给关了，维弹kr版
+
+*****
+
+####  poipanchao  
+##### 9831#       发表于 2022-1-1 18:00
+
+啥东西，全是韩文救救楼友
+
