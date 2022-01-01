@@ -9731,3 +9731,28 @@ selen 她真的 我哭死
 
 啥东西，全是韩文救救楼友
 
+
+
+*****
+
+####  毛头小希  
+##### 9832#       发表于 2022-1-1 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129102&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-1-1 16:52</a>
+
+后知后觉，原来虹kr也出了金鱼口了事件
+
+https://twitter.com/AraChae2434/status/1476090184341274625 ...</blockquote>
+完全看不懂韩文，看了转推里的英文描述，说是遭遇stk＋流言诽谤？这个跟金鱼口了事件一样吗？描述里没说起因，也是同事不和？
+
+就是不知道enkr法务部管不管得到kr那边了
+
+syl，pomu selen rosemi今天披露的vrchat用3D模型真可爱
+
+*****
+
+####  黑漆漆的漆漆  
+##### 9833#       发表于 2022-1-1 18:20
+
+本社，kr，vr一脉相传<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

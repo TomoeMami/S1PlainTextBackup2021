@@ -5276,3 +5276,38 @@ B站动态看见一个观影团连观影特典都整出来了
 看到一条评论突然笑死，
 打完她们晚上还得回去住一个寝室<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  leleq  
+##### 410#       发表于 2022-1-1 18:11
+
+今天重看一遍  有了些奇怪的想法 
+
+从皆杀Revue到大家重上舞台有一段日常戏很明显不是之前的插叙而是顺叙 中间过了一段时间（几天）那么恋哥哥岂不是和光一样被关在Revue世界里了？你们这帮人没一个关心一下恋哥哥去哪了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+然后既然皆杀Revue是真实发生过的（大概率是蕉哥哥召唤出来的）那么开场那段Revue也应该是 那么开始的Revue是光召唤出来的喽 然后因为恋哥哥被秒长颈鹿连片尾都没看见 Revue私用化的屑光
+
+所以Revue的胜者有能够开启Revue的能力喽<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardito  
+##### 411#       发表于 2022-1-1 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实说了半天皆杀一穿六，maya的罩衣没掉啊，算穿5.5都很勉强
+
+蕉蕉你真的还能再赢大白鹅么
+
+*****
+
+####  海晟天锻  
+##### 412#       发表于 2022-1-1 18:23
+
+鹅属于是答对问题被蕉放过去了，蕉自己都说了这又不是选拔，没必要把鹅再砍了
+不过其他世界线的蕉确实是没再赢过鹅了，舞台剧被背刺，手游被垫，属于是给动画还债了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看了看蕉具有两个人格的解读后，突然觉得喊老公的都是在喊里人格蕉，迫害的都在迫害表人格蕉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

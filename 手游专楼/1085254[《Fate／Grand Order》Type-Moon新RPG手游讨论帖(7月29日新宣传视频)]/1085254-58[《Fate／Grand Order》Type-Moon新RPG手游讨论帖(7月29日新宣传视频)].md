@@ -8354,3 +8354,61 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 左下 自己数(
 
+
+
+*****
+
+####  qixinno2  
+##### 86321#       发表于 2022-1-1 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129695&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-1 17:53</a>
+
+左下 自己数(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少见的萌新月初豹跳失败
+
+*****
+
+####  alucardcz  
+##### 86322#       发表于 2022-1-1 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129960&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-1 18:13</a>
+
+少见的萌新月初豹跳失败</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+少见的萌新月初豹跳失败 x
+
+少见的萌新月初豹跳成功 o
+
+*****
+
+####  qixinno2  
+##### 86323#       发表于 2022-1-1 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129970&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-1 18:14</a>
+
+少见的萌新月初豹跳失败 x
+
+少见的萌新月初豹跳成功 o</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新的欧气要来一波大的了
+
+*****
+
+####  newfaceryo  
+##### 86324#       发表于 2022-1-1 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129695&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-1 17:53</a>
+
+左下 自己数(</blockquote>
+原来还有召唤履历这么个东西，从来没点开过
+
+*****
+
+####  qixinno2  
+##### 86325#       发表于 2022-1-1 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54130036&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2022-1-1 18:22</a>
+
+原来还有召唤履历这么个东西，从来没点开过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚实装的你以前想点也没得点啊
+
