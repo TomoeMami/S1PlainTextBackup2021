@@ -14823,3 +14823,89 @@ https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247487204&amp;idx=1&a
 还有就是在说delta和alpha对比的时候,说delta毒力比alpha高一大截,但是这两个毒株毒力95% CI是重合的,我不 ...</blockquote>
 如果d并不更毒，破坏性却更强，说明o弱毒也可以大杀
 
+
+
+*****
+
+####  yuandi0120  
+##### 2734#       发表于 2022-1-2 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134160&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:20</a>
+
+如果d并不更毒，破坏性却更强，说明o弱毒也可以大杀</blockquote>
+然而现在问题在于找不到阿三这种既没有疫苗医疗条件又差人员还密集的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">·
+
+*****
+
+####  eveshell  
+##### 2735#       发表于 2022-1-2 01:27
+
+<blockquote>yuandi0120 发表于 2022-1-2 01:26
+然而现在问题在于找不到阿三这种既没有疫苗医疗条件又差人员还密集的地方了· ...</blockquote>
+抗体会消失啊
+
+*****
+
+####  smy20011  
+##### 2736#       发表于 2022-1-2 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134160&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:20</a>
+如果d并不更毒，破坏性却更强，说明o弱毒也可以大杀</blockquote>
+我觉得，最后的死亡人数是毒力与传播力的综合。可能是可能，但不是一定。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2737#       发表于 2022-1-2 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134182&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:27</a>
+抗体会消失啊</blockquote>
+有记忆b细胞等其他的免疫系统
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2738#       发表于 2022-1-2 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134180&amp;ptid=2039422" target="_blank">yuandi0120 发表于 2022-1-2 01:26</a>
+然而现在问题在于找不到阿三这种既没有疫苗医疗条件又差人员还密集的地方了· ...</blockquote>
+楼上有说，朝鲜啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2739#       发表于 2022-1-2 01:32
+
+拍老师的文章其实是反驳新冠会越进化越弱这个观点的，但是不知道为什么有些人认为流感化的反面是重症化，而不是随机化。
+
+毒力并不是只有上升和下降两种趋势，还可以没有趋势。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  jxwats1  
+##### 2740#       发表于 2022-1-2 01:39
+
+ 本帖最后由 jxwats1 于 2022-1-2 01:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134099&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-2 01:11</a>
+[https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/10](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/10) ...</blockquote>
+谢谢你给出的参考链接。
+
+但是很遗憾，这和表格中的“英格兰研究”不是一个团队做的，所以这个“减少70%”并不是你口中的对“减少24%”的更新。
+
+那么为什么不同研究团队给出的数字差距如此之大呢？魔鬼在细节，让我们看一下你贴出的UK Health Security Agency的报告是怎么控制变量的： <blockquote>These analyses stratified on date of specimen and area of residence and further
+
+adjusted for age, sex, ethnicity, local area deprivation, international travel, vaccination status
+
+and whether the current infection was an identified re-infection (that is the individual had a
+
+previous PCR positive test)</blockquote>
+看见了吗，人家控制的是<strong>“identified re-infection”</strong>，没有把既往可能感染（但没有pcr证据实锤）这一因素算上。所以在某种意义上这个新报告（-66% CHR）和表格中的“苏格兰报告”给出的-68% CHR（它们也是控制了既往感染史，但是忽略了未检出的既往感染史）是差不多吻合的，并不是什么新鲜东西。
+

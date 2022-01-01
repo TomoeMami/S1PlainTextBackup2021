@@ -9878,3 +9878,95 @@ Yuya和Ara因为诽谤对簿公堂，感觉是这样
 由手机上传
 2022-1-2 00:54 上传
 
+
+
+*****
+
+####  UnhappyTails  
+##### 9843#       发表于 2022-1-2 01:30
+
+ 本帖最后由 UnhappyTails 于 2022-1-2 01:36 编辑 
+
+repo一下今天的新春衣服合集
+
+<strong>horsd oeuvre （N/A）</strong>
+<img src="https://s4.ax1x.com/2022/01/02/ToEZZQ.jpg" referrerpolicy="no-referrer">
+
+肥妹这个2.0唯一可说的就是这个全天最大单块裸露肌肤了，感觉灵活度也没增加多少
+
+<strong>soupe（6.5/10）</strong>
+<img src="https://s4.ax1x.com/2022/01/02/ToERJI.jpg" referrerpolicy="no-referrer">
+
+杏的新衣回老几样已经俗套到让人觉得尴尬的地步了，不过山田宛如出道回一样的怒涛披露+一转嗯聊还是让这道主菜级别的新衣服给人的体验直如喝餐前汤，倒不是说不好吃，这个衣服有很多亮点，大胆的设计就不说了，同时也没忘了和服的初詣和服的那种正式感，花纹和漫画相融得不错，可以说蛮前卫的了。头饰也则是满满的幼女神的既视感，总体给人观感不错。不过潮是潮，我真的很怀疑这件衣服能穿着直播几次啊？
+
+一个印象点是这里
+<img src="https://pic.imgdb.cn/item/61d080ba2ab3f51d91e90c9e.jpg" referrerpolicy="no-referrer">
+
+看全身视角的时候有一种错位既视感，类似于en当时很流行的大佬坐姿。不知道是无意为之还是有意为之。但话又说回来，有关新衣服的部分真的太少了，你不上吊你好歹也放大稍微讲两句啊......衣服其实是有7分的，但是由于直播问题减到6分
+
+<strong>Le Fromage（5/10）</strong>
+<img src="https://pic.imgdb.cn/item/61d083d62ab3f51d91eb8570.jpg" referrerpolicy="no-referrer">
+
+露姨的这套有点像是干酪。不是说加龄臭，而是说这就是那种也不难吃，但是一般人也不会冲着那个去的，然后呢你也吃不太出好歹来，你又急着吃后面的主要内容，但是又不能没有这一环感觉。这套的设计风格是典型的和洋折衷コーディネート。这个和服的配色还是让我相当惊艳的，质地感也拉满了，不过上半身就有点一言难尽。看着露姨那让我实在喜欢不起来的颜设计和这顶羽毛帽只能说果然还是无法理解阿姨的审美
+
+当然还搞了一个gal开头啊，虽然比较简陋...虽然不是说应该人人搞这个节目不过我感觉总比老三样有意思多了
+
+但是值得一提的是露姨的这只猫头鹰的设计超级有趣
+<img src="https://pic.imgdb.cn/item/61d0846c2ab3f51d91ebe9c9.jpg" referrerpolicy="no-referrer">
+It's watching you!
+
+<strong>Salade（6/10）</strong>
+<img src="https://pic.imgdb.cn/item/61d086912ab3f51d91ed843e.jpg" referrerpolicy="no-referrer">
+
+kyr真是一个不会给人惊喜的女人，这件衣服的一切都只能说是中规中矩，依然是轻小说风格拉满的画风，依然是有一点点不好也不坏的细节，装饰部分确实足称优秀，但她就是一个合理的新春衣服角色
+
+<img src="https://pic.imgdb.cn/item/61d088292ab3f51d91eebee2.jpg" referrerpolicy="no-referrer">
+
+甚至连吉祥物都可爱的中规中矩
+
+koyo又一次展现了她拿出平均表现的能力，与其说是不悯不如说是永远不超出预期（对于偶像来说还真是灾难...），正如不少餐厅的色拉，听上去把你下辈子也不会放进色拉的内容都放进了色拉盘但拌完了其实就普普通通，清一清口吃主菜了
+
+<strong>Entrée（7.5/10）</strong>
+<img src="https://pic.imgdb.cn/item/61d088b12ab3f51d91ef51df.jpg" referrerpolicy="no-referrer">
+
+kre这件衣服咋说呢，概念上芹子哥肯定是想往极道妻那个概念上靠的，实际上也确实差不多这么回事儿这一点从上吊最开始就看得出来
+<img src="https://pic.imgdb.cn/item/61d089192ab3f51d91efa990.jpg" referrerpolicy="no-referrer">
+
+相当张扬的线条和黑白金的配色以及凸显豪爽并且便于坦膀子逞胸（划掉）凶的整体感把握的很到位，不过一个问题是钻头鬓角有点破坏整体感，可以收起来比较好。另外虎鲸头饰可以设计成横过来的，不然看着想糖葫芦，花魁妆...蛮合适这套人设的，但说实话我八喜欢
+
+登场的方式也还算是有新意吧，就是那种无脑吹可以拿出来做吹点级别的创新，不过也许优化一下遮挡物就能提升观感了
+
+总的来说作为毫无疑问的主菜味道还是有足够的保障，不能说是惊为天人，但是各方面都不平庸。当然我个人没有那么吃芹子哥的画风啦...不然这皮我感觉一个8分还是没问题的
+
+不过该吹不可战胜还是要吹的，毕竟伏唯杏朝以业绩治天下，kre拿着这个衣服打出天下第一sc那就是芹子哥nb画风版本之爹不喜欢的建议退游！下不来台？那我就用钱给你搭个台阶给你垫脚！明天就来拿钱，我看你下不下的来台！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<strong>Desserts（6/10）</strong>
+<img src="https://pic.imgdb.cn/item/61d08bd52ab3f51d91f18dd7.jpg" referrerpolicy="no-referrer">
+
+168king这个皮给我最大的第一印象是很欠揍。其实由于角度和模型的关系，168king的原模就很偶尔会给人一种欠揍的感觉，稍微有点类似兔田又不完全一样。这次的新春皮把这个特点完全的凸显出来了，这个短发+小辫的发型让168king嘲讽感拉满
+
+皮的本身质量来说的话，记忆点和kyr那个不相上下，而细节方面可能还要微微不如
+
+另一个直观印象是有点像メロディー・雛・マークス。明白意思就行了，不知道也不要去查。
+
+最后，我还是要吐槽一下尼杏这个吉祥物的问题
+<img src="https://pic.imgdb.cn/item/61d08d122ab3f51d91f259db.jpg" referrerpolicy="no-referrer">
+
+这个狸锅本来非常有想法，但是把他联合动捕真的是纯纯的蠢逼行为。168和这个锅一起晃来晃去感觉真的蠢到批爆，你放个gif在效果都好一百倍，这种明显不过脑的套路化设计就让人觉得很懒
+
+作为餐后甜点来说还是可以的，不过跟其他几个一比其实又是相对普通的那一个
+
+<strong>Boissons（6/10）</strong>
+<img src="https://pic.imgdb.cn/item/61d08e342ab3f51d91f31587.jpg" referrerpolicy="no-referrer">
+
+这套衣服的设计初衷是好的，捏捏蛮适合这种风格的短发的。和一般短发系凸显的凛凛感不同，捏捏走的是本子里那种萝太/幼汤包风格。衣服的花边我很喜欢，披肩怪怪的，蝴蝶结不错。
+
+不过这个无装饰版本总让我想起他
+<img src="https://pic.imgdb.cn/item/61d08eb62ab3f51d91f363bd.jpg" referrerpolicy="no-referrer">
+
+也不知道为啥，可能是病
+
+作为餐后饮品及格是肯定及格了，作为永远迟到一点的捏捏鸡迟来的新衣装也绝对谈不上很优秀，总的来说是可以接受的那种新衣服吧，不过这个风格以后歌回能拿出来摇头晃脑吗？我不好说诶.....
+
+以上就是今天的新春衣服repo了！睡了睡了！
+
