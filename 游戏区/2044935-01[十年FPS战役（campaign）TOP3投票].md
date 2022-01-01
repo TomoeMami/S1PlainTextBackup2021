@@ -722,3 +722,23 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
 
 战地3，无限战争，黑色行动2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  luguozmy  
+##### 70#       发表于 2022-1-1 14:58
+
+可以添加彩虹6号吗
+
+*****
+
+####  电磁炮233  
+##### 71#         楼主| 发表于 2022-1-1 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128068&amp;ptid=2044935" target="_blank">luguozmy 发表于 2022-1-1 14:58</a>
+可以添加彩虹6号吗</blockquote>
+围攻没有战役啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

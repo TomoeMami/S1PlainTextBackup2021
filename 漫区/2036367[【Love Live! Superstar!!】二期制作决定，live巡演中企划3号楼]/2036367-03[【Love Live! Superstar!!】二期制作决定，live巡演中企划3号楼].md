@@ -3069,3 +3069,37 @@ DD指数68，除了杏树，能上4%的都是预料之外
 
 阿卡林也跑146家里了
 
+
+
+*****
+
+####  优妮可  
+##### 3333#       发表于 2022-1-1 14:54
+
+<img src="https://img.saraba1st.com/forum/202201/01/145431mpi118kgi1ihrpkn.jpg" referrerpolicy="no-referrer">
+
+<strong>20220101_145119.jpg</strong> (159.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/145432cn734px374n3864s.jpg" referrerpolicy="no-referrer">
+
+<strong>20220101_145120.jpg</strong> (155.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 14:54 上传
+
+*****
+
+####  一个陆仁贾  
+##### 3334#       发表于 2022-1-1 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127730&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-1 14:33</a>
+这个是按加起来=100%来算的，你4团包括二赖子全D了，算算平均下来只剩多少了？ ...</blockquote>
+我是在选人阶段把所有的选了，就是想看看自己对声优都了解多少，所以看到除了自己推的杏树还有别人能上4%是预料之外
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -14443,3 +14443,91 @@ nextstrain的内容也说明我说的是对的呀</blockquote>
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
 你前头说有关系，后头说没关系，这还不是盯着截图说假话<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2701#       发表于 2022-1-1 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127783&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:37</a>
+我没有转移话题呀，截图是你的，话也是你的，你说的有关系，我也没否定你说的有关系，这有转移话题么 ...</blockquote>
+你说的omicron是alpha的后代，在这里顾左右而言他了一页，连点开nextstrain证明你的观点的勇气都没有么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2702#       发表于 2022-1-1 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127883&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:45</a>
+
+你说的omicron是alpha的后代，在这里顾左右而言他了一页，连点开nextstrain证明你的观点的勇气都没有么？ ...</blockquote>
+“omicron是alpha的后代”这句话是你说的
+
+*****
+
+####  smy20011  
+##### 2703#       发表于 2022-1-1 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127905&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:47</a>
+“omicron是alpha的后代”这句话是你说的</blockquote>
+2679楼 你记忆力还不到一个小时么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2704#       发表于 2022-1-1 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127918&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:48</a>
+
+2679楼 你记忆力还不到一个小时么？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-p ...</blockquote>
+我的记忆来源于你呀，兄弟你忘了2499楼的话了么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2705#       发表于 2022-1-1 14:52
+
+还有就是，我说的进化顺序是原版 a d o，你引用我说的做论据也就算了，证明你认同这个进化顺序，可以继续谈。你直接把d给我删了，把a和o放一起了，这不是断章取义是什么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2706#       发表于 2022-1-1 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127968&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:52</a>
+
+还有就是，我说的进化顺序是原版 a d o，你引用我说的做论据也就算了，证明你认同这个进化顺序，可以继续谈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">真是霸道，不让用对的，非让用错的，我和Omicron向你发出强烈抗议
+
+*****
+
+####  smy20011  
+##### 2707#       发表于 2022-1-1 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128007&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 14:54</a>
+真是霸道，不让用对的，非让用错的，我和Omicron向你发出强烈抗议</blockquote>
+引用别人原话居然可以删减的？？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  母星  
+##### 2708#       发表于 2022-1-1 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128020&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 14:55</a>
+
+引用别人原话居然可以删减的？？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+你引用我的话不也删减了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
