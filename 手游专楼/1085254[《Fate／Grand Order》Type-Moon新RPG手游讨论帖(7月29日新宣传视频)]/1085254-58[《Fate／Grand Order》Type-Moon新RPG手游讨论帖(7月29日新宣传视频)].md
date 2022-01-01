@@ -8278,3 +8278,46 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等等....这辣鸡游戏已经石锤实装保底了么.....可为啥我CBA还是沉的这么惨
 
+
+
+*****
+
+####  areklose  
+##### 86315#       发表于 2022-1-1 17:29
+
+<blockquote>森兰丸 发表于 2022-1-1 17:24
+等等....这辣鸡游戏已经石锤实装保底了么.....可为啥我CBA还是沉的这么惨 ...</blockquote>
+是元旦实装。
+
+*****
+
+####  霧谷藤乃  
+##### 86316#       发表于 2022-1-1 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129425&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-1 17:24</a>
+
+等等....这辣鸡游戏已经石锤实装保底了么.....可为啥我CBA还是沉的这么惨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">今天刚实装的330抽一次性天井，你CBA没赶上好时代
+
+*****
+
+####  森兰丸  
+##### 86317#       发表于 2022-1-1 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129476&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2022-1-1 17:29</a>
+
+今天刚实装的330抽一次性天井，你CBA没赶上好时代</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">草
+
+*****
+
+####  angelooo  
+##### 86318#       发表于 2022-1-1 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129316&amp;ptid=1085254" target="_blank">風卷豹 发表于 2022-1-1 17:15</a>
+
+看了看这暗狐狸的对话还多到令人发指…这狐狸出的速度让我怀疑是不是有妲己混进制作组了
+
+—— 来自 ...</blockquote>
+你以为这游戏只有呆毛脸？时代变了，以后就是狐狸脸的天下了，快进到某个新从者拥有对狐狸脸特攻233
+
