@@ -8219,3 +8219,22 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 哈？我记得打杀狐时看到你的助战栏里有太公望啊....难道是我看错了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟我一样看错了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86310#       发表于 2022-1-1 15:28
+
+ 本帖最后由 gpx234mqx 于 2022-1-1 15:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128167&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2022-1-1 15:07</a>
+
+你累积了多少抽保底了在哪里看？</blockquote>
+17护符220存石加4单
+
+这次卡池出率很奇怪
+
+推特上要么开始就抽到，要么接近天井才抽到
+
+中间的也有不过少
+
