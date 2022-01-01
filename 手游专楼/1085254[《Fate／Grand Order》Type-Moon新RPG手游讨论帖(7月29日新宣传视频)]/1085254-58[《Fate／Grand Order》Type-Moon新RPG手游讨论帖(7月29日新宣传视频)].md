@@ -7974,3 +7974,12 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 暗狐狸一技能幅度变成50就没人说菜了。话说这修炼场如果缺材料，体感减半挺值得刷。不减半另说 ...</blockquote>
 1技能变50那就是当拐用，她自己伤害还是难顶，只能说这个class太傻逼了。
 
+
+
+*****
+
+####  qixinno2  
+##### 86286#       发表于 2022-1-1 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前都说杀阶菜 现在说外星人是最菜职介没人反对吧
+

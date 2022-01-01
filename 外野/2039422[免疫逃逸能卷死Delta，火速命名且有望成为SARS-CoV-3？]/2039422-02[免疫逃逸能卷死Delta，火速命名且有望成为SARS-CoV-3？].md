@@ -13642,3 +13642,46 @@ https://weibo.com/1960116444/L8FO0aRws
 
 民主党虔信者又来了
 
+
+
+*****
+
+####  smy20011  
+##### 2634#       发表于 2022-1-1 11:01
+
+<img src="https://img.saraba1st.com/forum/202201/01/110037vmoioci434t9aqxi.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2021-12-31 19.00.11.png</strong> (127.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 11:00 上传
+
+[https://assets.publishing.servic ... severity_update.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/1044481/Technical-Briefing-31-Dec-2021-Omicron_severity_update.pdf)
+
+大英的数据，Omicron住院率大概是delta的30%（经过疫苗等风险因素调整）
+
+*****
+
+####  lvcha  
+##### 2635#       发表于 2022-1-1 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124980&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 09:50</a>
+
+【#纽约让“非白人”优先获得有限的新冠口服药# 】纽约州卫生部本周在一份文件中宣布，两种新冠肺炎口服药 ...</blockquote>
+美人兮好顶赞
+
+*****
+
+####  最好不说  
+##### 2636#       发表于 2022-1-1 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54125521&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 10:57</a>
+
+https://weibo.com/1960116444/L8FO0aRws
+
+“Omicron虽然致死率低，但感染基数这么大，死的人还是会更多”是 ...</blockquote>
+真实世界数据表示fnmdp
+
+南非12月初七日平均死亡在20人左右，现在到了60人，这叫没增长？带英现在七日平均是挺低的，但前天死的332例创alpha爆发以来新高又怎么说？美国也是，27号死的四千多例全都不算人了是吧？这群傻逼要说omicron整体致死率比delta低还能找到不少现阶段数据佐证，但硬要说各国死亡人数不升反降真是纯纯放屁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
