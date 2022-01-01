@@ -3876,3 +3876,22 @@ syl 她应该好几年前的ow云玩家了
 
 贴吧频道nga都有说这事的，鸟综一嘴没提，怪不得同接这么低，静都不看，真不能成事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  袜子  
+##### 4906#       发表于 2022-1-1 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54132574&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2022-1-1 22:36</a>
+
+贴吧频道nga都有说这事的，鸟综一嘴没提，怪不得同接这么低，静都不看，真不能成事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当事人开直播了，被女友甩了的小男生的味
+
+*****
+
+####  rgauss  
+##### 4907#       发表于 2022-1-1 23:15
+
+录男确实陪伴了千鸟很久，但这里又没谁明白为什么变成这态度，这里也没1.0老粉
+

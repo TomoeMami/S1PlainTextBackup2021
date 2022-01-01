@@ -3638,3 +3638,117 @@ E9F44F09-7051-4E6B-BD10-9E11DDF11C38.jpeg
 
 <img src="https://img.saraba1st.com/forum/202201/01/225552jtug4yybv90838zg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cxj649  
+##### 3382#       发表于 2022-1-1 23:00
+
+毕竟菜宝也算动画制作期间全程陪星团，我怀疑之前的阶段相比虹，菜宝更熟悉星团的人 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3383#       发表于 2022-1-1 23:01
+
+sayu和nagi得了广播新人赏，这奖什么级别<img src="https://p.sda1.dev/4/faa49415a6aaae754254eb9a5c87aa3b/IMG_CMP_265503165.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3384#       发表于 2022-1-1 23:11
+
+<img src="https://p.sda1.dev/4/196df31b93d61dd868504bfd2110c100/IMG_CMP_215787901.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 3385#       发表于 2022-1-1 23:13
+
+菜宝在星就差张跟sayu的合影就可以完成集邮了
+
+*****
+
+####  emmer  
+##### 3386#       发表于 2022-1-1 23:15
+
+<blockquote>Liyuu_
+
+刚刚
+
+来自 Liyuu 超话
+
+Liyuu 超话 谢谢 nagi❤️爱了 ​​​</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/01/231421znz81818iwl6y11y.jpg" referrerpolicy="no-referrer">
+
+<strong>b02f6544gy1gxykrzmbs8j21o0280qv5.jpg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/231421gqq5jsn5tm9mjjsq.jpg" referrerpolicy="no-referrer">
+
+<strong>b02f6544gy1gxyks0va5uj20ki0sgn19.jpg</strong> (132.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/231421kuzgmddycuh8yy8k.jpg" referrerpolicy="no-referrer">
+
+<strong>b02f6544gy1gxyksa6xvcj21o0280kjl.jpg</strong> (968.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:14 上传
+
+2022-1-1 23-14-36.png
+(110.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-1 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202201/01/231451jm5ibihss9uxwjbe.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3387#       发表于 2022-1-1 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 3388#       发表于 2022-1-1 23:20
+
+哎哟，今晚年上组热闹啊，没想到开年第一天就来一场一大戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3389#       发表于 2022-1-1 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133096&amp;ptid=2036367" target="_blank">emmer 发表于 2022-1-1 23:15</a></blockquote>
+食物变了，不止一顿饭，待了一整天
+
+*****
+
+####  emmer  
+##### 3390#       发表于 2022-1-1 23:21
+
+第三张过于美丽了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cybernetics31  
+##### 3391#       发表于 2022-1-1 23:23
+
+好羡慕青山哥哥啊，两美女一起过年，越想越酸
+
