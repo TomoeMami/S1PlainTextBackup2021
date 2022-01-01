@@ -8074,3 +8074,49 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 一看发了30石....再看看我的3宝泳装阿比....想想这暗狐还是不抽了</blockquote>
 为啥你不想你的王姐
 
+
+
+*****
+
+####  alucardcz  
+##### 86296#       发表于 2022-1-1 13:49
+
+这极级修炼场除了羁绊比前面一级多了点..掉落有变化吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86297#       发表于 2022-1-1 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126751&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-1 13:12</a>
+
+一看发了30石....再看看我的3宝泳装阿比....想想这暗狐还是不抽了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">30石5宝啊  萌新已经血沉了
+
+*****
+
+####  areklose  
+##### 86298#       发表于 2022-1-1 13:54
+
+ 本帖最后由 areklose 于 2022-1-1 13:57 编辑 
+<blockquote>alucardcz 发表于 2022-1-1 13:49
+这极级修炼场除了羁绊比前面一级多了点..掉落有变化吗</blockquote>
+追加了新材料锁链，掉黑兽脂的那个怪可能会出现2只？哦不对，看错了，那个好像是影艳后，看错
+
+*****
+
+####  alucardcz  
+##### 86299#       发表于 2022-1-1 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127236&amp;ptid=1085254" target="_blank">areklose 发表于 2022-1-1 13:54</a>
+
+追加了新材料锁链，掉黑兽脂的那个怪可能会出现2只</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">根本不掉 约等于无提升  你看钱本经验本这提升那么大 合理吗
+
+*****
+
+####  alucardcz  
+##### 86300#       发表于 2022-1-1 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">萌新看了看获取时间 发现新年从者就没一个出过货 都是后面各种奇怪的原因出的
+

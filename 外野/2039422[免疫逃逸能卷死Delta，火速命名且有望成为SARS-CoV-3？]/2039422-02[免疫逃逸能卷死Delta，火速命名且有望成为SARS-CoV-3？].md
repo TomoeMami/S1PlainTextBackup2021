@@ -14018,3 +14018,159 @@ longcovid也和轻重有关吧，现在连住院和死亡数据都是早期，lo
 
 2022-1-1 13:39 上传
 
+
+
+*****
+
+####  母星  
+##### 2664#       发表于 2022-1-1 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127001&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:36</a>
+
+如果你连高中生物基本常识都不承认 只承认自己的进化定义的话 那我只能承认毒力是越"进化"越强了
+
+毕竟这 ...</blockquote>
+不承认的是你吧，“把自己的辩论错误归结到对手头上去”这种技巧还是别再使用了，没有什么意义。你后面那句才是正确的思路，你想否定那个结论，只需要找到一个不是出自自己假设，而是出自现实的一条呈现毒力下降或者先增后降的新冠病毒演化链就行了。
+
+*****
+
+####  母星  
+##### 2665#       发表于 2022-1-1 13:44
+
+ 本帖最后由 母星 于 2022-1-1 13:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127033&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:40</a>
+
+另外 omicron其实和alpha关系不是很大</blockquote>按照你的标准“关系不大”来推论，同理可得，delta跟Omicron就属于毫无关系了，你为啥要拿delta跟Omicron比较呢？
+
+*****
+
+####  smy20011  
+##### 2666#       发表于 2022-1-1 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127092&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 13:44</a>
+
+按照你的标准“关系不大”来推论，同理可得，delta跟Omicron就属于毫无关系了，你为啥要拿delta跟Omicron比 ...</blockquote>
+因为delta是covid这个种群的上一个流行病毒 可能会被omicron灭绝啊
+
+*****
+
+####  母星  
+##### 2667#       发表于 2022-1-1 13:49
+
+如果说直系亲代没关系，倒是远方表亲有关系，那可得问问omicron答不答应了，毕竟你已经为它们假设了一个不存在的父亲，现在又想替他们安排亲疏远近了，实在不可取。
+
+*****
+
+####  母星  
+##### 2668#       发表于 2022-1-1 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127139&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:47</a>
+
+因为delta是covid这个种群的上一个流行病毒 可能会被omicron灭绝啊</blockquote>
+那不就更加证明我的观点正确么，沿着新冠病毒的各个演化链条都没有出现毒力下降的现象，你在反驳些什么呢？
+
+*****
+
+####  smy20011  
+##### 2669#       发表于 2022-1-1 13:53
+
+因为讨论毒力进化的趋势 是要为下一个流行新冠变种做准备 下一个代表的是时间而不是突变从哪里来的 你就算费尽心思证明一个基于omicron的变种会更加致命 但是下一个变种不一定是来自omicron啊
+
+*****
+
+####  smy20011  
+##### 2670#       发表于 2022-1-1 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127226&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 13:53</a>
+
+那不就更加证明我的观点正确么，沿着新冠病毒的各个演化链条都没有出现毒力下降的现象，你在反驳些什么呢 ...</blockquote>
+你的观点是?
+
+
+
+*****
+
+####  母星  
+##### 2671#       发表于 2022-1-1 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127232&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:53</a>
+
+因为讨论毒力进化的趋势 是要为下一个流行新冠变种做准备 下一个代表的是时间而不是突变从哪里来的 你就算 ...</blockquote>
+这说明我说的是对的呀。你到底是想反驳我，还是奋力从侧面证明我说的是对的？如果是后者，就把你之前说的那堆话删了吧，毕竟不是自己的观点。
+
+*****
+
+####  smy20011  
+##### 2672#       发表于 2022-1-1 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127261&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 13:56</a>
+
+这说明我说的是对的呀。你到底是想反驳我，还是奋力从侧面证明我说的是对的？如果是后者，就把你之前说的 ...</blockquote>
+大哥你说什么了 请你清晰明确的表达自己的观点
+
+*****
+
+####  母星  
+##### 2673#       发表于 2022-1-1 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127238&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:54</a>
+
+你的观点是?</blockquote>
+沿着新冠病毒的各个演化链条都没有出现毒力下降的现象，所以各个演化链条毒力肯定是上涨的呗
+
+*****
+
+####  血祠  
+##### 2674#       发表于 2022-1-1 13:58
+
+就喜欢看人抬杠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  母星  
+##### 2675#       发表于 2022-1-1 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127269&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:57</a>
+
+大哥你说什么了 请你清晰明确的表达自己的观点</blockquote>
+我的观点就是你第一次回复我的那个观点呀，我一直没变，不知道你变来边去到底在说什么
+
+*****
+
+####  66666  
+##### 2676#       发表于 2022-1-1 13:59
+
+我觉得现在应该要严密关注后遗症吧，现在已经实锤新冠在抗体阴性的情况下可以在人体任何部分繁殖，且最终有可能出现脑出血这种我们觉得更新冠没什么关系的死亡症状，这才是对人类威胁最大
+
+*****
+
+####  母星  
+##### 2677#       发表于 2022-1-1 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127269&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:57</a>
+
+大哥你说什么了 请你清晰明确的表达自己的观点</blockquote>
+你究竟是想反驳我，还是想侧面说明我是对的......你还是先确定一下你的想法再回复怎么样？
+
+*****
+
+####  smy20011  
+##### 2678#       发表于 2022-1-1 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127271&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-1 13:57</a>
+
+沿着新冠病毒的各个演化链条都没有出现毒力下降的现象，所以各个演化链条毒力肯定是上涨的呗 ...</blockquote>
+那好 请问alpha的后续变种是什么 它的毒力有增强么?
+
+*****
+
+####  母星  
+##### 2679#       发表于 2022-1-1 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54127312&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 13:59</a>
+
+那好 请问alpha的后续变种是什么 它的毒力有增强么?</blockquote>
+就是Omicron啊
+

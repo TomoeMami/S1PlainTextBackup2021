@@ -713,3 +713,12 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
 隐身机制（当面隐身敌人强行看不见）和升级完之后的持续时间太强了，要是砍两刀再调一下敌人ai，调成一代 ...</blockquote>
 现在还觉得2代Hargreaves大宅里那几套空的纳米战甲如果能动起来和玩家打一场闹鬼盔甲boss战，无论是游戏性还是剧情主题来说都会很合适。2代写作和发售前宣发上都往攻壳式的意识与外壳，“post human warrior”上触及了一点，但最后还是重心去讲打外星人了
 
+
+
+*****
+
+####  tuiskusuomaa  
+##### 69#       发表于 2022-1-1 13:50
+
+战地3，无限战争，黑色行动2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
