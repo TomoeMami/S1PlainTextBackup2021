@@ -8565,3 +8565,14 @@ FIAVjrYVgAIhVv2.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">突然发现狂娜宝具全屏了。。
 
+
+
+*****
+
+####  eyeego  
+##### 86340#       发表于 2022-1-2 03:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134238&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-2 01:41</a>
+突然发现狂娜宝具全屏了。。</blockquote>
+到今年周年能做到全员全屏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

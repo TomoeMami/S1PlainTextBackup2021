@@ -5324,3 +5324,17 @@ B站动态看见一个观影团连观影特典都整出来了
 
 脑海里只有“大场奈奈.mp4”
 
+
+
+*****
+
+####  Promeus  
+##### 414#       发表于 2022-1-2 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54130053&amp;ptid=2043629" target="_blank">海晟天锻 发表于 2022-1-1 18:23</a>
+鹅属于是答对问题被蕉放过去了，蕉自己都说了这又不是选拔，没必要把鹅再砍了
+不过其他世界线的蕉确实是没 ...</blockquote>
+舞台剧那只疯狗鹅跟天堂麻鸭是不同的，是不同的！<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

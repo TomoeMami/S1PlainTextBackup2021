@@ -14909,3 +14909,152 @@ and whether the current infection was an identified re-infection (that is the in
 previous PCR positive test)</blockquote>
 看见了吗，人家控制的是<strong>“identified re-infection”</strong>，没有把既往可能感染（但没有pcr证据实锤）这一因素算上。所以在某种意义上这个新报告（-66% CHR）和表格中的“苏格兰报告”给出的-68% CHR（它们也是控制了既往感染史，但是忽略了未检出的既往感染史）是差不多吻合的，并不是什么新鲜东西。
 
+
+
+*****
+
+####  eveshell  
+##### 2741#       发表于 2022-1-2 01:46
+
+<blockquote>smy20011 发表于 2022-1-2 01:32
+拍老师的文章其实是反驳新冠会越进化越弱这个观点的，但是不知道为什么有些人认为流感化的反面是重症化，而 ...</blockquote>
+不，只要是不防传染就有养鸡场例子一样的毒性强的传播快，最后还是增强
+
+*****
+
+####  smy20011  
+##### 2742#       发表于 2022-1-2 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134229&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-2 01:39</a>
+谢谢你给出的参考链接。
+
+但是很遗憾，这和表格中的“英格兰研究”不是一个团队做的，所以这个“减少70%” ...</blockquote>
+多谢指正，这是我看错了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2743#       发表于 2022-1-2 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134256&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:46</a>
+不，只要是不防传染就有养鸡场例子一样的毒性强的传播快，最后还是增强 ...</blockquote>
+但是不是所有的病毒都跟养鸡场一样吧。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  eveshell  
+##### 2744#       发表于 2022-1-2 01:49
+
+ 本帖最后由 eveshell 于 2022-1-2 01:50 编辑 
+<blockquote>smy20011 发表于 2022-1-2 01:29
+有记忆b细胞等其他的免疫系统
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+效果不佳啊，目前得好几次的并不缺
+
+*****
+
+####  eveshell  
+##### 2745#       发表于 2022-1-2 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134262&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-2 01:48</a>
+
+但是不是所有的病毒都跟养鸡场一样吧。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5. ...</blockquote>
+他就是在说疫苗帮助筛选强病毒传播的理论啊 
+
+*****
+
+####  smy20011  
+##### 2746#       发表于 2022-1-2 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134265&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:49</a>
+效果不佳啊，目前得好几次的并不缺</blockquote>
+如果没记错的话，记忆b细胞只有病毒进入体内之后才会增殖，也就是说可能会重复感染，但是症状会更轻。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2747#       发表于 2022-1-2 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134272&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:51</a>
+他就是在说疫苗帮助筛选强病毒传播的理论啊</blockquote>
+我可以肯定的说，下一个病毒一定能逃逸omicron的抗体，但是我不能断言下一个病毒的毒力。
+
+你是认为下一个病毒的毒力（住院率，icu率）一定会比omicron强么？如果不是的话，其实我们观点不冲突啊。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  eveshell  
+##### 2748#       发表于 2022-1-2 01:57
+
+<blockquote>smy20011 发表于 2022-1-2 01:53
+我可以肯定的说，下一个病毒一定能逃逸omicron的抗体，但是我不能断言下一个病毒的毒力。
+
+你是认为下一 ...</blockquote>
+我是认为这种筛选长期趋势应该是增强的 下一个不一定吧 
+
+*****
+
+####  eveshell  
+##### 2749#       发表于 2022-1-2 02:00
+
+<blockquote>smy20011 发表于 2022-1-2 01:51
+如果没记错的话，记忆b细胞只有病毒进入体内之后才会增殖，也就是说可能会重复感染，但是症状会更轻。
+
+ ...</blockquote>
+有报道二次感染很严重
+
+*****
+
+####  smy20011  
+##### 2750#       发表于 2022-1-2 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134291&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 01:57</a>
+我是认为这种筛选长期趋势应该是增强的 下一个不一定吧</blockquote>
+长期来看人要不主动免疫，要不被动免疫，要不就得病挂了。感觉很难比较具体的毒力了，因为人的免疫也越来越多了。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2751#       发表于 2022-1-2 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134298&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 02:00</a>
+有报道二次感染很严重</blockquote>
+但是南非绝大部分不是二次感染么？个例不能代替统计数据吧
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  eveshell  
+##### 2752#       发表于 2022-1-2 02:07
+
+<blockquote>smy20011 发表于 2022-1-2 02:03
+但是南非绝大部分不是二次感染么？个例不能代替统计数据吧
+
+— from Google Pixel 3 XL, Android 12 of S ...</blockquote>
+南非还是德尔塔刚下去就有o，抗体没清。 而且年轻
+
+*****
+
+####  eveshell  
+##### 2753#       发表于 2022-1-2 02:56
+
+<blockquote>smy20011 发表于 2022-1-2 02:03
+但是南非绝大部分不是二次感染么？个例不能代替统计数据吧
+
+— from Google Pixel 3 XL, Android 12 of S ...</blockquote>
+查了下 根据辉瑞的数据，CD8+T细胞所识别的80%的特征位点并没有收到Omicron毒株的突变影响，也就是说T细胞免疫依然应该是对Omicron毒株有效，这样即便接种了2针的疫苗的人群应该仍然具备对于重症和死亡的保护效力 得病也一样了
+
