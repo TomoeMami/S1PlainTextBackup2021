@@ -8487,3 +8487,31 @@ FIAVjrYVgAIhVv2.jpg
 
 今年3/7的概率重复<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86332#       发表于 2022-1-1 19:51
+
+公主进这阵容的话，fp结局大概要拖到明年了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 86333#       发表于 2022-1-1 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54130549&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-1-1 19:11</a>
+330石头是个陷阱
+
+感觉出卡率低了，推上不少330天井的</blockquote>
+个人体感并没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙娘777  
+##### 86334#       发表于 2022-1-1 19:59
+
+既然公主暴论了 那我在暴论的基础上暴论个 明年月姬动画重制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
