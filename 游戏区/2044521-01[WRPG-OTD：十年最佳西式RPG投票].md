@@ -756,3 +756,16 @@ fo4在WRPG这四个字母里，也就跟“W”沾边……</blockquote>
 
 博德之门3这么拉的吗？
 
+
+
+*****
+
+####  repal  
+##### 73#       发表于 2022-1-1 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129767&amp;ptid=2044521" target="_blank">茛菪 发表于 2022-1-1 17:59</a>
+ 要较真的话，FO4的RPG纯度比滚5高多了，系统再阉割至少保留了SPECIAL属性值，任务里有属性检定和perk检定 ...</blockquote>
+fo4在这个投票里拉胯的原因确实跟rpg纯度关系不大，跟他顶着辐射的名字关系比较大……
+不过fo4的纯度比滚5高，也跟他顶着辐射的名字关系比较大
+再往下就很难说清楚了，滚5把系统阉割了个干净还大获成功，fo4也阉割系统却口碑爆炸，大概是不同系列底子不同 大家看中的点也不同吧
+
