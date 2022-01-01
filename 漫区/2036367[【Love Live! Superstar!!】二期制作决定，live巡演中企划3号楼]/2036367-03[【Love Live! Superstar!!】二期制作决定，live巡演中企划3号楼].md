@@ -2932,3 +2932,22 @@ D25242BD-50E5-4DFE-998E-9C3C0686FF58.jpeg
 
 第三张合照
 
+
+
+*****
+
+####  kata魂  
+##### 3324#       发表于 2022-1-1 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">真好，昨晚在外面根本看不到，错过了好多
+
+*****
+
+####  仟音一心  
+##### 3325#       发表于 2022-1-1 12:39
+
+ 本帖最后由 仟音一心 于 2022-1-1 12:41 编辑 
+
+群里玩的游戏：LoveLiveDD鉴定器，看你能不能识别你推的偶像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[http://uahh.syouzyo.org/](http://uahh.syouzyo.org/)
+

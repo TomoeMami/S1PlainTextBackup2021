@@ -8031,3 +8031,26 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 就是当个半拐用，其实一键拉满全体充能和魔放挺省心的，只可惜不是50。有时候打个普通活动没必要叠叠乐， ...</blockquote>
 用法没问题，问题就出在伤害上啊，当然拉个5宝那确实不错
 
+
+
+*****
+
+####  bikalu  
+##### 86292#       发表于 2022-1-1 12:25
+
+暗狐应该就是30群充+红buff 服务那些50自充、50礼装+20自充or附加20np升好的红卡打手。自己也搞个50礼装清一面。
+
+还有就是和奥伯龙组队直接充满一个人。
+
+感觉就是来卖宝具等级的，2021后半尽出些攻击宝具的辅助估计就是这个意思。
+
+*****
+
+####  alucardcz  
+##### 86293#       发表于 2022-1-1 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126182&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2022-1-1 12:10</a>
+
+用法没问题，问题就出在伤害上啊，当然拉个5宝那确实不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你楼上上不是说了5宝也不行吗
+
