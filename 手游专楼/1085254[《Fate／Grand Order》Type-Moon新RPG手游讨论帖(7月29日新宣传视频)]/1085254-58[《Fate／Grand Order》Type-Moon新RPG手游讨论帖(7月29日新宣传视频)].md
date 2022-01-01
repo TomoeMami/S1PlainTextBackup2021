@@ -8238,3 +8238,43 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 中间的也有不过少
 
+
+
+*****
+
+####  sosgame67  
+##### 86311#       发表于 2022-1-1 16:50
+
+日服连续3次福袋没有new，这也太毒了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 86312#       发表于 2022-1-1 17:15
+
+看了看这暗狐狸的对话还多到令人发指…这狐狸出的速度让我怀疑是不是有妲己混进制作组了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  newfaceryo  
+##### 86313#       发表于 2022-1-1 17:16
+
+ 本帖最后由 newfaceryo 于 2022-1-1 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54128345&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-1-1 15:28</a>
+
+17护符220存石加4单
+
+这次卡池出率很奇怪</blockquote>
+我的意思是想问，330抽保底的话你在哪里看已经抽了多少发了。
+
+顺便说一下的话，我3单出的第一只。
+
+*****
+
+####  森兰丸  
+##### 86314#       发表于 2022-1-1 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等等....这辣鸡游戏已经石锤实装保底了么.....可为啥我CBA还是沉的这么惨
+
