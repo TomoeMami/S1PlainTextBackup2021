@@ -13594,3 +13594,14 @@ The treatment consisted of two monoclonal antibodies—meaning each was produced
 你说的基因库对于你说的演化链而言是两个东西，新冠病毒基因库有Delta，并不意味着从原始株到omicron演化 ...</blockquote>
 你们为什么愿意对一头 -80鹅的猪弹琴？还TM高中生物书，不是你们也是闲的慌啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 2630#       发表于 2022-1-1 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124980&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-1 09:50</a>
+【#纽约让“非白人”优先获得有限的新冠口服药# 】纽约州卫生部本周在一份文件中宣布，两种新冠肺炎口服药 ...</blockquote>
+这个真不是试药么？我在美国可不敢去吃
+

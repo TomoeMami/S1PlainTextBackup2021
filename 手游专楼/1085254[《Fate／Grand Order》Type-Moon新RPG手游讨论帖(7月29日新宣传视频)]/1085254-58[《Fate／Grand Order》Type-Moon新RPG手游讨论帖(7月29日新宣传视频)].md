@@ -7919,3 +7919,30 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 这次福袋是真的毒池，抽那个都有雷，把早年的5星和新出的5星混在一起就不行，必然是毒池，这么看的话上次分年份的应该是最好的，我还想着2021的福袋中哪个都不亏，结果压根就不是
 
+
+
+*****
+
+####  exiaexa  
+##### 86281#       发表于 2022-1-1 09:10
+
+这次福袋，我看不起绿卡的毛病拯救了世界
+根本不怕雷，要么1升2要么开图鉴，横竖我不亏
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 86282#       发表于 2022-1-1 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124439&amp;ptid=1085254" target="_blank">areklose 发表于 2022-1-1 08:32</a>
+暗狐狸一技能幅度变成50就没人说菜了。话说这修炼场如果缺材料，体感减半挺值得刷。不减半另说 ...</blockquote>
+增伤还是少了点 红卡周回最重要的就是叠叠乐 这宝具前置加攻只给1T就是下毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86283#       发表于 2022-1-1 10:38
+
+我倒是福袋里面有两个完全没有雷还都能new，但也都没有特别想要的，抽了就等于仓管，还在犹豫
+
