@@ -14590,3 +14590,14 @@ nextstrain的内容也说明我说的是对的呀</blockquote>
 
 <img src="https://p.sda1.dev/4/b89dc0f19874c7681d2c11f02ab45187/IMG_CMP_221167689.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eveshell  
+##### 2714#       发表于 2022-1-1 20:38
+
+https://www.zhihu.com/pin/1460486350093283328
+
+鸟类传播他来了
+
