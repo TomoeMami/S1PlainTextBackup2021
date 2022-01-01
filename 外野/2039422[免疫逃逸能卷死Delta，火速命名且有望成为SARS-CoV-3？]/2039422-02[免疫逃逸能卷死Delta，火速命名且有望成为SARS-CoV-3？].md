@@ -13573,3 +13573,12 @@ The treatment consisted of two monoclonal antibodies—meaning each was produced
 The treatment consisted of two monoclonal antibodies—meaning each was produced by making identica ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面我就澄清了，单抗不是靠血清提取，是之前一直用的康复者血清疗法。
 
+
+
+*****
+
+####  eveshell  
+##### 2628#       发表于 2022-1-1 09:50
+
+【#纽约让“非白人”优先获得有限的新冠口服药# 】纽约州卫生部本周在一份文件中宣布，两种新冠肺炎口服药，Paxlovid和molnupiravir，已获得紧急使用授权，它们将“分别降低88%的住院和30%的死亡风险”。 该部门表示，最初的供应量“将非常有限”，因此必须根据“优先次序指南”进行分配。该指南目前优先考虑那些免疫功能中度或严重低下或至少有一个严重疾病风险因素的人。虽然这些风险因素包括患有癌症、痴呆症或糖尿病等疾病，但该部门表示，非白人“应该被视为一个风险因素，因为长期以来系统性的健康和社会不平等问题导致了其患严重疾病和死于新冠的风险增加”。  网友们对该指导意见表示愤慨，将其描述为“公然的种族主义”和“道德上令人震惊的事”。
+
