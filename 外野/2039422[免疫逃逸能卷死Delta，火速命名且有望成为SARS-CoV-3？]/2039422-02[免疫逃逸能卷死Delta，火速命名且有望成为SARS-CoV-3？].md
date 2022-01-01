@@ -14681,3 +14681,37 @@ https://www.zhihu.com/pin/1460486350093283328
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  neptunehs  
+##### 2721#       发表于 2022-1-2 00:23
+
+https://mp.weixin.qq.com/s?__biz=MzkxODI3NzY1Mg==&amp;mid=2247487204&amp;idx=1&amp;sn=0f5ecef23fd8ac8a97a420e4744c52ef&amp;chksm=c1b2959ff6c51c89086dbd0d58e93557c90b2481582e2d18a57aa4b4faa429fd985c7ded73fc&amp;cur_album_id=2065398130967183363&amp;scene=189#wechat_redirect
+
+拍老师更新了
+强烈建议楼上看看 然后去反驳他也不错？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  eveshell  
+##### 2722#       发表于 2022-1-2 00:25
+
+<blockquote>smy20011 发表于 2022-1-2 00:08
+对于毒力的问题上，研究的对象始终是时间上的上一个变种与当前变种的毒力变化，目的是为下一个变种做准备。 ...</blockquote>
+今天的拍照稀烂又总结了一篇，里面提及o比d弱点，但只要得病抗体和疫苗阻止传染没有百分百，就会有病毒进化毒力的总趋势，即leaky 疫苗。而且o和d进入人体细胞的机制也不同了，也血清分化，无法成为其它型的抗体。https://mp.weixin.qq.com/s/sdbH5nsAsLepsDnHxMAtfQ
+
+*****
+
+####  smy20011  
+##### 2723#       发表于 2022-1-2 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54133858&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 00:25</a>
+今天的拍照稀烂又总结了一篇，里面提及o比d弱点，但只要得病抗体和疫苗阻止传染没有百分百，就会有病毒进 ...</blockquote>
+这位需要更新一下数据了，之前我也转了，经过考虑到疫苗接种情况以及过往暴露史，omicron的住院率比delta下降了70%。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
