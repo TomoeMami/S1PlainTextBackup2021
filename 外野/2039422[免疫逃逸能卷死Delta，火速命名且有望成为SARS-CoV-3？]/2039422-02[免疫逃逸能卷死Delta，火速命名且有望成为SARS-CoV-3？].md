@@ -13537,3 +13537,28 @@ The treatment consisted of two monoclonal antibodies—meaning each was produced
 
 这篇文章里面哪个字提到了单抗是靠抽康复者血清提纯的？
 
+
+
+*****
+
+####  Alexmacau8  
+##### 2625#       发表于 2022-1-1 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54124046&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-1 03:49</a>
+你有点误解了，这是单抗，是免疫细胞和骨髓瘤细胞结合批量生产的抗体。免疫细胞是从人/小鼠中提取的，但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">血清疗法比单抗还要早拿到FDA紧急授权，8月24日就批准了，ykw感染都是10月份了，太久了查了一下才搞清楚时间线。
+
+*****
+
+####  Alexmacau8  
+##### 2626#       发表于 2022-1-1 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54123643&amp;ptid=2039422" target="_blank">yaomingkangde 发表于 2022-1-1 01:39</a>
+
+这点真的是误解，这文章说的就是我前面几楼提到的再生元的中和抗体鸡尾酒
+
+生产方式还是筛选出抗体 ...</blockquote>
+合生元的单抗是2020年9月29才发布，拿到FDA紧急授权已经很晚了，一查新闻还想起来了，当时ykw还因为接受了没有fda紧急授权的单抗被喷得很惨。
+
+在此之前，血浆疗法8月24日就拿到授权，我之前帖子也更新了。
+

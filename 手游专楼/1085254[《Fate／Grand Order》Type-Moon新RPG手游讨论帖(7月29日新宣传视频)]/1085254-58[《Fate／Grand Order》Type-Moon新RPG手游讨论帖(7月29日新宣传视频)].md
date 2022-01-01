@@ -7901,3 +7901,12 @@ tm的，光暗狐狸摆在一起一摸一样，傻逼fgo又偷懒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发的石头没有灵魂 依然什么都没出
 
+
+
+*****
+
+####  areklose  
+##### 86279#       发表于 2022-1-1 08:32
+
+暗狐狸一技能幅度变成50就没人说菜了。话说这修炼场如果缺材料，体感减半挺值得刷。不减半另说
+
