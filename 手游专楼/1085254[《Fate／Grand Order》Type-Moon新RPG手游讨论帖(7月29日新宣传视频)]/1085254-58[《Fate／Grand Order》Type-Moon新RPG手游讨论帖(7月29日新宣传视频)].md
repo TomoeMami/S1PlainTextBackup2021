@@ -8473,3 +8473,17 @@ FIAVjrYVgAIhVv2.jpg
 
 感觉出卡率低了，推上不少330天井的
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86331#       发表于 2022-1-1 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54129090&amp;ptid=1085254" target="_blank">sosgame67 发表于 2022-1-1 16:50</a>
+
+日服连续3次福袋没有new，这也太毒了</blockquote>
+一样3年福袋都重复
+
+今年3/7的概率重复<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
