@@ -10257,3 +10257,78 @@ Zsyl，德龙这压迫力太强了，E桌看到目前为止最乐
 
 彩虹抵抗军？
 
+
+
+*****
+
+####  443421870  
+##### 9870#       发表于 2022-1-3 01:53
+
+葵皇 :彩虹管不到我
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  FCCHua  
+##### 9871#       发表于 2022-1-3 02:24
+
+ 本帖最后由 FCCHua 于 2022-1-3 02:25 编辑 
+
+说起来阿葵的新3d是不是拖了有一年了，现在也没个影子<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 9872#       发表于 2022-1-3 02:28
+
+说是反抗军的小小抗议都比大的要来了有可能吧，不过是官号拉黑……
+
+syl
+
+能来个查sc的网站吗，我怀疑黑客21年的sc总额不会超过500万(一共只开过两次还是三次吧
+
+*****
+
+####  443421870  
+##### 9873#       发表于 2022-1-3 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144249&amp;ptid=1972669" target="_blank">fastary 发表于 2022-01-03 02:28:06</a>
+说是反抗军的小小抗议都比大的要来了有可能吧，不过是官号拉黑……
+
+syl
+
+能来个查sc的网站吗，我怀疑黑客21 ...</blockquote>[https://playboard.co/en/channel/UCbXXdwEVbVbXhosYKn0am6A](https://playboard.co/en/channel/UCbXXdwEVbVbXhosYKn0am6A)
+我是用这个的，不知道准不准
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  443421870  
+##### 9874#       发表于 2022-1-3 02:41
+
+<img src="https://img.saraba1st.com/forum/202201/03/024151rzjckexiwamttxjs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-01-03-02-39-14-497_com.android.chrome.jpg</strong> (204.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 02:41 上传
+
+*****
+
+####  Suny08  
+##### 9875#       发表于 2022-1-3 02:52
+
+夜见最近和葵皇关系挺好的但她突然把明天直播取消了说是要去收录，个人猜想可能今天突然葵皇和你虹出摩擦了，夜见估计去帮忙去了，毕竟收录这种事情不可能临时决定，她之前日程表3号也写的是塞尔达，说明根本没收录的计划，合理推测一下好吧
+
+*****
+
+####  十四洲  
+##### 9876#       发表于 2022-1-3 02:59
+
+不要啊😭
+

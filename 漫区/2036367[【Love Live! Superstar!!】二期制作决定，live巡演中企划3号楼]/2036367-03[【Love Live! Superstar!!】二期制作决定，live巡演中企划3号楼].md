@@ -5370,3 +5370,42 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zylwz  
+##### 3512#       发表于 2022-1-3 01:54
+
+ 本帖最后由 zylwz 于 2022-1-3 03:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144054&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-3 01:41</a></blockquote>编辑
+
+*****
+
+####  iuhehc  
+##### 3513#       发表于 2022-1-3 02:34
+
+ 本帖最后由 iuhehc 于 2022-1-3 03:31 编辑 
+
+不在楼里说这些了编辑
+
+*****
+
+####  zylwz  
+##### 3514#       发表于 2022-1-3 03:12
+
+ 本帖最后由 zylwz 于 2022-1-3 03:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144274&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-3 02:34</a></blockquote>开心享受live就行了
+
+*****
+
+####  iuhehc  
+##### 3515#       发表于 2022-1-3 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144382&amp;ptid=2036367" target="_blank">zylwz 发表于 2022-1-3 03:12</a>
+
+想了想大概是我说的day1那首比CD好没表述清
+
+我指的是live版（不管是预录还是生唱）用的是本音不是c ...</blockquote>
+看live就管开心 live版的day1确实比cd听起来更有效果
+

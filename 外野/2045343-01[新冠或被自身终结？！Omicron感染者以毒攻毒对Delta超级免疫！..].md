@@ -963,3 +963,12 @@ N手屎💩
 
 什么傻逼结论啊，那得过delta的，也能抵抗住alpha或者原始新冠啊。能说明啥？
 
+
+
+*****
+
+####  tobelovedwow  
+##### 96#       发表于 2022-1-3 03:17
+
+阿三不会让我们失望的<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+

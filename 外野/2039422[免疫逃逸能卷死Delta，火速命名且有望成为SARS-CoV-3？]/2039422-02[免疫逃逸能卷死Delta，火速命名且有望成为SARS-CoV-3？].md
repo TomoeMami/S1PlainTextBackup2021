@@ -15536,3 +15536,45 @@ MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 2794#       发表于 2022-1-3 02:02
+
+而且同源灭活加强针，确实对omicron没什么效果，你不打mrna，那就去打腺病毒或者三叶草呗。至少异源加强是有效果的。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ztgmeteor  
+##### 2795#       发表于 2022-1-3 03:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136899&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-2 13:53</a>
+很多人得omicron的主要症状是嗓子疼和流鼻涕，隐蔽性太高，不能只要有症状就去测核酸吧。。
+发一大堆快筛 ...</blockquote>
+现在抗原快筛盒对欧米克隆的准确率不足40%，比抛硬币准确率略低。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxwats1  
+##### 2796#       发表于 2022-1-3 03:49
+
+中肯老福放话了：现在感染数已经不那么重要了，住院数才重要 <blockquote>“As you get further on and the infections become less severe, it is much more relevant to focus on the hospitalizations as opposed to the total number of cases,” Dr. Fauci said.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2797#       发表于 2022-1-3 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144442&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-3 03:49</a>
+中肯老福放话了：现在感染数已经不那么重要了，住院数才重要
+
+ ...</blockquote>
+现在数据基本上代表了美国每天能做多少pcr，很多人有症状也不测了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
