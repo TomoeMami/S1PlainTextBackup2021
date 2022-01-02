@@ -929,3 +929,19 @@ N手屎💩
 
 那还搞个屁疫苗特效药，白皮一人一针活体O病毒美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  belichick  
+##### 92#       发表于 2022-1-3 00:24
+
+问就是温和，万一2022年底发现禽流感和新冠合体了，我们就有好戏看了
+
+*****
+
+####  namelessashen  
+##### 93#       发表于 2022-1-3 00:26
+
+不如再看一个月，一个月就真的见分明了
+
