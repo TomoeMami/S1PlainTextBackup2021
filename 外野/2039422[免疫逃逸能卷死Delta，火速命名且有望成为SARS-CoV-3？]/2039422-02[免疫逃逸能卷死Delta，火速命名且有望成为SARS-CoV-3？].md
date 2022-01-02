@@ -15384,3 +15384,26 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 
 我记得这楼里有过对比，结果是打了疫苗的人感染O的比例比感染D的高
 
+
+
+*****
+
+####  Humpy  
+##### 2780#       发表于 2022-1-2 19:44
+
+ 巴黎圣日耳曼官方宣布，队内四名感染新冠的球员分别是梅西、贝尔纳特、里科、比图马扎拉。四名球员目前正遵循适当的健康流程隔离。
+
+北京时间1月4日凌晨4:10分，巴黎将在法国杯1/16决赛迎战瓦纳，这四名感染新冠的球员将无缘出战。
+
+这个时间点应该是omicron……？
+
+*****
+
+####  charse2r  
+##### 2781#       发表于 2022-1-2 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139715&amp;ptid=2039422" target="_blank">羽川易 发表于 2022-1-2 19:29</a>
+
+这种要对比没接种的感染情况吧，现在西安感染的很多人也都接种疫苗了吧，不能说疫苗没用吧 ...</blockquote>
+表上有啊,没接种的反而不易感染,笑拉
+

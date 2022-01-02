@@ -639,3 +639,22 @@ BD 明年3/29发售
 
 现在害怕结局是夏洛特安洁相互继承遗志做傀儡，就看是哪个挡枪挂了
 
+
+
+*****
+
+####  alingzero  
+##### 64#       发表于 2022-1-2 19:46
+
+这感觉已经可以跟TV版看作是两个作品了，第一章第二章都几乎没有感情戏，现在公主在两个人的时候连安洁本名都不叫了。而且谍战剧情也不怎么样，这第二章篇幅本来就不长，还用了好多时间给动作戏，铺垫的太简略。我果然还是喜欢在TV基础上整一个卡萨布兰卡结局
+
+*****
+
+####  aptx8285144  
+##### 65#       发表于 2022-1-2 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54081916&amp;ptid=2042392" target="_blank">550616 发表于 2021-12-28 23:27</a>
+
+现在害怕结局是夏洛特安洁相互继承遗志做傀儡，就看是哪个挡枪挂了</blockquote>
+我感觉这片的基调还是不太可能死主要人物，只是有这种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
