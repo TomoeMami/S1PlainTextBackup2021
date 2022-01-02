@@ -5154,3 +5154,42 @@ E0FF60B8-A601-4BE6-8C3A-58F21DA5B194.jpeg
 
 前几天在超话里发了家乡的味道，刚刚推上进行了一个补充，明天再给她上新，为了孩子能看着馋，我唯有牺牲自己<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 3491#       发表于 2022-1-2 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54142104&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-2 22:14</a>
+
+能看到具体型号？不是只写着来自iPhone客户端吗</blockquote>
+我搞错了，确实一般人只能看到客户端。
+
+但是，如果po博主回复了你，小尾巴就不一样了。
+
+A55A6152-E1F4-4DDF-A8C6-00091B64AB06.jpeg
+(116.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/222835dqqj8griggd2o6qo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B630CD9A-61C3-4B2D-95D2-B523D2AE4446.jpeg
+(70.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/222835zyytnfncuc6c644f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3492#       发表于 2022-1-2 22:29
+
+鲤鱼不和前田来一张吗？我看其他人都跟匹配到的有返图<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

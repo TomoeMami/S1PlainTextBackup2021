@@ -15468,3 +15468,27 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 
 就算毒性降了，感染更多的人，基数摆在那里，死亡人数不会降低甚至是增加。
 
+
+
+*****
+
+####  apple222  
+##### 2788#       发表于 2022-1-2 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134442&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-2 02:56</a>
+
+查了下 根据辉瑞的数据，CD8+T细胞所识别的80%的特征位点并没有收到Omicron毒株的突变影响，也就是说T细 ...</blockquote>
+先看看以色列四针辉瑞的效果吧。或者等专门针对奥米克戎的各家新产品。
+
+其他的只能说有个基本保护，聊胜于无。
+
+*****
+
+####  中二骚年  
+##### 2789#       发表于 2022-1-2 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139616&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-2 19:20</a>
+
+竟然没人关心这个? 真想扇国外疫苗吹脸上,去年mrna出来的时候是怎么吹的啊,什么防感染90%啦,你灭活才51% ...</blockquote>
+MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能还能当成是利好
+

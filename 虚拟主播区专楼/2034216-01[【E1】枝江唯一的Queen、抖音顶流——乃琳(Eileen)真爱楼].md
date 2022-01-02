@@ -5076,3 +5076,80 @@ x3</blockquote>
 
 新的一年，一起做个倔强的大人吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 377#         楼主| 发表于 2022-1-2 22:29
+
+乃琳Queen:[【乃琳】且仙且娇，国风舞蹈六连跳【直播】](https://t.bilibili.com/611153625523203570)
+（运营代发）
+
+素材来自1月2日乃琳50w粉丝纪念直播
+音乐：故梦 山鬼 红昭愿 醉 花间酒 逍遥
+编舞参考：BV1gK411M7ib BV1ch411i7nV
+BV1AW411b7Te BV1SX4y1u7qr BV1Wr4y1Q7sa
+表演：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202201/02/222933etd7n0noc0tms667.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:29 上传
+
+*****
+
+####  一般通过广纤  
+##### 378#       发表于 2022-1-2 22:35
+
+乃琳好美，虽然我今晚没看直播。我平时也一直嫌弃她刻意营业，但是她就是好美
+
+*****
+
+####  sanlow666  
+##### 379#         楼主| 发表于 2022-1-2 22:39
+
+乃琳Queen:[发布动态](https://t.bilibili.com/611155416517244393) <blockquote>感谢你们在今天这个日子，和我一起在心里，放了一朵小小的烟花喔❤️<blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/02/223849sfyyzyy16x1yyili.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (200.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:38 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/223857pwmhfhitvjdkheiw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:38 上传
+
+</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/02/223904b992xcjc3hroip9k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (181.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/223908ov6vvkq220rl37o3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (194.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 22:39 上传
+
+</blockquote>
+
