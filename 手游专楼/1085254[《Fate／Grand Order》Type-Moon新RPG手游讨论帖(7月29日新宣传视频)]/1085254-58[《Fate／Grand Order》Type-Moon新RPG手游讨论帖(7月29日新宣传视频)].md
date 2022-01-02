@@ -8711,3 +8711,15 @@ FIAVjrYVgAIhVv2.jpg
 
 平均友情池10连5个硬币，4000个硬币么抽个8000次大约160万友情点吧
 
+
+
+*****
+
+####  密特里奈斯  
+##### 86352#       发表于 2022-1-2 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137959&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-1-2 16:09</a>
+
+平均友情池10连5个硬币，4000个硬币么抽个8000次大约160万友情点吧</blockquote>
+友情点不是啥大问题，有黑科技，但是手动抽……
+

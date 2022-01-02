@@ -15438,3 +15438,12 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 完了,我也是字母+数字</blockquote>
 是那个20011啦，废话真踏马多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  24k纯帅  
+##### 2785#       发表于 2022-1-2 21:08
+
+下一个用的字母会是什么呢， 感觉按现在的基数， 过几个月热点就不是Omicron了吧
+

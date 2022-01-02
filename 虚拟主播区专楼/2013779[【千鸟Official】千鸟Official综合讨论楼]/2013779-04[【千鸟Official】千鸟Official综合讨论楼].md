@@ -4037,3 +4037,12 @@ syl 鸟p约的fufu已经准备联系工厂打样了，后续群里也会有通�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提前补工时，然后过年放大假是吧
 
+
+
+*****
+
+####  rgauss  
+##### 4920#       发表于 2022-1-2 21:22
+
+白噪音咋被薄纱了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
