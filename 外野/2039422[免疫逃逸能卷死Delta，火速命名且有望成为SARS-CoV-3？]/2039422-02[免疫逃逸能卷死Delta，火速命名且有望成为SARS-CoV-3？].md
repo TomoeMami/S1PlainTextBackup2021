@@ -15257,3 +15257,14 @@ b1.640.2好眼熟，是不是法国本土株？
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  洛拉斯  
+##### 2770#       发表于 2022-1-2 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54113126&amp;ptid=2039422" target="_blank">Dreki 发表于 2021-12-31 12:37</a>
+蚌埠住了，拿高中生物在这汴京半天</blockquote>
+高中生物说错了什么吗？
+
