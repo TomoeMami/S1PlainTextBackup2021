@@ -3952,3 +3952,34 @@ sayu和pay都有一个弟弟，nako有一个姐姐，nagi是哥哥 ...</blockquo
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  iuhehc  
+##### 3411#       发表于 2022-1-2 08:04
+
+ 本帖最后由 iuhehc 于 2022-1-2 08:16 编辑 
+
+跨年live星团部分的切片，看到有不少全开麦没有放cd之类的弹幕，就感觉真的挺多从星团开始看偶像团的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跨年live虹星都有能轻易听到明显多出来一个人声音轨的<strong>部分</strong>（除去inst自带的）
+
+虽然星团几个人底子不错但也不是live全部没放音源全开麦什么的，可以去消个伴奏对比一下一些歌其中一部分。有几首歌某些编舞一套动作甚能对kpop中上标准了，比前几代编舞幅度更大点（小知识：kpop现在打歌全开麦率非常非常低），有试过cover动作连贯激烈的舞就知道在这同时还要唱出近似【CD】是<strong>几乎不可能</strong>的事情
+
+现在各种偶像业界都把预录当家常便饭，毕竟编舞强度摆在那里所有过程都是为了<strong>展现比较完美的舞台效果</strong>，而这种企划团是要维持角色音唱歌的，这点比jpopkpop团难度更大。还是希望能客观看待星团实力的人多一些，会对着棚录说全开的少点吧（虽然哪个团都有这种粉丝就是了）
+
+*****
+
+####  仟音一心  
+##### 3412#       发表于 2022-1-2 08:18
+
+打铁
+
+2902C182-7ABD-49E0-BCB0-02E8BDB641BB.jpeg
+(116.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 08:18 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/081847n92brweacawpi9rr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
