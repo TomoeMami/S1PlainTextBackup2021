@@ -4420,3 +4420,78 @@ AE3DA790-3D87-4916-B904-FA210614D5AD.jpeg
 
 青山合照也不少
 
+
+
+*****
+
+####  仟音一心  
+##### 3448#       发表于 2022-1-2 15:59
+
+居然有画这幕的！
+
+237ADCDB-DDEA-44B9-8536-4A4E99F0D09C.jpeg
+(191.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 15:59 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/155905g3tcckhzkk3j21gx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6727660E-C548-435E-A9DB-AEC0391B9FD2.jpeg
+(414.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 15:59 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/155909tllrel96ygxwly5l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E617AF30-D8E5-469E-9784-B911362D01C0.jpeg
+(452.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 15:59 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/155908lyyiyn409iwo8h1w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3449#       发表于 2022-1-2 16:00
+
+ 本帖最后由 仟音一心 于 2022-1-2 16:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137115&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-2 14:21</a>
+
+跟前辈合照了，还炫耀第二次拥抱</blockquote>
+
+另一边返图
+
+FFA4101B-ED15-4808-9FFE-989D1300EBCC.jpeg
+(190.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 16:00 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/160038a84cm7u4rbbq1hmh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+33763BCD-01C8-4F71-980B-1EAA35717AAB.jpeg
+(220.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 16:00 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/160045vkdmkkuhugdukkkq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A140C7CC-3045-4ACC-A48F-6051029852F8.jpeg
+(203.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 16:02 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/160229i2mqrlqlcmuq428i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
