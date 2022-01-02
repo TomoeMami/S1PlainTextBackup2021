@@ -15188,3 +15188,44 @@ Omicron毒力的瓜来了<img src="https://static.saraba1st.com/image/smiley/fac
 三，
 Omicron禽流感化
 
+
+
+*****
+
+####  克鲁特尼  
+##### 2764#       发表于 2022-1-2 11:26
+
+b1.640.2好眼熟，是不是法国本土株？
+
+*****
+
+####  间宮夏生  
+##### 2765#       发表于 2022-1-2 11:26
+
+这么关心毒力干什么，传播能力和免疫突破能力明显更值得关注。大流行到这一步，国外明显是冲着所有人都得一次(甚至是多次)去的，现在追求的不过是通过疫苗，特效药等措施让整个过程中死的人少一点，还有其它路径吗？对于国内，就算真流感化了就不清零了？
+
+—— 来自 Meizu 16th, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  骆宾王  
+##### 2766#       发表于 2022-1-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135763&amp;ptid=2039422" target="_blank">间宮夏生 发表于 2022-1-2 11:26</a>
+
+这么关心毒力干什么，传播能力和免疫突破能力明显更值得关注。大流行到这一步，国外明显是冲着所有人都得一 ...</blockquote>
+我们只是想要白皮死
+
+*****
+
+####  Promeus  
+##### 2767#       发表于 2022-1-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135763&amp;ptid=2039422" target="_blank">间宮夏生 发表于 2022-1-2 11:26</a>
+这么关心毒力干什么，传播能力和免疫突破能力明显更值得关注。大流行到这一步，国外明显是冲着所有人都得一 ...</blockquote>
+因为大家想看血流成河啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过最怕的还是这玩意真减弱到感冒级别让西方能对我们肉身投毒吧<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
