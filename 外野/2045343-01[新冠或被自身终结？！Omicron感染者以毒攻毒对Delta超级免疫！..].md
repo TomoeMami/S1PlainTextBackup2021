@@ -759,3 +759,14 @@ omicron只是在叠dot，输出还要靠ADE
 
 自然选择号，前进四！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GoInDown  
+##### 74#       发表于 2022-1-2 16:09
+
+这年头，病毒也这么内卷的么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

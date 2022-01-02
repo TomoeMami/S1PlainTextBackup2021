@@ -8702,3 +8702,12 @@ FIAVjrYVgAIhVv2.jpg
 日服以后可以纯靠抽友情池白嫖两个圣杯吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2个圣杯要4000硬币..别想太多了
 
+
+
+*****
+
+####  yangun22  
+##### 86351#       发表于 2022-1-2 16:09
+
+平均友情池10连5个硬币，4000个硬币么抽个8000次大约160万友情点吧
+

@@ -10002,3 +10002,20 @@ EN真的是让人找回了看虹的初心
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9847#       发表于 2022-1-2 16:05
+
+ 本帖最后由 alcoholic1000 于 2022-1-2 16:17 编辑 
+
+en随时突击连麦真不错，客观空间距离所造成的网友之间的小心翼翼与扭捏的亲热<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">...
+
+VRCHAT无论放在holo还是niji都是好活，不知道luca这个职人到时候会不会上场
+
+Syl，クロヱ的正月服特别好评
+
+Zsyl，德龙这压迫力太强了，E桌看到目前为止最乐
+

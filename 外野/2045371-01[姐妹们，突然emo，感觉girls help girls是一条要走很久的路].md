@@ -809,3 +809,66 @@ yysy，这一看就是郭楠编的
 
 虽然但是，我觉得这戏服就是已经表明了立场的了。
 
+
+
+*****
+
+####  鹤见留美  
+##### 91#       发表于 2022-1-2 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136542&amp;ptid=2045371" target="_blank">poppin 发表于 2022-1-2 13:06</a>
+
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+如果他本身自己就要买，旁边女的让给带个啥，也不太好拒绝吧
+
+*****
+
+####  66666  
+##### 92#       发表于 2022-1-2 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137270&amp;ptid=2045371" target="_blank">大肥兔 发表于 2022-1-2 14:42</a>
+
+之后在想有没有娘子军的企业，不要男性</blockquote>
+特种服务业全女人的多了，我说的是美容美甲之类的，别想歪
+
+*****
+
+####  laotoutou  
+##### 93#       发表于 2022-1-2 16:17
+
+说实话有点假
+
+*****
+
+####  Redis  
+##### 94#       发表于 2022-1-2 16:18
+
+女的可是人口的一半
+
+这里面势利的投机的会比男的少？不被滥用才怪了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vviosonia  
+##### 95#       发表于 2022-1-2 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136542&amp;ptid=2045371" target="_blank">poppin 发表于 2022-1-2 13:06</a>
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">还真有，我就遇到过。被我直球打回去了:“就你那样还想占我便宜？先掂量下有什么便宜我能占的”
+
+*****
+
+####  sagajytc  
+##### 96#       发表于 2022-1-2 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137812&amp;ptid=2045371" target="_blank">zhliiiii 发表于 2022-1-2 15:53</a>
+
+yysy，这一看就是郭楠编的
+
+小仙女压根就写不出这么通顺的东西</blockquote>
+女人这种情绪动物根本写不出这么冷静的东西才对
+
