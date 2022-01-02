@@ -4219,3 +4219,47 @@ AE3DA790-3D87-4916-B904-FA210614D5AD.jpeg
 
 小宫确实人美声甜性格好，而且艺能感出众能整活，还演过电视剧电影，lovelive cast里绝对的顶级素质，当年水团第一场生放送她和杏树就明显气场不一样，人气高太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 3433#       发表于 2022-1-2 13:24
+
+话说你们对nga那边的印象怎么样呀？
+我去过，就是感觉那边的人回复积极性好像有点低，不过人员流动量真的好大，基本插不上话
+都能碰到新人，不像我们楼基本都认熟了。
+感觉还是不太习惯nga那边的动漫区
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cat1230  
+##### 3434#       发表于 2022-1-2 13:32
+
+2边星楼活跃程度差不多吧，热闹还得是贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 3435#       发表于 2022-1-2 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136677&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-1-2 13:24</a>
+话说你们对nga那边的印象怎么样呀？
+我去过，就是感觉那边的人回复积极性好像有点低，不过人员流动量真的好 ...</blockquote>
+总体比这边慢，很多这里发了那边还没人发。回贴率低但点赞的还挺多。
+
+*****
+
+####  仟音一心  
+##### 3436#       发表于 2022-1-2 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136733&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-2 13:32</a>
+2边星楼活跃程度差不多吧，热闹还得是贴吧
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+贴吧现在也冷了吧，我发个贴也没多少人回
+

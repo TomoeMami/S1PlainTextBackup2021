@@ -8645,3 +8645,15 @@ FIAVjrYVgAIhVv2.jpg
 芭娜娜今年能复刻下么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是刚刚复课了 (福袋
 
+
+
+*****
+
+####  qixinno2  
+##### 86346#       发表于 2022-1-2 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136588&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-2 13:12</a>
+
+不是刚刚复课了 (福袋</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡福袋算个屁复刻
+
