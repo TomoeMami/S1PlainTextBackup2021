@@ -727,3 +727,35 @@ omicron只是在叠dot，输出还要靠ADE
 我在大陆的同学就鼓励他在北美的同学趁着年轻赶紧感染omicron，获得最全面的免疫记忆 ...</blockquote>
 听听就不太对的样子……
 
+
+
+*****
+
+####  liquer  
+##### 70#       发表于 2022-1-2 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">共存开放派这急吼吼宣布胜利的样子仿佛自己活不过下个春天了似的
+
+*****
+
+####  pushare  
+##### 71#       发表于 2022-1-2 15:36
+
+搞移民服务的自媒体发的？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玄戍  
+##### 72#       发表于 2022-1-2 15:37
+
+万一O株只是个另一个开始呢。病毒不是会一直变异吗。
+
+*****
+
+####  catazshadow  
+##### 73#       发表于 2022-1-2 15:39
+
+自然选择号，前进四！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

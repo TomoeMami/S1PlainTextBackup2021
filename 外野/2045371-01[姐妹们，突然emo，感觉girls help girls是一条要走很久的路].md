@@ -726,3 +726,61 @@ CEO是不是自己也是女孩子啊<img src="https://static.saraba1st.com/image
 
 居然没把人事裁了 多半是rpg
 
+
+
+*****
+
+####  巴克兹  
+##### 82#       发表于 2022-1-2 15:23
+
+小作文过于明显，打回去重写
+
+*****
+
+####  tianhao2001  
+##### 83#       发表于 2022-1-2 15:25
+
+加油啊，徐波大哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 84#       发表于 2022-1-2 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136894&amp;ptid=2045371" target="_blank">shhekun 发表于 2022-1-2 13:52</a>
+这个是假的居多吧，公司的财务、h、技术岗那几条线一般都是不怎么对路的，哪有可能帮你搞这些花里胡哨的东 ...</blockquote>
+小公司大公司不一样的
+
+*****
+
+####  本职是魔法使  
+##### 85#       发表于 2022-1-2 15:39
+
+我现在公司的行政小姐姐亲口和我说的，喜欢和男领导共事，她本人身材好，漂亮。女领导很多时候容易小心眼，包括你化的妆和穿的衣服。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  diohanmilton  
+##### 86#       发表于 2022-1-2 15:42
+
+类比到绿教里这是不是就是温和派绿绿。日拱一卒，结果被激进派搅了。
+
+—— 来自 HUAWEI TNY-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  martysama  
+##### 87#       发表于 2022-1-2 15:44
+
+<img src="https://img.saraba1st.com/forum/202201/02/154414q695f5p39b3g19kp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_CMP_246152378.jpeg</strong> (121.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 15:44 上传
+
+笑啦
+

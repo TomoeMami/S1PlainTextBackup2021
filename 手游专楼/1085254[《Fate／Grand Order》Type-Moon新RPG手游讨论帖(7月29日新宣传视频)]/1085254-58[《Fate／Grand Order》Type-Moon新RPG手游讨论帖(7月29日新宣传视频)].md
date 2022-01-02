@@ -8690,3 +8690,15 @@ FIAVjrYVgAIhVv2.jpg
 
 日服以后可以纯靠抽友情池白嫖两个圣杯吗？
 
+
+
+*****
+
+####  alucardcz  
+##### 86350#       发表于 2022-1-2 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137419&amp;ptid=1085254" target="_blank">cckuku 发表于 2022-1-2 14:59</a>
+
+日服以后可以纯靠抽友情池白嫖两个圣杯吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2个圣杯要4000硬币..别想太多了
+
