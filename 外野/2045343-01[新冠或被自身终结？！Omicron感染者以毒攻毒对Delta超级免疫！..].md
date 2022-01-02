@@ -830,3 +830,21 @@ N手屎💩
 
 说好得过就会免疫的。那得了D不就应该不会得O吗？搞了得O不会得D不是应该的吗？搞得还是大新闻一样。
 
+
+
+*****
+
+####  colorless  
+##### 82#       发表于 2022-1-2 19:11
+
+那再用o做疫苗呢
+
+*****
+
+####  nuclearg  
+##### 83#       发表于 2022-1-2 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139525&amp;ptid=2045343" target="_blank">colorless 发表于 2022-1-2 19:11</a>
+那再用o做疫苗呢</blockquote>
+以毒攻毒是吧
+

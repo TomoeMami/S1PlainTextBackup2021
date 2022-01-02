@@ -15332,3 +15332,31 @@ b1.640.2好眼熟，是不是法国本土株？
 美国日本化的最新例证</blockquote>
 无限量QE就很像日本的干法
 
+
+
+*****
+
+####  charse2r  
+##### 2777#       发表于 2022-1-2 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54115471&amp;ptid=2039422" target="_blank">charse2r 发表于 2021-12-31 15:52</a>
+
+Robert Koch Institute report released today states that 95.58% of the #Omicron cases in Germany are  ...</blockquote>
+竟然没人关心这个? 真想扇国外疫苗吹脸上,去年mrna出来的时候是怎么吹的啊,什么防感染90%啦,你灭活才51%啦,垃圾疫苗.
+
+结果现在...再补个新丹麦的
+
+@disclosetv
+
+JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/Omicron?src=hashtag_click) in Denmark are either "fully vaccinated" or had their first booster, per report from today. 77.9% of the population is fully vaccinated.
+
+刚刚 - 根据今天的报告，丹麦 89.7% 的[#Omicron](https://twitter.com/hashtag/Omicron?src=hashtag_click)感染者要么“完全接种”疫苗，要么接受了第一次加强免疫。 77.9% 的人口接种了全面疫苗。
+
+<img src="https://img.saraba1st.com/forum/202201/02/191957onpc9u9tmn3hoh6u.png" referrerpolicy="no-referrer">
+
+<strong>FH81tmnXEAM2KXo.png</strong> (51.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 19:19 上传
+
