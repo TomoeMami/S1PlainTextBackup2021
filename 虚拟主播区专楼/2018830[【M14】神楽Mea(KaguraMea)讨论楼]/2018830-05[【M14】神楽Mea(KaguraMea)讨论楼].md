@@ -10648,3 +10648,19 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 唐突开始接龙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 7224#       发表于 2022-1-3 00:03
+
+你咩姐居然赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 7225#       发表于 2022-1-3 00:17
+
+麻了都
+

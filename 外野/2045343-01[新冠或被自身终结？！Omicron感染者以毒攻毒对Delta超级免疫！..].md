@@ -920,3 +920,12 @@ N手屎💩
 
 就是这么大个培养皿不怕出个更难搞的变种？
 
+
+
+*****
+
+####  czs13  
+##### 91#       发表于 2022-1-3 00:23
+
+那还搞个屁疫苗特效药，白皮一人一针活体O病毒美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
