@@ -4342,3 +4342,33 @@ AE3DA790-3D87-4916-B904-FA210614D5AD.jpeg
 
 鱼完全就是一副“羡慕吗，捞仔”的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 3442#       发表于 2022-1-2 14:46
+
+ 本帖最后由 普之舜舜 于 2022-1-2 14:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136806&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-2 13:41</a>
+贴吧现在也冷了吧，我发个贴也没多少人回</blockquote>
+我在萌战吧发的三团专楼2k楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过我萌战吧换了一个id，不知道你们有没有发现我和收藏帖子，我等下发下链接，你们可以暖暖楼
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 3443#       发表于 2022-1-2 14:52
+
+ 本帖最后由 普之舜舜 于 2022-1-2 14:53 编辑 
+
+[http://tieba.baidu.com/p/7679338 ... A9900C4505AB29C6892](http://tieba.baidu.com/p/7679338414?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=11.1.8.2&amp;st=1641106275&amp;unique=66CCE28BAB92EA9900C4505AB29C6892)
+
+欢迎你们暖暖楼哈，两晚上已经2k楼了。
+<strong>最近我在考试，所以没时间暖楼，
+我明天还要考试，复习去了</strong>
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -8681,3 +8681,12 @@ FIAVjrYVgAIhVv2.jpg
 算啊 你看楼上有人2宝了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人和人是不能一概而论的
 
+
+
+*****
+
+####  cckuku  
+##### 86349#       发表于 2022-1-2 14:59
+
+日服以后可以纯靠抽友情池白嫖两个圣杯吗？
+
