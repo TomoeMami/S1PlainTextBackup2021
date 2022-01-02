@@ -4966,3 +4966,22 @@ D9936153-5119-4FAC-B7E6-F66397795B94.jpeg
 
 ll吧热度一万多，战吧热度两万多。ll.吧有关星和鲤鱼的回复会高点，但可能会引来一些贵物
 
+
+
+*****
+
+####  cybernetics31  
+##### 3476#       发表于 2022-1-2 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">根据群友反馈，鲤鱼姐应该是换13 pro max了
+
+*****
+
+####  ads147147  
+##### 3477#       发表于 2022-1-2 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54140746&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-1-2 20:46</a>
+
+根据群友反馈，鲤鱼姐应该是换13 pro max了</blockquote>
+想起那个梗：在外国的中国女生最好认了，肯定是用的最新款最贵的那个苹果手机
+

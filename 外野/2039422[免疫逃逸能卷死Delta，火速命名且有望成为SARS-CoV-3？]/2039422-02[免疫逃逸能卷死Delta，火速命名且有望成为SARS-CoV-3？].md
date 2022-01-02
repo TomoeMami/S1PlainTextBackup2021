@@ -15426,3 +15426,15 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 谁要是再连续回复那个字母+数字的ID那我只能连你也一起拉黑了</blockquote>
 完了,我也是字母+数字
 
+
+
+*****
+
+####  扎克远山  
+##### 2784#       发表于 2022-1-2 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54140707&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-2 20:44</a>
+
+完了,我也是字母+数字</blockquote>
+是那个20011啦，废话真踏马多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

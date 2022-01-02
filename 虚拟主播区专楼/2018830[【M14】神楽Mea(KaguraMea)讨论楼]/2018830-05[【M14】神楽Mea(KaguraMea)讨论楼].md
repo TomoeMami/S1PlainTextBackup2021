@@ -10557,3 +10557,22 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 你咩：抹布洗
 
+
+
+*****
+
+####  T_Hb  
+##### 7215#       发表于 2022-1-2 21:00
+
+ 本帖最后由 T_Hb 于 2022-1-2 21:02 编辑 
+
+君の分辨率not good
+
+<img src="https://img.saraba1st.com/forum/202201/02/210243ig14s6cq6sqxwws8.jpg" referrerpolicy="no-referrer">
+
+<strong>]P%@0)700BIA`4V8S}Q8(T5.jpg</strong> (39.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 21:02 上传
+

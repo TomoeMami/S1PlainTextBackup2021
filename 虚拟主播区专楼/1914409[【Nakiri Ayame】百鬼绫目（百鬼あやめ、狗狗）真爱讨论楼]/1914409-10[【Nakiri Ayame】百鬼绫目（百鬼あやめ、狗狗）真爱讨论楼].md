@@ -3382,3 +3382,14 @@ Subaru...
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把马车杯换成宝可杯这个猜想还有一点成立的可能性
  马车应该纯摆烂了吧，不垫底就算成功
 
+
+
+*****
+
+####  秋月孝三  
+##### 13838#       发表于 2022-1-2 20:45
+
+有巧可先在，没有其他人能垫底
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
