@@ -4938,3 +4938,31 @@ D9936153-5119-4FAC-B7E6-F66397795B94.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋没有菜鱼合影
 
+
+
+*****
+
+####  ddy2811  
+##### 3473#       发表于 2022-1-2 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137445&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-2 15:04</a>
+
+这样啊，我去的是LL吧</blockquote>
+贴吧活跃人数大缩水，现在单吧都不太行，想维持流量要么像b吧战吧那样搞综合吧，要么像抗带神兔v那样搞抽象吧，要么就像土木吧钓鱼吧那样整点知名的梗，再或者像各种交易吧那样功能性强一些，除此以外基本没有热度了……
+
+*****
+
+####  一个陆仁贾  
+##### 3474#       发表于 2022-1-2 20:14
+
+<img src="https://p.sda1.dev/4/4b6e4c82423d7fe8f923c89423fdcb88/IMG_CMP_47045231.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 3475#       发表于 2022-1-2 20:15
+
+ll吧热度一万多，战吧热度两万多。ll.吧有关星和鲤鱼的回复会高点，但可能会引来一些贵物
+

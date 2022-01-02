@@ -10120,3 +10120,15 @@ Zsyl，德龙这压迫力太强了，E桌看到目前为止最乐
 
 葵皇🧐🧐🧐
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9856#       发表于 2022-1-2 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139808&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-1-2 19:41</a>
+
+想问一下这个扑克主台观战右边的这个手牌情况是这个游戏观战自带的还是这次专门做的？要是是用这游戏的api ...</blockquote>
+我在黄兔子那边也有见过这个手牌情况，大概就是游戏自带的或者插件之类
+

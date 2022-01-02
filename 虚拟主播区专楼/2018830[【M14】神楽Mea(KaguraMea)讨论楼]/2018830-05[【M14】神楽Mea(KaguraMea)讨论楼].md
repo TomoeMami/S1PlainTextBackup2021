@@ -10548,3 +10548,12 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 1月8号晚上8点 among us  有点无语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人又不熟，这游戏也不爱玩
 
+
+
+*****
+
+####  路人庚  
+##### 7214#       发表于 2022-1-2 20:19
+
+你咩：抹布洗
+
