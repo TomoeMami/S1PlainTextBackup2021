@@ -5251,3 +5251,58 @@ B630CD9A-61C3-4B2D-95D2-B523D2AE4446.jpeg
 
 拍后台不是好事，可能是被经纪人说了就删掉了
 
+
+
+*****
+
+####  lj205  
+##### 3499#       发表于 2022-1-2 23:26
+
+看来以后是不会再有了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+希望不要挨骂……哎…………鲤鱼真的是挺为国内大家争取的了……估计这次太高兴想跟大家分享
+日本人真是刻板
+
+*****
+
+####  蜜梨柑  
+##### 3500#       发表于 2022-1-2 23:29
+
+之前福井后台拍的也没问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3501#       发表于 2022-1-2 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后台要做making 卖bd的嘛，见怪不怪了已经
+
+*****
+
+####  lj205  
+##### 3502#       发表于 2022-1-2 23:32
+
+群里说背景虹咲在唱歌，可能跟这个有关
+
+*****
+
+####  cybernetics31  
+##### 3503#       发表于 2022-1-2 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54142930&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2022-1-2 23:29</a>
+之前福井后台拍的也没问题啊</blockquote>
+之前那个结束了，这次前台还放着付费内容呢，那就牡蛎了
+
+*****
+
+####  a92063256  
+##### 3504#       发表于 2022-1-2 23:35
+
+遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">希望鲤鱼不要有挫败感，以后还能接着拍
+
+*****
+
+####  ykyin09  
+##### 3505#       发表于 2022-1-2 23:37
+
+所以说是什么视频来自: iPhone客户端
+
