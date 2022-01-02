@@ -15459,3 +15459,12 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 下一个用的字母会是什么呢， 感觉按现在的基数， 过几个月热点就不是Omicron了吧 ...</blockquote>
 希腊字母用完了是星座，到时候讨论的就是毒性强的猩红毒针和起效快的冥界积尸气哪个威胁更大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ZZY19941124  
+##### 2787#       发表于 2022-1-2 22:03
+
+就算毒性降了，感染更多的人，基数摆在那里，死亡人数不会降低甚至是增加。
+

@@ -8723,3 +8723,54 @@ FIAVjrYVgAIhVv2.jpg
 平均友情池10连5个硬币，4000个硬币么抽个8000次大约160万友情点吧</blockquote>
 友情点不是啥大问题，有黑科技，但是手动抽……
 
+
+
+*****
+
+####  空气蛹  
+##### 86353#       发表于 2022-1-2 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54141322&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2022-1-2 21:23</a>
+
+友情点不是啥大问题，有黑科技，但是手动抽……</blockquote>
+有个基于图像识别的脚本，这也不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  密特里奈斯  
+##### 86354#       发表于 2022-1-2 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54141668&amp;ptid=1085254" target="_blank">空气蛹 发表于 2022-1-2 21:44</a>
+
+有个基于图像识别的脚本，这也不是问题</blockquote>
+换客户端太麻烦了
+
+*****
+
+####  空气蛹  
+##### 86355#       发表于 2022-1-2 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54141737&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2022-1-2 21:48</a>
+
+换客户端太麻烦了</blockquote>
+那确实，我现在日服还是用的手机，国服就直接脚本挂机了
+
+*****
+
+####  密特里奈斯  
+##### 86356#       发表于 2022-1-2 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54141759&amp;ptid=1085254" target="_blank">空气蛹 发表于 2022-1-2 21:50</a>
+
+那确实，我现在日服还是用的手机，国服就直接脚本挂机了</blockquote>
+希望明年邪马台复刻国服能搞定双端，抽到吐
+
+日服这边就没辙了，信胜这种好从者难得哦~~
+
+*****
+
+####  alucardcz  
+##### 86357#       发表于 2022-1-2 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">日服什么时候能绑id  什么年代了还用引继码   出门用手机回家用ipad都做不到
+
