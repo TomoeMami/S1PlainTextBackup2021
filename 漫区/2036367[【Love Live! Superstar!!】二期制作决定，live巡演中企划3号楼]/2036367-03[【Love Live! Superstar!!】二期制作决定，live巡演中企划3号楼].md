@@ -4004,3 +4004,25 @@ sayu和pay都有一个弟弟，nako有一个姐姐，nagi是哥哥 ...</blockquo
 跨年live星团部分的切片，看到有不少全开麦没有放cd之类的弹幕，就感觉真的挺多从星团开始看偶像团的[f:067 ...</blockquote>
 不过星团live都没有用角色音唱歌 这点上比起前辈们少了个束缚条件<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saglork  
+##### 3415#       发表于 2022-1-2 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134907&amp;ptid=2036367" target="_blank">zylwz 发表于 2022-1-2 08:55</a>
+不过星团live都没有用角色音唱歌 这点上比起前辈们少了个束缚条件</blockquote>
+准确说星团本身人物配音就没用太难捏的角色音，所以唱歌基本不需要掐声线，毕竟几乎全员配音素人，不是人人都能捏着南小鸟那种说话都提着嗓子眼的声线还能唱歌不跑调的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 3416#       发表于 2022-1-2 09:21
+
+<blockquote>saglork 发表于 2022-1-2 09:16
+准确说星团本身人物配音就没用太难捏的角色音，所以唱歌基本不需要掐声线，毕竟几乎全员配音素人，不是人 ...</blockquote>
+CD还是会掐声线的 最明显的就是day1
+
+顺便一提这首的live版就比cd版要好听 
+

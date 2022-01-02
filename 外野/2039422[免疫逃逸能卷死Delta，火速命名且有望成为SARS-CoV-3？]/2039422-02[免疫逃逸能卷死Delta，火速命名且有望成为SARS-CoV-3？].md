@@ -15109,3 +15109,17 @@ Case counts ‘don’t reflect what they used to’, experts argue, as data sugg
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  7776169  
+##### 2758#       发表于 2022-1-2 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134902&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-2 08:55</a>
+
+来了来了， 美国专家质疑是否有必要继续统计新冠感染， 因为omicron 更加mild
+
+一直造势mild 最终的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">只要统计停下来了，一切都会好起来的
+
