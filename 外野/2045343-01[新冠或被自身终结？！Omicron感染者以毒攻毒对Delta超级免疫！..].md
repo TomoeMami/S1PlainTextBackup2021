@@ -666,3 +666,15 @@ O能传播老鼠我之前知道了，能传禽类还是才知道。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看是你躺得快还是我变的快？
 
+
+
+*****
+
+####  治丧委  
+##### 64#       发表于 2022-1-2 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135239&amp;ptid=2045343" target="_blank">66666 发表于 2022-1-2 10:07</a>
+
+然而转阴后，新冠病毒会持续在人体内包括大脑等任意器官大量繁殖，最终可能以脑出血、心肌梗死等貌似跟新冠 ...</blockquote>
+加入这场伟大的进化吧（不是
+

@@ -4210,3 +4210,12 @@ AE3DA790-3D87-4916-B904-FA210614D5AD.jpeg
 没排队</blockquote>
 知道，鲤鱼没排，其她人要排说明合照的很多。人气王没跑了。
 
+
+
+*****
+
+####  saglork  
+##### 3432#       发表于 2022-1-2 13:13
+
+小宫确实人美声甜性格好，而且艺能感出众能整活，还演过电视剧电影，lovelive cast里绝对的顶级素质，当年水团第一场生放送她和杏树就明显气场不一样，人气高太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

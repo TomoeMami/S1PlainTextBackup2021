@@ -3913,3 +3913,22 @@ syl 她应该好几年前的ow云玩家了
 
 这白虎梗还能玩多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 4910#       发表于 2022-1-2 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136474&amp;ptid=2013779" target="_blank">Quark 发表于 2022-1-2 12:56</a>
+
+这白虎梗还能玩多久啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少半个月
+
+*****
+
+####  rgauss  
+##### 4911#       发表于 2022-1-2 13:23
+
+白白 内心gn,又是御姐音平板，rp傻子还挺厉害，还穿旗袍，想象不出来
+

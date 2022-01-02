@@ -15268,3 +15268,16 @@ b1.640.2好眼熟，是不是法国本土株？
 蚌埠住了，拿高中生物在这汴京半天</blockquote>
 高中生物说错了什么吗？
 
+
+
+*****
+
+####  jxwats1  
+##### 2771#       发表于 2022-1-2 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136039&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-2 12:03</a>
+这东西变得传播能力强度强的过分，打疫苗几乎没有防感染能力。
+
+我记得reddit有三针加口罩能打穿的。目前 ...</blockquote>
+你这点说得倒是正确。万一omicron哪天真进来了，那么大规模检测的方式一定需要做出改变（至少不能整个小区一起排大队），不然风险太大了。
+
