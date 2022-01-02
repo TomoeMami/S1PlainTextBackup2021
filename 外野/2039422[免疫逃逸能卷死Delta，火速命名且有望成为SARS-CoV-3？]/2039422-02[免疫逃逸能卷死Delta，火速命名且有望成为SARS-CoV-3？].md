@@ -15503,3 +15503,16 @@ MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能
 
 <img src="https://p.sda1.dev/4/9a7fd1f27e0322f93c1c494c9ea6aba3/20220103_004451.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2791#       发表于 2022-1-3 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139616&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-2 19:20</a>
+竟然没人关心这个? 真想扇国外疫苗吹脸上,去年mrna出来的时候是怎么吹的啊,什么防感染90%啦,你灭活才51% ...</blockquote>
+两针没效果不是常识？你去看英国的报告再讨论疫苗效力好吧
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
