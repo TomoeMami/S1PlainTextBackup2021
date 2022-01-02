@@ -15240,3 +15240,20 @@ b1.640.2好眼熟，是不是法国本土株？
 
 你们两个是互相爱上了吧，加个QQ私聊可好
 
+
+
+*****
+
+####  smy20011  
+##### 2769#       发表于 2022-1-2 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135763&amp;ptid=2039422" target="_blank">间宮夏生 发表于 2022-1-2 11:26</a>
+这么关心毒力干什么，传播能力和免疫突破能力明显更值得关注。大流行到这一步，国外明显是冲着所有人都得一 ...</blockquote>
+这东西变得传播能力强度强的过分，打疫苗几乎没有防感染能力。
+
+我记得reddit有三针加口罩能打穿的。目前来看西方就是躺了，各种景点一堆一堆的人。
+
+感觉omicron进来的话，核酸的做法需要改改了，要不然做一次核酸就是一次传播。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
