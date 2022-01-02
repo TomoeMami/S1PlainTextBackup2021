@@ -972,3 +972,14 @@ N手屎💩
 
 阿三不会让我们失望的<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  martinium  
+##### 97#       发表于 2022-1-3 07:10
+
+群体免疫学说的变异速度和病毒变异速度哪个更快？
+
+— from samsung SM-G781U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
