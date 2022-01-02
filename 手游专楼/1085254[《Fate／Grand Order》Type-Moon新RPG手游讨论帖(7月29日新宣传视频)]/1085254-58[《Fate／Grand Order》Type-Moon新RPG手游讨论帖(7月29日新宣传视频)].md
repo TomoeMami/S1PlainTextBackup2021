@@ -8786,3 +8786,12 @@ FIAVjrYVgAIhVv2.jpg
 日服什么时候能绑id  什么年代了还用引继码   出门用手机回家用ipad都做不到 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到关服都看不到的
 
+
+
+*****
+
+####  rooarr  
+##### 86359#       发表于 2022-1-2 23:07
+
+其实引继码挺好的，不泄露别人都猜不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

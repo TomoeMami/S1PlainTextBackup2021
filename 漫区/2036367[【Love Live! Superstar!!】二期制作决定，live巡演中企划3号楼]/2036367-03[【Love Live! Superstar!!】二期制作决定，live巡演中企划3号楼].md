@@ -5193,3 +5193,61 @@ B630CD9A-61C3-4B2D-95D2-B523D2AE4446.jpeg
 
 鲤鱼不和前田来一张吗？我看其他人都跟匹配到的有返图<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 3493#       发表于 2022-1-2 23:06
+
+<img src="https://img.saraba1st.com/forum/202201/02/230611nhoohosov9tbo9oh.png" referrerpolicy="no-referrer">
+
+<strong>49221E80-EB74-4481-8A45-95E2048890E5.png</strong> (428.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 23:06 上传
+
+我的鲤鱼
+
+*****
+
+####  cat1230  
+##### 3494#       发表于 2022-1-2 23:09
+
+喜茶在日本开店会跟星团搞个联名么
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Norkey1  
+##### 3495#       发表于 2022-1-2 23:16
+
+鲤鱼的视频光速删除了，这是被说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3496#       发表于 2022-1-2 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">视频拍的时候虹正唱着呢，估计因为这个删了
+
+*****
+
+####  Karin11974  
+##### 3497#       发表于 2022-1-2 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54140227&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-1-2 20:14</a>
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+估计9月gk live开始？奔3偶像还要这么蹦也是辛苦了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 3498#       发表于 2022-1-2 23:19
+
+拍后台不是好事，可能是被经纪人说了就删掉了
+

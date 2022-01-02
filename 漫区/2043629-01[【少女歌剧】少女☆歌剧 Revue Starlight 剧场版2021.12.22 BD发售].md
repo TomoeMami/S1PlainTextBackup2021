@@ -5467,3 +5467,15 @@ B站动态看见一个观影团连观影特典都整出来了
 光先动手撩的恋,撩完就跑路,渣女</blockquote>
 华恋如果成为挺王，那小光就是成就两代挺王的女人
 
+
+
+*****
+
+####  remedios010000  
+##### 423#       发表于 2022-1-2 23:08
+
+BD放出之前不久我刚回去看了一遍蕉哥哥那集PPT……然后顺便从头到尾再观看了一遍(飞我去星全收集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看完剧场版第一反应就是华恋跟TV那个元气笨蛋完全是两个人啊，甚至这个转变还是有铺垫的，古川哥哥用了两个小时就把恋哥哥送上了挺王之位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是媚战吧番吗，那我只能说多来点多来点
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
