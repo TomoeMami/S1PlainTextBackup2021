@@ -5338,3 +5338,28 @@ B站动态看见一个观影团连观影特典都整出来了
 
 —— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 415#       发表于 2022-1-2 16:58
+
+今天好像广州和北京线下观影都开了 图转群
+
+<img src="https://img.saraba1st.com/forum/202201/02/165737xr79zr9cvlym6478.jpg" referrerpolicy="no-referrer">
+
+<strong>61aafbc948a4e6a9.jpg</strong> (98.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 16:57 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/165746wlwffq3mf1wblmrb.jpg" referrerpolicy="no-referrer">
+
+<strong>-479e471162967a2c.jpg</strong> (281.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 16:57 上传
+

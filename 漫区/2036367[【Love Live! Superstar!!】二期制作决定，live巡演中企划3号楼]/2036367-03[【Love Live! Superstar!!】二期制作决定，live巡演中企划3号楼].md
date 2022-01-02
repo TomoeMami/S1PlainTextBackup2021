@@ -4603,3 +4603,44 @@ A140C7CC-3045-4ACC-A48F-6051029852F8.jpeg
 这图我怎么没看懂呢</blockquote>
 这有什么没懂的？就单纯是昨晚Liyuu在Nagi家的意思啊。
 
+
+
+*****
+
+####  chenflyyy  
+##### 3460#       发表于 2022-1-2 16:49
+
+ 本帖最后由 chenflyyy 于 2022-1-2 16:56 编辑 
+
+sayu这推特关联词一个比一个迷惑，还好只是同名而已，这抽签抽到末吉是真的准<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有gachi恋太多也不完全是件好事，希望这孩子别被影响吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3461#       发表于 2022-1-2 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138294&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-2 16:49</a>
+sayu这推特关联词一个比一个迷惑，还好只是同名而已，这抽签抽到末吉是真的准
+还有gachi恋太多也不 ...</blockquote>
+相扑那个今天提到了，后两个应该是老婆怪发的。
+
+*****
+
+####  努斯万克  
+##### 3462#       发表于 2022-1-2 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138239&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-2 16:44</a>
+
+这有什么没懂的？就单纯是昨晚Liyuu在Nagi家的意思啊。</blockquote>
+没看出谁是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3463#       发表于 2022-1-2 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138386&amp;ptid=2036367" target="_blank">努斯万克 发表于 2022-1-2 16:58</a>
+没看出谁是谁</blockquote>
+你看一下昨晚的照片，衣服都能对应上
+

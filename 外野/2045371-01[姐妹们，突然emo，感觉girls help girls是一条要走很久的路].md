@@ -884,3 +884,71 @@ yysy，这一看就是郭楠编的
 特种服务业全女人的多了，我说的是美容美甲之类的，别想歪</blockquote>
 是这样，让男性来做也不放心，特别是皮肤护理之类的。我说的是it之类的企业
 
+
+
+*****
+
+####  万用红油精  
+##### 98#       发表于 2022-1-2 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137026&amp;ptid=2045371" target="_blank">昆古尼尔 发表于 2022-1-2 14:10</a>
+
+你号马上没了
+
+—— 来自 Xiaomi M2003J15SC, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+？？？
+
+*****
+
+####  wk199388  
+##### 99#       发表于 2022-1-2 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138266&amp;ptid=2045371" target="_blank">万用红油精 发表于 2022-1-2 16:47</a>
+
+？？？</blockquote>
+你用的那个词是泥潭违禁词, 如果某个版主看到可能会封你, 1个月起步.
+
+*****
+
+####  幻想风靡_  
+##### 100#       发表于 2022-1-2 16:50
+
+笑死，这不就是当代舔狗吗，只是换了下性别和舔的对象
+
+*****
+
+####  第二十三个马甲  
+##### 101#       发表于 2022-1-2 16:51
+
+什么玩意？精神病院跑出来了？
+
+*****
+
+####  寿_ashe  
+##### 102#       发表于 2022-1-2 16:55
+
+这不一看就是男人拟态写的，真正的中国女性只会怒骂公司老总对女性不宽容<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苑生百花  
+##### 103#       发表于 2022-1-2 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136459&amp;ptid=2045371" target="_blank">kaiser-william 发表于 2022-1-2 12:55</a>
+
+这违反职业道德吧，特别是超过规定给福利那块
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+职业道德在女权面前必须往后稍稍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河水  
+##### 104#       发表于 2022-1-2 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136810&amp;ptid=2045371" target="_blank">66666 发表于 2022-1-2 13:42</a>
+只能说你见得少了，我还看过某苏南专门为国电做配套的厂子里面90%都是女性，包括连数控车床操作工大部分 ...</blockquote>
+工厂的劳动妇女个个能打，她们的待遇才是更应该关注的，但话语权不高<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
