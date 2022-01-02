@@ -636,3 +636,40 @@ girls help girls现在听着好可怕，我都不敢看内容
 
 —— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  帽子戏法马夏尔  
+##### 72#       发表于 2022-1-2 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136542&amp;ptid=2045371" target="_blank">poppin 发表于 2022-01-02 13:06:02</a>
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的  v2.5.2 ...</blockquote>有，不过是女同事请我喝
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  gaayas  
+##### 73#       发表于 2022-1-2 14:32
+
+エモい
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  leans  
+##### 74#       发表于 2022-1-2 14:40
+
+纯度超标了，5毛，不能再多了
+
+*****
+
+####  大肥兔  
+##### 75#       发表于 2022-1-2 14:42
+
+之后在想有没有娘子军的企业，不要男性
+
