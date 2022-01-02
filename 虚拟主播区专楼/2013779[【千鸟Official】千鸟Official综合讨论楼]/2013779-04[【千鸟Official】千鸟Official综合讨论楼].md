@@ -4055,3 +4055,14 @@ syl 鸟p约的fufu已经准备联系工厂打样了，后续群里也会有通�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这spade效果太足了
 
+
+
+*****
+
+####  ba娜娜  
+##### 4922#       发表于 2022-1-3 01:01
+
+天哪，我第一次听到白白的御姐本音，苏死我了呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

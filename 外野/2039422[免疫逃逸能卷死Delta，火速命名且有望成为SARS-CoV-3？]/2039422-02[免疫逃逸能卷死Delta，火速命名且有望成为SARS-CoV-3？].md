@@ -15492,3 +15492,14 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 竟然没人关心这个? 真想扇国外疫苗吹脸上,去年mrna出来的时候是怎么吹的啊,什么防感染90%啦,你灭活才51% ...</blockquote>
 MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能还能当成是利好
 
+
+
+*****
+
+####  pushare  
+##### 2790#       发表于 2022-1-3 00:46
+
+贾维怂了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/4/9a7fd1f27e0322f93c1c494c9ea6aba3/20220103_004451.jpg" referrerpolicy="no-referrer">
+
