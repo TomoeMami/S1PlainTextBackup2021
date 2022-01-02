@@ -15169,3 +15169,22 @@ https://www.wgtn.ac.nz/news/2021/12/study-confirms-covid-19-pcr-saliva-test-at-l
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  Kanoya  
+##### 2763#       发表于 2022-1-2 11:12
+
+https://zhuanlan.zhihu.com/p/452464579
+
+Omicron毒力的瓜来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是看专业人士的专业数据吧
+
+简单总结一下就是，
+一，
+<img src="https://p.sda1.dev/4/132e08f080b1ac0a1532850e3905544f/IMG_20220102_110933.jpg" referrerpolicy="no-referrer">
+二，
+<img src="https://p.sda1.dev/4/a3feb11b83dce38ce63bae1984e10f19/IMG_20220102_111046.jpg" referrerpolicy="no-referrer">
+三，
+Omicron禽流感化
+
