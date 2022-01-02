@@ -15156,3 +15156,16 @@ Case counts ‘don’t reflect what they used to’, experts argue, as data sugg
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 2762#       发表于 2022-1-2 09:55
+
+https://www.wgtn.ac.nz/news/2021/12/study-confirms-covid-19-pcr-saliva-test-at-least-as-accurate-as-nasal-swabs
+
+口水的pcr测试和捅鼻子一样有效
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
