@@ -4263,3 +4263,34 @@ AE3DA790-3D87-4916-B904-FA210614D5AD.jpeg
 ----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
 贴吧现在也冷了吧，我发个贴也没多少人回
 
+
+
+*****
+
+####  lj205  
+##### 3437#       发表于 2022-1-2 14:21
+
+<img src="https://img.saraba1st.com/forum/202201/02/142043vovidpc8hohjij6v.png" referrerpolicy="no-referrer">
+
+<strong>52BDAF3A-3D29-4CC1-81AF-E012806B8C3F.png</strong> (474.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 14:20 上传
+
+跟前辈合照了，还炫耀第二次拥抱
+
+*****
+
+####  仟音一心  
+##### 3438#       发表于 2022-1-2 14:22
+
+<img src="https://p.sda1.dev/4/f504fd683fad771966f4141fdde0960b/IMG_CMP_197659515.jpeg" referrerpolicy="no-referrer">
+和爱奈前辈✨✨✨✨✨
+拍完才发现……
+和两年前第一次合照的时候用的同一个姿势😭
+すこ！！！！！！ 
+抱了两下😎
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

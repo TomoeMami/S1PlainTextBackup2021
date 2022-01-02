@@ -8669,3 +8669,15 @@ FIAVjrYVgAIhVv2.jpg
 辣鸡福袋算个屁复刻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算啊 你看楼上有人2宝了
 
+
+
+*****
+
+####  qixinno2  
+##### 86348#       发表于 2022-1-2 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136843&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-2 13:46</a>
+
+算啊 你看楼上有人2宝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人和人是不能一概而论的
+

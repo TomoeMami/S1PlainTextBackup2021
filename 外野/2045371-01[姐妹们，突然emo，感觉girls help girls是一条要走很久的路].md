@@ -609,3 +609,30 @@ girls help girls现在听着好可怕，我都不敢看内容
 
 感觉像爽文
 
+
+
+*****
+
+####  机吉斯卡  
+##### 69#       发表于 2022-1-2 14:05
+
+有点假，评论里也说了，各种常见爆点太齐全了
+
+*****
+
+####  昆古尼尔  
+##### 70#       发表于 2022-1-2 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136434&amp;ptid=2045371" target="_blank">万用红油精 发表于 2022-1-2 12:52</a></blockquote>你号马上没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  天使日又日  
+##### 71#       发表于 2022-1-2 14:17
+
+瞧这操作，不先把作者为首这群人解雇，这公司也离完蛋不远了
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
