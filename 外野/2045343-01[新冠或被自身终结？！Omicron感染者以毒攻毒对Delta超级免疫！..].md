@@ -900,3 +900,12 @@ N手屎💩
 
 某个游戏里的设定不就是这样，染病的人都挂了，就算该病原体灭绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  takami  
+##### 89#       发表于 2022-1-2 23:01
+
+让人想起有人打算用艾滋抵抗红斑狼疮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

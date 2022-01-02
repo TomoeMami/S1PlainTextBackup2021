@@ -8774,3 +8774,15 @@ FIAVjrYVgAIhVv2.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">日服什么时候能绑id  什么年代了还用引继码   出门用手机回家用ipad都做不到
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86358#       发表于 2022-1-2 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54141930&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-2 22:03</a>
+
+日服什么时候能绑id  什么年代了还用引继码   出门用手机回家用ipad都做不到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到关服都看不到的
+
