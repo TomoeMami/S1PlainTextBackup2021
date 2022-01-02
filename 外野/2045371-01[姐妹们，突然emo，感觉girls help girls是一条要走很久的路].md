@@ -1008,3 +1008,35 @@ yysy，这一看就是郭楠编的
 
 Emo是什么意思
 
+
+
+*****
+
+####  戒色中勿扰  
+##### 111#       发表于 2022-1-2 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138574&amp;ptid=2045371" target="_blank">顾渚紫笋 发表于 2022-1-2 17:21</a>
+……我的天呐，所以你们是真的没见过活的女人吗</blockquote>
+以“我的天呐”开头起码得写800字，你这也不合格啊。
+
+*****
+
+####  DEMOxN  
+##### 112#       发表于 2022-1-2 17:50
+
+一眼假
+
+*****
+
+####  gstsg  
+##### 113#       发表于 2022-1-2 17:54
+
+如果不是RPG，那你们这些被骗的也算求仁得仁。
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 114#       发表于 2022-1-2 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

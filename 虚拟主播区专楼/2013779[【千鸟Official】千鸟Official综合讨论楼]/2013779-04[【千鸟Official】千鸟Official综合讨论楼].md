@@ -3992,3 +3992,39 @@ syl 鸟p约的fufu已经准备联系工厂打样了，后续群里也会有通�
 录男确实陪伴了千鸟很久，但这里又没谁明白为什么变成这态度，这里也没1.0老粉 ...</blockquote>
 录男从九月开始就一直私信粉色提意见，大概就是直播吃饭吧唧嘴和天天放映厅的问题，然后粉色每次都回他提摩西小队，到陈珺那事儿爆发以后录男粉切黑了，这次生日回红地毯指责艾瑞思摆烂，然后被冲了
 
+
+
+*****
+
+####  rgauss  
+##### 4916#       发表于 2022-1-2 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138692&amp;ptid=2013779" target="_blank">tn_teana 发表于 2022-1-2 17:35</a>
+
+录男从九月开始就一直私信粉色提意见，大概就是直播吃饭吧唧嘴和天天放映厅的问题，然后粉色每次都回他提 ...</blockquote>
+一堆指导厨自我破防，没意思。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T型钉宫病毒  
+##### 4917#       发表于 2022-1-2 17:45
+
+周表（1月3日-1月9日）
+
+<img src="https://img.saraba1st.com/forum/202201/02/174430j1vqqaqqhv46y41s.jpg" referrerpolicy="no-referrer">
+
+<strong>28989f5a7824aa0fe7b**f481efcbb78b9f2d1jpg.jpg</strong> (351.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 17:44 上传
+
+*****
+
+####  逸yi  
+##### 4918#       发表于 2022-1-2 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138763&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2022-1-2 17:45</a>
+周表（1月3日-1月9日）</blockquote>
+什么橙色战神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

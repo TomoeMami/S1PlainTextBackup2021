@@ -10029,3 +10029,38 @@ Zsyl，德龙这压迫力太强了，E桌看到目前为止最乐
 笑死了 全是魔法牌局
 对a还怎么输啊 
 
+
+
+*****
+
+####  free  
+##### 9849#       发表于 2022-1-2 17:44
+
+[https://twitter.com/asanoakane/status/1477566584738746370](https://twitter.com/asanoakane/status/1477566584738746370)
+
+朝之茜自今日起无限期休止
+
+<img src="https://img.saraba1st.com/forum/202201/02/174406wba5p5uyajmymxc5.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (234.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/174406ije56oiqajhaed6r.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (234.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/174406hbdsjqvszr3bd4zp.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (170.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 17:44 上传
+
