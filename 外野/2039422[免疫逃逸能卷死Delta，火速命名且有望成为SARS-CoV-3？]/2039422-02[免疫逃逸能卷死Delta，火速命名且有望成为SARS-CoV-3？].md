@@ -15123,3 +15123,36 @@ Case counts ‘don’t reflect what they used to’, experts argue, as data sugg
 一直造势mild 最终的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">只要统计停下来了，一切都会好起来的
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 2759#       发表于 2022-1-2 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134942&amp;ptid=2039422" target="_blank">7776169 发表于 2022-1-2 09:03</a>
+只要统计停下来了，一切都会好起来的</blockquote>
+大日本领先版本
+
+*****
+
+####  母星  
+##### 2760#       发表于 2022-1-2 09:32
+
+<blockquote>eveshell 发表于 2022-1-2 01:51
+他就是在说疫苗帮助筛选强病毒传播的理论啊</blockquote>
+这哥们到现在都没能证明毒力越来越弱，以他这种锲而不舍的精神，可能他真的一条证据也没找到吧。
+
+
+
+*****
+
+####  smy20011  
+##### 2761#       发表于 2022-1-2 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135071&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-2 09:32</a>
+这哥们到现在都没能证明毒力越来越弱，以他这种锲而不舍的精神，可能他真的一条证据也没找到吧。 ...</blockquote>
+你但凡看一下我的表述，也找不出来我认为毒力越来越弱的观点。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

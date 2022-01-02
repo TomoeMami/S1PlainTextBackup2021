@@ -8576,3 +8576,49 @@ FIAVjrYVgAIhVv2.jpg
 突然发现狂娜宝具全屏了。。</blockquote>
 到今年周年能做到全员全屏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Humpy  
+##### 86341#       发表于 2022-1-2 09:07
+
+剪影是自由的所以应该有人去离谱地瞎画……之FGO2022预定实装英灵剪影篇。
+
+睡觉前画完的，但是当时太困了就只发在NGA了……现在醒了发出来。
+
+虽然都是描剪影，但是火纹基本都是历代人物+特定时节主题，再猜也不会太离谱。但FGO这个完全可以放飞想象，那当然是怎么离谱怎么胡编乱造怎么来了啊！
+
+所以这个是纯粹误导向的……肯定是要零命中的。
+
+但是那个小个子一定是拉拉肥！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+醒了一看发现昨晚困的时候大合集部分还有线条没擦干净，也懒得改了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/02/090712jo7ol5mqwqq7q99u.png" referrerpolicy="no-referrer">
+
+<strong>猜测全家福.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 09:07 上传
+
+*****
+
+####  qixinno2  
+##### 86342#       发表于 2022-1-2 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134238&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-2 01:41</a>
+
+突然发现狂娜宝具全屏了。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">芭娜娜今年能复刻下么
+
+*****
+
+####  khxooo  
+##### 86343#       发表于 2022-1-2 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134479&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-1-2 03:21</a>
+到今年周年能做到全员全屏吗</blockquote>
+看样子换了A爹后效率提高了，这个估计有可能。
+
