@@ -983,3 +983,24 @@ N手屎💩
 
 — from samsung SM-G781U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  lyflyflxf  
+##### 98#       发表于 2022-1-3 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144631&amp;ptid=2045343" target="_blank">martinium 发表于 2022-1-3 07:10</a>
+
+群体免疫学说的变异速度和病毒变异速度哪个更快？
+
+— from samsung SM-G781U1, Android 11 of S1 Next Goo ...</blockquote>
+新冠：我每分每秒都在变异，而你能保持日更吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kandc  
+##### 99#       发表于 2022-1-3 07:36
+
+这是第5波
+
