@@ -3992,3 +3992,15 @@ sayu和pay都有一个弟弟，nako有一个姐姐，nagi是哥哥 ...</blockquo
 
 其实鲤鱼会不会跨完年就直接去的青山家，然后在青山那一直待到昨晚才回家
 
+
+
+*****
+
+####  zylwz  
+##### 3414#       发表于 2022-1-2 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134764&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-2 08:04</a>
+
+跨年live星团部分的切片，看到有不少全开麦没有放cd之类的弹幕，就感觉真的挺多从星团开始看偶像团的[f:067 ...</blockquote>
+不过星团live都没有用角色音唱歌 这点上比起前辈们少了个束缚条件<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

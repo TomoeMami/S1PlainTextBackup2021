@@ -15058,3 +15058,54 @@ previous PCR positive test)</blockquote>
 — from Google Pixel 3 XL, Android 12 of S ...</blockquote>
 查了下 根据辉瑞的数据，CD8+T细胞所识别的80%的特征位点并没有收到Omicron毒株的突变影响，也就是说T细胞免疫依然应该是对Omicron毒株有效，这样即便接种了2针的疫苗的人群应该仍然具备对于重症和死亡的保护效力 得病也一样了
 
+
+
+*****
+
+####  烦死了  
+##### 2754#       发表于 2022-1-2 08:55
+
+来了来了， 美国专家质疑是否有必要继续统计新冠感染， 因为omicron 更加mild<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+一直造势mild 最终的目的其实是停止统计<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+US experts question whether counting Covid cases is still the right approach
+
+Case counts ‘don’t reflect what they used to’, experts argue, as data suggests Omicron is less severe but more contagious
+
+[https://www.theguardian.com/us-n ... case-counts-omicron](https://www.theguardian.com/us-news/2022/jan/01/us-covid-case-counts-omicron)
+
+*****
+
+####  liwangli1983  
+##### 2755#       发表于 2022-1-2 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134902&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-2 08:55</a>
+
+来了来了， 美国专家质疑是否有必要继续统计新冠感染， 因为omicron 更加mild
+
+一直造势mild 最终的 ...</blockquote>
+确实，反正已经准备躺平了，为啥还要把数字公布出来让大家心烦，歌舞升平，醉生梦死不好吗
+
+*****
+
+####  smy20011  
+##### 2756#       发表于 2022-1-2 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54134902&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-2 08:55</a>
+来了来了， 美国专家质疑是否有必要继续统计新冠感染， 因为omicron 更加mild
+
+一直造势mild 最终的 ...</blockquote>
+感觉很多人都不测了，不可能只要嗓子疼就去测pcr啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2757#       发表于 2022-1-2 09:02
+
+另外，如果真的说新冠可以潜伏几个月的话，西安封城不得封到明年？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
