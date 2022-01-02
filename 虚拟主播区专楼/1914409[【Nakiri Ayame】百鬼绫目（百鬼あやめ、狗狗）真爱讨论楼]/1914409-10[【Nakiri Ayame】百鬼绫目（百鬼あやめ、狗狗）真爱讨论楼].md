@@ -3372,3 +3372,13 @@ Subaru...
 又在自己偷偷狂练不播，已经看透绫总的作战计划了
 马车杯比赛日之前不播-&gt;比赛日夺冠狂收百鬼组SC-&gt;继续不播
 
+
+
+*****
+
+####  Fami水  
+##### 13837#       发表于 2022-1-2 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把马车杯换成宝可杯这个猜想还有一点成立的可能性
+ 马车应该纯摆烂了吧，不垫底就算成功
+

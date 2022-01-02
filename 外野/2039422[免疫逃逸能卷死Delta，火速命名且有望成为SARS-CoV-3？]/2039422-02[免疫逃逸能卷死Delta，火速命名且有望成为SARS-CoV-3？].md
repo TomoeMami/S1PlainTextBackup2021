@@ -15407,3 +15407,22 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 这种要对比没接种的感染情况吧，现在西安感染的很多人也都接种疫苗了吧，不能说疫苗没用吧 ...</blockquote>
 表上有啊,没接种的反而不易感染,笑拉
 
+
+
+*****
+
+####  扎克远山  
+##### 2782#       发表于 2022-1-2 20:43
+
+谁要是再连续回复那个字母+数字的ID那我只能连你也一起拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  charse2r  
+##### 2783#       发表于 2022-1-2 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54140688&amp;ptid=2039422" target="_blank">扎克远山 发表于 2022-1-2 20:43</a>
+
+谁要是再连续回复那个字母+数字的ID那我只能连你也一起拉黑了</blockquote>
+完了,我也是字母+数字
+

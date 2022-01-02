@@ -848,3 +848,19 @@ N手屎💩
 那再用o做疫苗呢</blockquote>
 以毒攻毒是吧
 
+
+
+*****
+
+####  dllplayer  
+##### 84#       发表于 2022-1-2 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136084&amp;ptid=2045343" target="_blank">armedangel 发表于 2022-1-2 12:09</a>
+
+拍教主有提过这事，那边有来源。
+
+他那篇我文科脑残看不懂，好像是本来打了2针的，得了o记之后对德塔有抗 ...</blockquote>
+拍教主那个文是直接反向实锤了德奥合并(实际上应该叫两大病毒伺候一个人)
+
+他都说了只文字的艺术...该报忧的反而因为记者艹了科学家的ma而变成报喜了...
+
