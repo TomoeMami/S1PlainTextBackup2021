@@ -770,3 +770,23 @@ omicron只是在叠dot，输出还要靠ADE
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kanoya  
+##### 75#       发表于 2022-1-2 18:39
+
+<img src="https://p.sda1.dev/4/911f0ce5163f47de46cf8f3af9ee5d6c/IMG_CMP_44256738.jpeg" referrerpolicy="no-referrer">
+
+终结是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以色列医疗系统濒临崩溃是怎么回事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novem  
+##### 76#       发表于 2022-1-2 18:42
+
+O比D弱就可以说温和吗。。。当年的原版岂不是就是弟弟
+

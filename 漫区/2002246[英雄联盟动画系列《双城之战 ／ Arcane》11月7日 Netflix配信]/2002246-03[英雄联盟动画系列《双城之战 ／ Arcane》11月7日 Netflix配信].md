@@ -880,3 +880,12 @@ EP.7没有拿到视觉效果之类提名挺可惜了，整体来说，音乐没�
 
 这片在楼里大家都吹成AOTY，然而年度评选楼里投票给双城的人意外的不算多啊
 
+
+
+*****
+
+####  Siran_China  
+##### 3071#       发表于 2022-1-2 18:39
+
+NGA年度动画选双城的人也不多，可能大家觉得这片并没有那么惊艳吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
