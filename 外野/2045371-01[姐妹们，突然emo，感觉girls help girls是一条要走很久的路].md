@@ -872,3 +872,15 @@ yysy，这一看就是郭楠编的
 小仙女压根就写不出这么通顺的东西</blockquote>
 女人这种情绪动物根本写不出这么冷静的东西才对
 
+
+
+*****
+
+####  大肥兔  
+##### 97#       发表于 2022-1-2 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137991&amp;ptid=2045371" target="_blank">66666 发表于 2022-1-2 16:12</a>
+
+特种服务业全女人的多了，我说的是美容美甲之类的，别想歪</blockquote>
+是这样，让男性来做也不放心，特别是皮肤护理之类的。我说的是it之类的企业
+

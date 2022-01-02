@@ -4524,3 +4524,82 @@ A140C7CC-3045-4ACC-A48F-6051029852F8.jpeg
 
 <img src="https://img.saraba1st.com/forum/202201/02/161621ef0fj7nhmqmuggdg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 3452#       发表于 2022-1-2 16:28
+
+鲤鱼我求求你了给pay子开个自拍速成班吧
+
+<img src="https://img.saraba1st.com/forum/202201/02/162806tquqqctuyc8jouzp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 16:28 上传
+
+*****
+
+####  chenflyyy  
+##### 3453#       发表于 2022-1-2 16:28
+
+ 本帖最后由 chenflyyy 于 2022-1-2 16:31 编辑 
+
+相比之下两位年下跟前辈的合照就比较少了，sayu只有一张和杏树的，pay只有一张sma的，还是太年轻不敢贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3454#       发表于 2022-1-2 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138104&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-2 16:28</a>
+鲤鱼我求求你了给pay子开个自拍速成班吧</blockquote>
+但是这不是佩佩拍的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3455#       发表于 2022-1-2 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138104&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-2 16:28</a>
+鲤鱼我求求你了给pay子开个自拍速成班吧</blockquote>
+这几个光线都是怎么回事？
+
+*****
+
+####  starring  
+##### 3456#       发表于 2022-1-2 16:40
+
+小宫和pay长得有点像
+
+*****
+
+####  stygian  
+##### 3457#       发表于 2022-1-2 16:42
+
+没考虑打光，没开滤镜，拉伸也不开俩人上身显得贼壮，也没后期加工<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这还是和前辈合影<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  努斯万克  
+##### 3458#       发表于 2022-1-2 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137864&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-2 15:59</a>
+
+居然有画这幕的！</blockquote>
+这图我怎么没看懂呢
+
+*****
+
+####  仟音一心  
+##### 3459#       发表于 2022-1-2 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138235&amp;ptid=2036367" target="_blank">努斯万克 发表于 2022-1-2 16:43</a>
+这图我怎么没看懂呢</blockquote>
+这有什么没懂的？就单纯是昨晚Liyuu在Nagi家的意思啊。
+
