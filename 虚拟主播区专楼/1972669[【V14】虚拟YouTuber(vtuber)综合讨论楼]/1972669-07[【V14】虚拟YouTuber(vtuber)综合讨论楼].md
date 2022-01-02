@@ -10132,3 +10132,16 @@ Zsyl，德龙这压迫力太强了，E桌看到目前为止最乐
 想问一下这个扑克主台观战右边的这个手牌情况是这个游戏观战自带的还是这次专门做的？要是是用这游戏的api ...</blockquote>
 我在黄兔子那边也有见过这个手牌情况，大概就是游戏自带的或者插件之类
 
+
+
+*****
+
+####  fastary  
+##### 9857#       发表于 2022-1-2 21:26
+
+虽然我对卖腐是工业糖精都能吃得很开心但是听几天vox饭撒确实有点腻味了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">（没有说不好的意思）
+
+我还是喜欢矜持一点的，至少读sc能是类似回应读棉花糖而不是饭撒的氛围<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说en男都是全职的吧，这直播频率我看惯黑客之后感觉啥也补不过来光在b靠推荐吃点切片就饱了（
+

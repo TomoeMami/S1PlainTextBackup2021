@@ -4046,3 +4046,12 @@ syl 鸟p约的fufu已经准备联系工厂打样了，后续群里也会有通�
 
 白噪音咋被薄纱了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 4921#       发表于 2022-1-2 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这spade效果太足了
+

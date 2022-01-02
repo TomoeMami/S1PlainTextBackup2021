@@ -10612,3 +10612,21 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 名为将棋实际上是碰碰棋（
 
+
+
+*****
+
+####  T_Hb  
+##### 7220#       发表于 2022-1-2 21:27
+
+ 本帖最后由 T_Hb 于 2022-1-2 21:36 编辑 
+<blockquote>​親戚の子供とお姉さんみたいな空気感に</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“我要和你每天一起玩这个”
+
+*****
+
+####  路人庚  
+##### 7221#       发表于 2022-1-2 21:28
+
+你咩：是一个没朋友一起也能玩的游戏呢
+
