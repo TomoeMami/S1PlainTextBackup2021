@@ -952,3 +952,24 @@ yysy，这一看就是郭楠编的
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  吐槽专用马甲  
+##### 105#       发表于 2022-1-2 17:08
+
+ 本帖最后由 吐槽专用马甲 于 2022-1-2 17:13 编辑 
+
+招人时不看性格？不看社畜度？不看看到底适不适合这个岗位能不能长期干下去，因为有个逼就优先录取和因为有个屌就优先录取的公司有什么本质区别吗？选人原则有问题脑子进水了找不到合适的人还惹来一堆麻烦，就他妈活该。
+
+*****
+
+####  顾渚紫笋  
+##### 106#       发表于 2022-1-2 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138061&amp;ptid=2045371" target="_blank">sagajytc 发表于 2022-1-2 16:21</a>
+
+女人这种情绪动物根本写不出这么冷静的东西才对</blockquote>
+……我的天呐，所以你们是真的没见过活的女人吗
+
