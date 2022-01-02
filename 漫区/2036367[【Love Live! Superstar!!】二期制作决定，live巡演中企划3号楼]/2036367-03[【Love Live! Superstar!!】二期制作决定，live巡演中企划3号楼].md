@@ -5306,3 +5306,24 @@ B630CD9A-61C3-4B2D-95D2-B523D2AE4446.jpeg
 
 所以说是什么视频来自: iPhone客户端
 
+
+
+*****
+
+####  player3960  
+##### 3506#       发表于 2022-1-2 23:50
+
+让鲤鱼发点别的贴贴照片，大家就当无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  任天索尼子  
+##### 3507#       发表于 2022-1-2 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54143022&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-1-2 23:37</a>
+
+所以说是什么视频</blockquote>
+鲤鱼带着其他几个来了一圈自拍。
+
