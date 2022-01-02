@@ -4026,3 +4026,21 @@ CD还是会掐声线的 最明显的就是day1
 
 顺便一提这首的live版就比cd版要好听 
 
+
+
+*****
+
+####  仟音一心  
+##### 3417#       发表于 2022-1-2 10:58
+
+升级版
+
+5FD31038-CA15-4CB7-9162-7BA1965CE5B5.jpeg
+(131.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 10:58 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/105855kill5650l59aylly.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
