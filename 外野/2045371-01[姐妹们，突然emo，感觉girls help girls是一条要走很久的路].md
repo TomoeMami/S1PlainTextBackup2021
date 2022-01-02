@@ -973,3 +973,38 @@ yysy，这一看就是郭楠编的
 女人这种情绪动物根本写不出这么冷静的东西才对</blockquote>
 ……我的天呐，所以你们是真的没见过活的女人吗
 
+
+
+*****
+
+####  剑鹰  
+##### 107#       发表于 2022-1-2 17:34
+
+内容真假不论，girls help girls本身不就是个想笑话么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L.L  
+##### 108#       发表于 2022-1-2 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138683&amp;ptid=2045371" target="_blank">剑鹰 发表于 2022-1-2 17:34</a>
+
+内容真假不论，girls help girls本身不就是个想笑话么</blockquote>
+确实..
+
+*****
+
+####  敖轩  
+##### 109#       发表于 2022-1-2 17:38
+
+资本家的走狗就好好做资本家的走狗，非喜欢根据性别来臆想共同体。你把打工人当集美，集美看你就像二鬼子。<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  圣斗士美羽  
+##### 110#       发表于 2022-1-2 17:39
+
+Emo是什么意思
+

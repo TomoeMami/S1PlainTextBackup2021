@@ -4644,3 +4644,26 @@ sayu这推特关联词一个比一个迷惑，还好只是同名而已，这抽�
 没看出谁是谁</blockquote>
 你看一下昨晚的照片，衣服都能对应上
 
+
+
+*****
+
+####  Karin11974  
+##### 3464#       发表于 2022-1-2 17:32
+
+看这几天水团的live才注意到，爱喵wink好像完全不用腮上的肌肉，真就只是一边眼皮闭上，另一边完全不受影响，跟二次元纸片人一模一样，而且几乎每次她的镜头都有wink，看多了甚至感觉有点渗人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  musicat  
+##### 3465#       发表于 2022-1-2 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54138222&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-2 16:42</a>
+
+没考虑打光，没开滤镜，拉伸也不开俩人上身显得贼壮，也没后期加工
+
+这还是和前辈合影 ...</blockquote>
+而且镜头畸变看起来虎背熊腰的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
