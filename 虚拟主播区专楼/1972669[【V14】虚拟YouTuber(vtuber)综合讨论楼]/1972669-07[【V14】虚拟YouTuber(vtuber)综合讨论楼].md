@@ -9991,3 +9991,14 @@ EN真的是让人找回了看虹的初心
 
 这个德州比赛突出一个鱼塘大乱斗
 
+
+
+*****
+
+####  Ketestrait  
+##### 9846#       发表于 2022-1-2 15:12
+
+<blockquote>Thank you for all you do, Selen, Nijisanji is very lucky to have you. </blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer"> 
+

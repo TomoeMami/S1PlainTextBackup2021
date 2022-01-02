@@ -716,3 +716,14 @@ omicron只是在叠dot，输出还要靠ADE
 
 我在大陆的同学就鼓励他在北美的同学趁着年轻赶紧感染omicron，获得最全面的免疫记忆
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 69#       发表于 2022-1-2 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54137285&amp;ptid=2045343" target="_blank">whzfjk 发表于 2022-1-2 14:44</a>
+我在大陆的同学就鼓励他在北美的同学趁着年轻赶紧感染omicron，获得最全面的免疫记忆 ...</blockquote>
+听听就不太对的样子……
+

@@ -698,3 +698,31 @@ girls help girls现在听着好可怕，我都不敢看内容
 
 不装微博打不开链接<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Encyclopedia  
+##### 79#       发表于 2022-1-2 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136494&amp;ptid=2045371" target="_blank">小拖 发表于 2022-1-2 12:59</a>
+
+公司里的法务、hr、财务、管理层几乎全是女孩子
+
+CEO自己傻逼吧</blockquote>
+CEO是不是自己也是女孩子啊<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  観測者  
+##### 80#       发表于 2022-1-2 15:14
+
+反串滚啊，郭蝻味儿都溢出来了…HR无论男女，都已经是老板的形状了，人均精资，女HR整女人可能比男人更狠。性别矛盾和劳资矛盾，哪个更重要不用多说吧
+
+*****
+
+####  black199  
+##### 81#       发表于 2022-1-2 15:21
+
+居然没把人事裁了 多半是rpg
+
