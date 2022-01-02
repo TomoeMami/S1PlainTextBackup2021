@@ -15360,3 +15360,27 @@ JUST IN - 89.7% of people infected with [#Omicron](https://twitter.com/hashtag/O
 
 2022-1-2 19:19 上传
 
+
+
+*****
+
+####  羽川易  
+##### 2778#       发表于 2022-1-2 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139616&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-2 19:20</a>
+
+竟然没人关心这个? 真想扇国外疫苗吹脸上,去年mrna出来的时候是怎么吹的啊,什么防感染90%啦,你灭活才51% ...</blockquote>
+这种要对比没接种的感染情况吧，现在西安感染的很多人也都接种疫苗了吧，不能说疫苗没用吧
+
+*****
+
+####  lyflyflxf  
+##### 2779#       发表于 2022-1-2 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139715&amp;ptid=2039422" target="_blank">羽川易 发表于 2022-1-2 19:29</a>
+
+这种要对比没接种的感染情况吧，现在西安感染的很多人也都接种疫苗了吧，不能说疫苗没用吧 ...</blockquote>
+疫苗不是没用，而是没西方吹的那么神而已
+
+我记得这楼里有过对比，结果是打了疫苗的人感染O的比例比感染D的高
+
