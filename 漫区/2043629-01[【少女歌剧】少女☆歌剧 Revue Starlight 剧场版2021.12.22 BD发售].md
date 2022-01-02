@@ -5363,3 +5363,44 @@ B站动态看见一个观影团连观影特典都整出来了
 
 2022-1-2 16:57 上传
 
+
+
+*****
+
+####  MASKA-1  
+##### 416#       发表于 2022-1-2 19:04
+
+一部剧场版，让战吧重新审视少歌，将华恋送上扭曲的王座<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/02/190329eq43o5rz5hou003a.png" referrerpolicy="no-referrer">
+
+<strong>X%1IL)WS~WCXV_[MD8FC)KN.png</strong> (85.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/190337sv4qi9ap5zmav9wn.png" referrerpolicy="no-referrer">
+
+<strong>H95C8)L_L7AN%M1(6PTGOWA.png</strong> (85.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/190346i4w4f2393f4h8t1f.png" referrerpolicy="no-referrer">
+
+<strong>_JS1RS4V(H4SFWCOE[FD2KB.png</strong> (66.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/02/190352zmskrhcbxezkc6r6.png" referrerpolicy="no-referrer">
+
+<strong>]%9]9][59}()~SS{48OZKKH.png</strong> (111.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-2 19:03 上传
+

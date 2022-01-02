@@ -10064,3 +10064,14 @@ Zsyl，德龙这压迫力太强了，E桌看到目前为止最乐
 
 2022-1-2 17:44 上传
 
+
+
+*****
+
+####  真飞鸟i  
+##### 9850#       发表于 2022-1-2 18:52
+
+一年一次 不过变化真的大<img src="https://p.sda1.dev/4/dd500f245eb907982aeaf8611e5a7417/IMG_CMP_14086184.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -889,3 +889,28 @@ EP.7没有拿到视觉效果之类提名挺可惜了，整体来说，音乐没�
 
 NGA年度动画选双城的人也不多，可能大家觉得这片并没有那么惊艳吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qxs  
+##### 3072#       发表于 2022-1-2 18:46
+
+ 本帖最后由 qxs 于 2022-1-2 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139096&amp;ptid=2002246" target="_blank">名津流 发表于 2022-1-2 18:23</a>
+
+这片在楼里大家都吹成AOTY，然而年度评选楼里投票给双城的人意外的不算多啊 ...</blockquote>
+单说看过的人不就算多吧，bgm上计程车小五千点评人数，arcane连一半都摸不到，英雄联盟四个字就劝退一波了（大概）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  有优越感的人mk2  
+##### 3073#       发表于 2022-1-2 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139221&amp;ptid=2002246" target="_blank">Siran_China 发表于 2022-1-2 18:39</a>
+
+NGA年度动画选双城的人也不多，可能大家觉得这片并没有那么惊艳吧</blockquote>
+挺正常的，腾讯视频独播，又是游戏改，所以本身这片子在日漫圈子里看过的人不算特别多，日漫圈子里投票投不过也正常，而且nga讨论这个片子主要是在影视区不是在日漫区
+
