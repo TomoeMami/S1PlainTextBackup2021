@@ -3932,3 +3932,16 @@ syl 她应该好几年前的ow云玩家了
 
 白白 内心gn,又是御姐音平板，rp傻子还挺厉害，还穿旗袍，想象不出来
 
+
+
+*****
+
+####  人民de救星  
+##### 4912#       发表于 2022-1-2 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136670&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-1-2 13:23</a>
+白白 内心gn,又是御姐音平板，rp傻子还挺厉害，还穿旗袍，想象不出来</blockquote>
+表面上是寓公军阀的傻头傻脑姨太太 实际上暗地里是叱咤虚拟上海滩的青帮大姐头<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

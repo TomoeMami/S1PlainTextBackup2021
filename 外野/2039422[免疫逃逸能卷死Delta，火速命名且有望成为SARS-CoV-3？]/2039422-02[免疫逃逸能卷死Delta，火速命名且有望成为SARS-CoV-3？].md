@@ -15290,3 +15290,45 @@ b1.640.2好眼熟，是不是法国本土株？
 
 该屏蔽的屏蔽一下不行吗
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2773#       发表于 2022-1-2 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135065&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-2 09:31</a>
+大日本领先版本</blockquote>
+美国日本化的最新例证<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2774#       发表于 2022-1-2 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136562&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-2 13:08</a>
+你这点说得倒是正确。万一omicron哪天真进来了，那么大规模检测的方式一定需要做出改变（至少不能整个小 ...</blockquote>
+很多人得omicron的主要症状是嗓子疼和流鼻涕，隐蔽性太高，不能只要有症状就去测核酸吧。。
+发一大堆快筛有没有用？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  lyflyflxf  
+##### 2775#       发表于 2022-1-2 13:54
+
+某个病人凭一己之力贡献了最近20页中至少三分之一的噪音
+
+话说在这坛子疯狂灌水违规吗？
+
+*****
+
+####  66666  
+##### 2776#       发表于 2022-1-2 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136891&amp;ptid=2039422" target="_blank">lyflyflxf 发表于 2022-1-2 13:52</a>
+
+美国日本化的最新例证</blockquote>
+无限量QE就很像日本的干法
+

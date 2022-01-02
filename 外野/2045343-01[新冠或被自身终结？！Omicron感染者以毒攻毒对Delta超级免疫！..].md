@@ -678,3 +678,14 @@ O能传播老鼠我之前知道了，能传禽类还是才知道。
 然而转阴后，新冠病毒会持续在人体内包括大脑等任意器官大量繁殖，最终可能以脑出血、心肌梗死等貌似跟新冠 ...</blockquote>
 加入这场伟大的进化吧（不是
 
+
+
+*****
+
+####  lyflyflxf  
+##### 65#       发表于 2022-1-2 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136376&amp;ptid=2045343" target="_blank">琉璃 发表于 2022-1-2 12:44</a>
+说实话现在的迹象来看，Omicron真的已经快达到重新命名为新新冠的标准了。 ...</blockquote>
+WHO：先把希腊字母用完吧
+

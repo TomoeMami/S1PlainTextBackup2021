@@ -1,0 +1,611 @@
+
+
+*****
+
+####  江涵  
+##### 1#       楼主       发表于 2022-1-2 12:49
+
+ 本帖最后由 江涵 于 2022-1-2 13:21 编辑 
+
+转自微博
+[https://m.weibo.cn/1945877074/4720927873435375](https://m.weibo.cn/1945877074/4720927873435375)
+
+[投稿]姐妹们，突然emo，感觉girls help girls是一条要走很久的路[泪]我在互联网外企作为法务实习五个多月了，公司里的法务、hr、财务、管理层几乎全是女孩子，我们在招聘、开除、平时工作中努力给女孩子安排了很多福利，但这五个月里遇到了很多事情，以至于年底这波互联网裁员潮里开除了很多女性。
+
+1/有个项目的技术团队，18个人里招了5位女性，全是未孕的。不知道姐妹们能不能理解这个结果后面包含着hr小姐姐们多少的努力，她们常开玩笑说要让妇女撑起公司的半片天。结果这5位女性里有3位在入职的半年内怀孕了，其中一位甚至入职前就怀孕了但做了隐瞒。此外，她们过度利用劳动法对孕妇的保护拿了很多钱还不干活甚至不来公司，项目计划被打乱，部门负责人大发怒火。最后开会决定辞退她们的时候，我们四个女孩子在会议室里面面相觑，最后还是给了超过法定额度的赔偿金。写辞退通知书的时候我都想哭了，有一种被背叛的感觉，招聘的时候我们已经打开天窗说亮话了，但她们却不以为意拿着尚方宝剑随意飞舞。
+
+2/公司技术人员偏多，所以男性比女性多，大家都默认好事女士优先，苦力男士先上，但这也只是出于同事间的礼貌罢了，结果有一些女孩子仗着性别优势指使男同事做一些超过工作需求甚至有点违规的事情，比如超过正常同事关系的频繁要求男同事给她们点下午茶、下楼买吃的、接水倒垃圾等，最后引起了一位员工的主动离职，惊动CEO。
+
+3/以事件一为根本，事件二为导火线，在年末的辞退大潮里辞退了很多女性，我们有些愧疚感觉没有保护好她们，所以在公司预算缩紧的前提下我们还是给了超过法定额度的赔偿金，全程好商好量。但是有一位姐姐，在和我们确认好离职日期后谎称回老家了不方便回来办手续，多拖了一个月，这一个月里每天来公司楼下上下班打卡，和一位未被辞退的姐姐串通形成虚假工作记录。昨天来要求这一个月的工资要给她;辞退日期要求确认到昨天，导致赔偿系数从1.5变成2;五险一金要给她交到她找到新工作为止。这一个月里hr姐姐每天都在问她回来了嘛，她每天都撒谎没回来。所以当昨天她说她这一个月都在工作的时候，我看hr姐姐都懵了。真要劳动仲裁我们也可以，但又觉得一个女孩子年底被辞退确实不容易。最后我们满足了她除了五险一金以外所有的要求(虚假缴纳犯法的)。然后hr姐姐哭了一个晚上，她要是一开始提出来我们也很有可能会同意，这一个月的欺骗是建立在hr姐姐对她的温柔和容忍上的。
+
+我们本来在年货的基础上给女性还有一份额外的小礼物，这个计划现在已经没有人跟进了，大家都默认从今以后男女一视同仁了。我今天也听见hr姐姐在面试后说“她刚结婚诶，这个考虑吗？”我突然就觉得只有没怎么吃过生活的苦的女孩在搭建理想社会，仿佛精卫填海般在浑水里搭独木桥，但有着利益需求的其他女孩目标明确的在这独木桥上狂奔，根本不管踩踏后桥体的坍塌。我好怕自己以后成为一个在辞退其他女孩子的时候心如止水的人啊。
+
+*****
+
+####  Nanachi  
+##### 2#       发表于 2022-1-2 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">个案损害女性形象，警告一次
+
+<img src="https://p.sda1.dev/4/31f3baaa230b799d85852b9a2e128359/IMG_CMP_108854218.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JAD-AL50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  万用红油精  
+##### 3#       发表于 2022-1-2 12:52
+
+郭楠收收味
+
+*****
+
+####  qzy741147  
+##### 4#       发表于 2022-1-2 12:52
+
+这味太对了
+
+*****
+
+####  火箭布雷器  
+##### 5#       发表于 2022-1-2 12:53
+
+去国企不就行了。
+
+搞女权还要去私企，初中政治课都睡觉了吧。
+
+*****
+
+####  巨灵巴谛魔  
+##### 6#       发表于 2022-1-2 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kaiser-william  
+##### 7#       发表于 2022-1-2 12:55
+
+这违反职业道德吧，特别是超过规定给福利那块
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  耕者有其田  
+##### 8#       发表于 2022-1-2 12:55
+
+徐波点了个赞。
+
+*****
+
+####  你好了吗吃饭了m  
+##### 9#       发表于 2022-1-2 12:55
+
+首先得让女性放弃婚姻或者制造婚姻门槛才行，不然女性始终无法自强。
+
+*****
+
+####  yyhhp  
+##### 10#       发表于 2022-1-2 12:55
+
+ 反串滚呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱尔米娜  
+##### 11#       发表于 2022-1-2 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">国企和政府单位可以养这些孕期妇女，你们企业家怎么不可以养，HR集美的觉悟就这？这次我站被辞退的女孩子们【手动doge】
+
+*****
+
+####  ESAKA!!!!  
+##### 12#       发表于 2022-1-2 12:56
+
+这还算是有底线的了，在这种狂潮里面的结局就是被没底线的直接搞破防
+
+*****
+
+####  eveshell  
+##### 13#       发表于 2022-1-2 12:58
+
+人事这么乱搞，CEO没震怒？
+
+*****
+
+####  小拖  
+##### 14#       发表于 2022-1-2 12:59
+
+公司里的法务、hr、财务、管理层几乎全是女孩子
+CEO自己傻逼吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星野结衣  
+##### 15#       发表于 2022-1-2 13:00
+
+依据人事不干人事的rpg，建议都考公上岸
+
+*****
+
+####  darkclouds  
+##### 16#       发表于 2022-1-2 13:00
+
+这么搞，人事怎么还没滚蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lage  
+##### 17#       发表于 2022-1-2 13:01
+
+建议转发给她们老板看看
+
+*****
+
+####  lage  
+##### 18#       发表于 2022-1-2 13:02
+
+<blockquote>你好了吗吃饭了m 发表于 2022-1-2 12:55
+首先得让女性放弃婚姻或者制造婚姻门槛才行，不然女性始终无法自强。</blockquote>
+本质还是得人造子宫，不然既要，也要，就两样都拿不到
+
+*****
+
+####  wk199388  
+##### 19#       发表于 2022-1-2 13:02
+
+感觉是以反串的方式揭露一些现象, 跟女拳小作文的语气不太相似.
+
+*****
+
+####  archcross  
+##### 20#       发表于 2022-1-2 13:02
+
+啊这，发什么微博，不应该先去物理清理一下婚驴吗
+
+*****
+
+####  随风来去  
+##### 21#       发表于 2022-1-2 13:04
+
+那个拖一个月楼下考勤那个，直接查监控，旷工开除，一分钱不赔
+
+*****
+
+####  ArowRocher  
+##### 22#       发表于 2022-1-2 13:04
+
+所以人造子宫对男女都好
+
+*****
+
+####  laaaaaaag  
+##### 23#       发表于 2022-1-2 13:05
+
+之前字节辞退一堆hr的新闻有后续🐴
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
+*****
+
+####  poppin  
+##### 24#       发表于 2022-1-2 13:06
+
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  moonlitocean  
+##### 25#       发表于 2022-1-2 13:07
+
+ 本帖最后由 moonlitocean 于 2022-1-2 13:14 编辑 
+
+嗯，安排福利没问题，1这个也是不可避免的没问题
+
+但是从 2 3 看就是纯粹的公司管理问题吧，分活没有做到端平，而且从3看，这管理宽松得厉害啊
+
+*****
+
+####  sheshiro  
+##### 26#       发表于 2022-1-2 13:08
+
+你戴上hr的金箍就不再是个集美了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 是挞不是派| + 1||
+| 打怪兽| + 1|草|
+
+查看全部评分
+
+*****
+
+####  冯闵斯特伯格  
+##### 27#       发表于 2022-1-2 13:09
+
+支持，集美们帮助工人集美痛击资本家
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  没什么bu好  
+##### 28#       发表于 2022-1-2 13:09
+
+在微博发这个  第一条不会被喷死？
+
+----发送自 [Xiaomi Mi Note 3,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  いみじくも萌二  
+##### 29#       发表于 2022-1-2 13:11
+
+girls help girls现在听着好可怕，我都不敢看内容
+
+*****
+
+####  毒菇  
+##### 30#       发表于 2022-1-2 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这时候就不怀疑是小作文了？
+
+
+
+*****
+
+####  戒色中勿扰  
+##### 31#       发表于 2022-1-2 13:13
+
+都是假的  人类不会干出这么不要脸的事
+
+*****
+
+####  ftqwer1  
+##### 32#       发表于 2022-1-2 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136591&amp;ptid=2045371" target="_blank">毒菇 发表于 2022-1-2 13:13</a>
+
+这时候就不怀疑是小作文了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">都可以信都可以信。别人都抛开事实不谈了。
+
+*****
+
+####  枫林不见  
+##### 33#       发表于 2022-1-2 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136542&amp;ptid=2045371" target="_blank">poppin 发表于 2022-1-2 13:06</a>
+
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些O人的思维逻辑跟普通人是不一样的，接触过就明白了
+
+*****
+
+####  利维亚的白狼  
+##### 34#       发表于 2022-1-2 13:16
+
+对共同体叙事一向无感。硬要给人分门别类的话，我更喜欢用“好人”、“正常人”、“**”的标签。
+
+*****
+
+####  古明地藏  
+##### 35#       发表于 2022-1-2 13:16
+
+。
+
+ 本帖最后由 古明地藏 于 2022-1-2 13:17 编辑 
+
+想来还是做打工人比较苦闷，开会决定了，不是自己决定而是大家决定必须辞退姐妹
+
+开公司做个资本家，想来就不会有这种烦恼。手下hr想辞退姐妹？那你就可以去准备简历了
+
+*****
+
+####  卡爹  
+##### 36#       发表于 2022-1-2 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136542&amp;ptid=2045371" target="_blank">poppin 发表于 2022-1-2 13:06</a>
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+真的有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1950A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  34789  
+##### 37#       发表于 2022-1-2 13:16
+
+这链接根本打不开啊……
+
+微博上怎么找到呢（
+
+*****
+
+####  圈量子  
+##### 38#       发表于 2022-1-2 13:18
+
+建议把这微博转给公司上层先把这些不按规定办事的逼开了
+
+*****
+
+####  SaberNero  
+##### 39#       发表于 2022-1-2 13:19
+
+男性自己天天竞争都卷疯了，笑嘻<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zteacally  
+##### 40#       发表于 2022-1-2 13:19
+
+ 本帖最后由 zteacally 于 2022-1-2 13:29 编辑 
+
+正月里来正月正，砸块砖头进粪坑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  66666  
+##### 41#       发表于 2022-1-2 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136591&amp;ptid=2045371" target="_blank">毒菇 发表于 2022-1-2 13:13</a>
+
+这时候就不怀疑是小作文了？</blockquote>
+毫不意外，职场中的垃圾比例跟性别没什么关系
+
+干的跟狗屎一样，谈薪水要钱时候就这个那个的女人多的是，而且跟男人不一样，女人在职场里撒泼的比例非常高，总归都是全天下负我，我不负天下人
+
+*****
+
+####  妄想中毒  
+##### 42#       发表于 2022-1-2 13:23
+
+我有一招，以后公司招人把招到的所有未婚或者已婚未育的女员工都集中到一个部门办公好不好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  firstdream  
+##### 43#       发表于 2022-1-2 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136623&amp;ptid=2045371" target="_blank">34789 发表于 2022-1-2 13:16</a>
+
+这链接根本打不开啊……
+
+微博上怎么找到呢（</blockquote>
+多了个冒号，去掉就行
+
+*****
+
+####  MAO_DREAMER  
+##### 44#       发表于 2022-1-2 13:25
+
+怎么从来没见过boys help boys<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 45#       发表于 2022-1-2 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  L.L  
+##### 46#       发表于 2022-1-2 13:27
+
+ 本帖最后由 L.L 于 2022-1-2 13:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得是CEO S13，财务 女性为主正常，但法务+HR+管理层都还是女性为主很容易不就成这样了.应该从根本上解决问题.
+
+*****
+
+####  丸古秀人  
+##### 47#       发表于 2022-1-2 13:30
+
+<blockquote>MAO_DREAMER 发表于 2022-1-2 13:25
+怎么从来没见过boys help boys</blockquote>
+管理层多用gay可破
+
+*****
+
+####  oyss  
+##### 48#       发表于 2022-1-2 13:31
+
+造假考勤还能正常要到补偿,
+
+这资本家当的,既盘算女员工怀孕小算盘,又愿意当大头随便让人薅羊毛?有点矛盾啊.
+
+*****
+
+####  DioxinsX  
+##### 49#       发表于 2022-1-2 13:32
+
+这微博链接真恶心，网页版跟国际版都打不开，搜也搜不到
+
+这个登录后网页应该能打开 [https://weibo.com/1945877074/L8MqDepHh](https://weibo.com/1945877074/L8MqDepHh)
+
+*****
+
+####  千魄万斩  
+##### 50#       发表于 2022-1-2 13:32
+
+反转了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卿卿雅儿  
+##### 51#       发表于 2022-1-2 13:33
+
+<blockquote>poppin 发表于 2022-1-2 13:06
+第二条有点假，真的有人会让同事帮买下午茶？
+
+—— 来自 vivo V1981A, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+不同企业文化差异很大。我高中同学，现在在中字头的国企，就给我抱怨:现在的年轻人真没情商，早上来了都不给班长洗杯子。
+
+*****
+
+####  a5m79  
+##### 52#       发表于 2022-1-2 13:33
+
+过于真实了，安排任务分配活的时候“人~家~是~氯~害~支”“你们是不是男人”“一点都不大度，不让着氯~牲”
+
+结算分配钱评优提拔的时候就“凭什么给男（项目牛马主力）的多分，歧视女性！”“不平等！封建男权！”
+
+既要还要也要又要，反正就是活不能干多，钱不能分少
+
+见的多了后，现在已经觉得当代小驴牲根本不是人类<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ‮agur4kI  
+##### 53#       发表于 2022-1-2 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136734&amp;ptid=2045371" target="_blank"> DioxinsX 发表于 2022-1-2 13:32</a> 这微博链接真恶心，网页版跟国际版都打不开，搜也搜不到 这个登录后网页应该能打开 https://weibo.com/1945877074/L8MqDepHh </blockquote>
+舆论传播这一块儿
+王总玩明白了来自: iPhone客户端
+
+*****
+
+####  ggttaa314  
+##### 54#       发表于 2022-1-2 13:37
+
+老板都无所谓，咋干都可以，又不是男的出钱
+
+*****
+
+####  费老师  
+##### 55#       发表于 2022-1-2 13:37
+
+明显小作文
+
+*****
+
+####  66666  
+##### 56#       发表于 2022-1-2 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136697&amp;ptid=2045371" target="_blank">L.L 发表于 2022-1-2 13:27</a>
+
+我觉得是CEO S13，财务 女性为主正常，但法务+HR+管理层都还是女性为主很容易不就成这样了.应该从根 ...</blockquote>
+只能说你见得少了，我还看过某苏南专门为国电做配套的厂子里面90%都是女性，包括连数控车床操作工大部分都是女性，跟他们一个高管喝酒就谈到这个事，他说女人工资要低一些且流动性相对不大，而且他们基本只招收“当地已经生育过”的女性，很少出现一休产假几个月不来上班的情况
+
+*****
+
+####  密特里奈斯  
+##### 57#       发表于 2022-1-2 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有点假，这样的HR和财务没被开？
+
+*****
+
+####  EFSF  
+##### 58#       发表于 2022-1-2 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136729&amp;ptid=2045371" target="_blank">oyss 发表于 2022-1-2 13:31</a>
+
+造假考勤还能正常要到补偿,
+
+这资本家当的,既盘算女员工怀孕小算盘,又愿意当大头随便让人薅羊毛?有点矛盾啊 ...</blockquote>
+没有哪个CEO真有时间跟HR部门算具体多少钱，HR负责人说按照法律规定算的财务点头了，CEO觉得你们两个部门核查过了，居然这么多，要是效益不错，估计为了不想太麻烦也就忍了。
+
+哪知道这HR还能有一手啊。
+
+*****
+
+####  新的未读消息  
+##### 59#       发表于 2022-1-2 13:45
+
+感觉有点假，哪家公司会放任HR这么玩？除非家族企业。
+
+*****
+
+####  Lord_Voldemort  
+##### 60#       发表于 2022-1-2 13:46
+
+不奇怪。真疯狂内卷起来，男女都抛掉家庭和生育责任，男性牛马是更好的被剥削对象。身体素质摆在这<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  相田・明日香  
+##### 61#       发表于 2022-1-2 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136591&amp;ptid=2045371" target="_blank">毒菇 发表于 2022-1-2 13:13</a>
+
+这时候就不怀疑是小作文了？</blockquote>
+100%是，这种倒霉事遇上了也不会发出来想被人骂傻逼
+
+*****
+
+####  Paradox7  
+##### 62#       发表于 2022-1-2 13:49
+
+不管是不是钓鱼 反正底下评论区姐妹们心声应该是真的
+
+*****
+
+####  lage  
+##### 63#       发表于 2022-1-2 13:49
+
+<blockquote>妄想中毒 发表于 2022-1-2 13:23
+我有一招，以后公司招人把招到的所有未婚或者已婚未育的女员工都集中到一个部门办公好不好 ...</blockquote>
+然后kpi考核是吧
+
+*****
+
+####  66666  
+##### 64#       发表于 2022-1-2 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136841&amp;ptid=2045371" target="_blank">Lord_Voldemort 发表于 2022-1-2 13:46</a>
+
+不奇怪。真疯狂内卷起来，男女都抛掉家庭和生育责任，男性牛马是更好的被剥削对象。身体素质摆在这 ...</blockquote>
+所以在工资一样的前提下，老板为什么要招女人？
+
+如果我上面说的例子，人家招女人主要目的就是要降低薪酬，要按政治正确的干法，那就等于又要向社会输送几百个女性人才
+
+*****
+
+####  shhekun  
+##### 65#       发表于 2022-1-2 13:52
+
+这个是假的居多吧，公司的财务、h、技术岗那几条线一般都是不怎么对路的，哪有可能帮你搞这些花里胡哨的东西。
+
+*****
+
+####  acg_gyanc  
+##### 66#       发表于 2022-1-2 13:57
+
+这打个卡也算上班？工作内容交接记录都没的吧，真不是rpg？
+
+*****
+
+####  wangchaofire  
+##### 67#       发表于 2022-1-2 13:58
+
+资本打败了女拳？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dudideng  
+##### 68#       发表于 2022-1-2 14:02
+
+感觉像爽文
+

@@ -8657,3 +8657,15 @@ FIAVjrYVgAIhVv2.jpg
 不是刚刚复课了 (福袋</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡福袋算个屁复刻
 
+
+
+*****
+
+####  alucardcz  
+##### 86347#       发表于 2022-1-2 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54136735&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-2 13:32</a>
+
+辣鸡福袋算个屁复刻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算啊 你看楼上有人2宝了
+
