@@ -15229,3 +15229,14 @@ b1.640.2好眼熟，是不是法国本土株？
 
 —— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  stanleyshoh  
+##### 2768#       发表于 2022-1-2 11:58
+
+[@母星](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=425586)    @smy20011
+
+你们两个是互相爱上了吧，加个QQ私聊可好
+
