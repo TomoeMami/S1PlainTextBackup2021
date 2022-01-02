@@ -15516,3 +15516,23 @@ MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  charse2r  
+##### 2792#       发表于 2022-1-3 01:26
+
+笑了，之前狂吹mrna的时候可没这个常识
+
+*****
+
+####  smy20011  
+##### 2793#       发表于 2022-1-3 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54143974&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-3 01:26</a>
+笑了，之前狂吹mrna的时候可没这个常识</blockquote>
+之前也没有omicron啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

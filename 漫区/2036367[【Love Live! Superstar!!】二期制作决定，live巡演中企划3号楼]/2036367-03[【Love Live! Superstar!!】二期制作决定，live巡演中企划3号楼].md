@@ -5355,3 +5355,18 @@ B630CD9A-61C3-4B2D-95D2-B523D2AE4446.jpeg
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  iuhehc  
+##### 3511#       发表于 2022-1-3 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135018&amp;ptid=2036367" target="_blank">zylwz 发表于 2022-1-2 09:21</a>
+CD还是会掐声线的 最明显的就是day1
+
+顺便一提这首的live版就比cd版要好听</blockquote>
+live的day1没有听到明显副音轨，稍微判断一下大概率是预录，不如说live大部分是预录就像前面说的为了比较完美的舞台效果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
