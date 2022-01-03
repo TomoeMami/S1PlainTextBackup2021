@@ -5516,3 +5516,16 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">问就是领导审批通过了..现在人员无法拍板先删了
 
+
+
+*****
+
+####  csolfans  
+##### 3529#       发表于 2022-1-3 15:42
+
+<blockquote>zylwz 发表于 2022-1-3 13:20
+最新一期是31号的吧 跨年有live肯定不能在家跨年呀
+
+年后有没有回老家就不知道了 ...</blockquote>
+没有，这几天神社抽的签有人看出是在东京的。
+
