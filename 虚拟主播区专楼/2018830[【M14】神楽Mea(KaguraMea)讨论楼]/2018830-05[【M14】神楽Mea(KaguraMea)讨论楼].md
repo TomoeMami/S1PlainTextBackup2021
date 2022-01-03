@@ -10707,3 +10707,12 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">超 将 棋
 
+
+
+*****
+
+####  路人庚  
+##### 7231#       发表于 2022-1-4 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神必将棋下上瘾了（而且居然还是会限
+
