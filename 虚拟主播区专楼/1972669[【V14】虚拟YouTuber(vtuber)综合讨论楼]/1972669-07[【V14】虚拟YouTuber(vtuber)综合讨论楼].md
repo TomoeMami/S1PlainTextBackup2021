@@ -10498,3 +10498,19 @@ gamers永远忠于彩虹！<img src="https://static.saraba1st.com/image/smiley/f
 
 不一定吧
 
+
+
+*****
+
+####  free  
+##### 9891#       发表于 2022-1-3 19:07
+
+油管最近的同接bug谁知道是咋回事，我看的好几个V同接都只剩平时一半了，是同接的计算方式变了吗
+
+*****
+
+####  OldGlory  
+##### 9892#       发表于 2022-1-3 19:09
+
+不是bug是feature<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
