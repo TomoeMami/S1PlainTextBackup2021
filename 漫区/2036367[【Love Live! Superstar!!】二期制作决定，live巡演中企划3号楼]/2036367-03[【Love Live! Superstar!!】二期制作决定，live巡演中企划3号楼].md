@@ -5769,3 +5769,14 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  D麦林  
+##### 3552#       发表于 2022-1-4 01:29
+
+也不奇怪 她还是人在那边环境的呢
+都不说别的 就问现在在这的楼友
+原来如此和是这样啊这两个短语用英文怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

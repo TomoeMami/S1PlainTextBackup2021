@@ -10570,3 +10570,19 @@ syl 小熊猫5号复活， ...</blockquote>
 
 省一楼，麻将杯分组，郡跟莉莉叶山lr一组，感觉近期跟eden联动很多，也许是好事
 
+
+
+*****
+
+####  Ketestrait  
+##### 9898#       发表于 2022-1-4 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54150235&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-1-3 18:49</a>
+
+这个偶像综艺味十足的跳绳大会到底是多久之前的企划，sky休止前？压太长时间了吧
+
+霸王
+
+ ...</blockquote>
+牛姨上传了自己的跳绳败北完整版，里面写着是在爱园的生日live（播出时间2021.11.08）收录后立刻录的
+
