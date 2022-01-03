@@ -5726,3 +5726,30 @@ TV里面鹅的精神面起点是最高的，TV懂王，导师役。
 
 BGM排名已经到80了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rainknine  
+##### 445#       发表于 2022-1-3 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148124&amp;ptid=2043629" target="_blank">ardito 发表于 2022-1-3 15:01</a>
+一种植物，可别，谁坐观众席twice我说可不算</blockquote>
+但蕉观战的那两次maya也没赢哪怕一次啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+感觉，说服力不如背叛的金牛座，至少金牛座最后萌p看上去真的很痛苦（指不能说sonna banana
+
+少歌对各个人物的处理挺好的，maya是首席，nana回被刷了战绩，打光恋打克洛仔也都输了，按一般作品的处理maya在二创里已经是战力被迫害役了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">。
+但tv+剧场版看下来也会觉得这个首席名副其实，打皆杀披风没掉，看得破舞台装置番茄酱也看得破人心。
+
+蕉虽然塑造的也很强，但并不首席的那种塑造，蕉是守护者役，轮回是为了守护，唱名是为了守护，开皆杀是为了打醒摆烂人，蕉是和“大家”息息相关的——所以我会认为对上要夺去他人闪耀的英国首席阿蕉不大会输，就像starlight状态的恋哥哥一样，是角色作为舞台少女诞生的主场。
+把蕉拉到首席役某种意义上是ooc。
+
+然后实际剧情上，强者无敌是无趣的，强者被战胜才有戏剧性，于是诞生了各种各样奇怪的战斗力黑洞，叠盒子轻轻松松能叠出自己必秒自己，
+
+maya是首席
+轮回蕉稳胜maya（鉴于每次轮回蕉都无法打造出第一次的圣翔祭，可以认为每次轮回都是有改动的）
+轮回蕉被后期光恋单杀
+早期光不如纯那，早期恋不如maya
+
+都很正常，大家和和气气根据剧情互秒<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

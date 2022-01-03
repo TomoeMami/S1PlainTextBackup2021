@@ -16025,3 +16025,18 @@ https://protect-public.hhs.gov/pages/hospital-utilization</blockquote>
 而且如果我没记错的话,当时没有 ...</blockquote>
 哦，现在才知道可能有“可以逃脱mrna的变种出现”了啊？当时怎么瞒着不说啊？就使劲贷款吹贬低灭活？
 
+
+
+*****
+
+####  洞庭湖  
+##### 2830#       发表于 2022-1-3 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148861&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 16:27</a>
+你30号的数据怎么比这个高？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+美国人统计，不知道指标是什么。我也奇怪为何普通病床数占比下来了。
+
+有可能是纳入系统的医院数目在不断增加，所以百分比下来了。病人总数是上升的。12月28日只有5400家医院汇报，1月2号是6000多家了。
+
