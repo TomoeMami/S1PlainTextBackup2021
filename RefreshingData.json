@@ -623,14 +623,6 @@
     "category": "游戏区",
     "active": false
   },
-  "2038124": {
-    "totalreply": 150,
-    "title": "[诸君打算打mRNA 第三针booster吗]",
-    "newtitle": "[诸君打算打mRNA 第三针booster吗]",
-    "lastedit": 1638747961,
-    "category": "外野",
-    "active": false
-  },
   "2038240": {
     "totalreply": 122,
     "title": "[LEVEL-5可能确实完了，百万吨级武藏双版本都8000份不到]",
@@ -4941,7 +4933,7 @@
     "newtitle": "[精日在南京也这么有势力吗]",
     "lastedit": 1639871036,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2043019": {
     "totalreply": 64,
@@ -7848,10 +7840,10 @@
     "active": true
   },
   "2045222": {
-    "totalreply": 3078,
+    "totalreply": 3080,
     "title": "[【B48】VUP综合讨论楼]",
     "newtitle": "[【B48】VUP综合讨论楼]",
-    "lastedit": 1641166991,
+    "lastedit": 1641168332,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -8136,10 +8128,10 @@
     "active": true
   },
   "2045445": {
-    "totalreply": 149,
+    "totalreply": 150,
     "title": "[据说越南卖X产业要合法化？]",
     "newtitle": "[据说越南卖X产业要合法化？]",
-    "lastedit": 1641167089,
+    "lastedit": 1641168203,
     "category": "外野",
     "active": true
   },
