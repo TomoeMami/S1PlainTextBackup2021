@@ -1098,3 +1098,18 @@ N手屎💩
 
 除非它真的像HSV1型一样进化成了真mild，把资源消耗换到一些无关紧要的器官去，然后促使快乐激素的分泌，那我当场倒戈成共存派<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kanoya  
+##### 110#       发表于 2022-1-3 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54145433&amp;ptid=2045343" target="_blank">圣血天使 发表于 2022-1-3 10:18</a>
+艹，有克苏鲁那味儿了
+
+—— 来自 OPPO PERM00, Android 11上的 S1Next-鹅版 v2.4.4-alpha ...</blockquote>
+这不是克苏鲁世界观，这是女女女染世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果走这个趋势的话，就要看病毒会不会走第三部的只降智不鲨人的路线了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

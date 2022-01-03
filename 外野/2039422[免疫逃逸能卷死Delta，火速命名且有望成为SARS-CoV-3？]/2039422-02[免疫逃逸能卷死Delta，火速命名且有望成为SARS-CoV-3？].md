@@ -15622,3 +15622,65 @@ omicron不是covid-19了还是咋地？ 之前吹的不都是吹covid19吗，怎
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 2802#       发表于 2022-1-3 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54145994&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-3 11:29</a>
+omicron不是covid-19了还是咋地？ 之前吹的不都是吹covid19吗，怎么贷款吹了就不还钱了？ ...</blockquote>
+任何一个疫苗，都不会要求能对付一年之后的变种。如果你觉得这是打脸了mrna支持者的话，你要考虑一下你对疫苗有什么错误的期待了。
+
+你这就相当于拿科兴对omicron的数据职责科兴一二期造假一样荒谬。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  烦死了  
+##### 2803#       发表于 2022-1-3 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54145708&amp;ptid=2039422" target="_blank">ak123 发表于 2022-1-3 10:53</a>
+
+米国国防部长阳性了，然后他一周前密接过败登</blockquote>
+安啦， 紧急静脉注射单抗
+
+*****
+
+####  血狂毘沙门  
+##### 2804#       发表于 2022-1-3 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146145&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 11:44</a>
+
+这种人以天为单位测新冠，一个医疗团队随时待命，抗体单抗拉满的。想要进icu都难
+
+— from Google Pixel  ...</blockquote>
+那么是否还有机会来个体内免疫风暴
+
+*****
+
+####  charse2r  
+##### 2805#       发表于 2022-1-3 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146189&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 11:49</a>
+
+任何一个疫苗，都不会要求能对付一年之后的变种。如果你觉得这是打脸了mrna支持者的话，你要考虑一下你对 ...</blockquote>
+你给我找到一条1年前辉瑞疫苗吹的文章同时平衡提过“不会要求能对付一年之后的变种”这种提示的？
+
+别给我扯灭活，灭活之前低现在也低，你mrna呢？你jj呢？你之前神气活现的吹那么高不打你脸打谁的脸。
+
+*****
+
+####  creymorgan  
+##### 2806#       发表于 2022-1-3 12:04
+
+新冠的血清型会慢慢穷举出来的
+
+以后就能类似流感那样通过各地采样预测流行毒株提前接种对应疫苗了。
+
+现在嘛，疫苗的效果就那样，大流行才开始研发，搞出来时候流行的已经别的品种了，哪怕不是新血清型，效果也是大减。
+
+多靶点小分子口服物鸡尾酒用药在我看来是最靠谱的办法，如果单独上挺不过半年就该抗药性了。
+

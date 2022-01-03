@@ -2326,3 +2326,12 @@ ps5版至少loading问题可以解决了
 
 消失的黄毛
 
+
+
+*****
+
+####  宛若青空  
+##### 195#       发表于 2022-1-3 11:59
+
+法老控从黎1就已经想明白了，主线女主和感情戏女主完全可以分开<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
