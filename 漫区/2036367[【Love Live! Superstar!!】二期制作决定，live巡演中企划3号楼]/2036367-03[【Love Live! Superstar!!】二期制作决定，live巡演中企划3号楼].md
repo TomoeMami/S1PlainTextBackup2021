@@ -5529,3 +5529,17 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 年后有没有回老家就不知道了 ...</blockquote>
 没有，这几天神社抽的签有人看出是在东京的。
 
+
+
+*****
+
+####  二月十日  
+##### 3530#       发表于 2022-1-3 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148490&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-1-3 15:42</a>
+
+没有，这几天神社抽的签有人看出是在东京的。</blockquote>
+查了下，说小百合去的是东京大神宫这个情报本身就错的吧
+
+东京大神宫的签文是打竖开的，小百合的是打横开的
+

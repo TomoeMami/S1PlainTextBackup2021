@@ -5694,3 +5694,16 @@ TV里面鹅的精神面起点是最高的，TV懂王，导师役。
 
 恋哥哥那是重吗，不像真昼，恋哥哥在日常里一点重属性都不表现出来，可谓举重若轻！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Promeus  
+##### 442#       发表于 2022-1-3 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54149087&amp;ptid=2043629" target="_blank">Acatv 发表于 2022-1-3 16:53</a>
+恋哥哥那是重吗，不像真昼，恋哥哥在日常里一点重属性都不表现出来，可谓举重若轻！ ...</blockquote>
+怎么表达不出来，让举重力高达190公斤的露妈妈拽不起来的超高重力<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
