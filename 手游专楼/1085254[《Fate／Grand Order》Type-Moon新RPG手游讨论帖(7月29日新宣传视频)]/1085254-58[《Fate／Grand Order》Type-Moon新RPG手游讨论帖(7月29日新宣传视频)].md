@@ -8816,3 +8816,14 @@ FIAVjrYVgAIhVv2.jpg
 
 比起手搓圣杯我更想要手搓结晶啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  承尘  
+##### 86362#       发表于 2022-1-3 12:50
+
+每日一付费石出率挺高啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，上次通古斯17.更新完进去一颗出太公，刚上线清体力一颗又出了斯卡哈<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

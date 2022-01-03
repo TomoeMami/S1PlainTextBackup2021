@@ -15778,3 +15778,29 @@ Omicron已经有血清分型的倾向了
 
 满足所需突变从而得到定向选择的机会是根本性差距。
 
+
+
+*****
+
+####  smy20011  
+##### 2813#       发表于 2022-1-3 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146716&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-3 12:37</a>
+我前面都说明白了，对抗抗药性。
+
+举一个简单的例子
+
+两个骰子对应两款抗病毒药</blockquote>
+对不起我理解错了，以为是那种长期服药压制病毒的鸡尾酒疗法。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2814#       发表于 2022-1-3 12:46
+
+不过相比用两种药，更重要的是要全世界能用上药。who说的，在全世界范围内消灭贫困与饥饿，就能消灭新冠。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

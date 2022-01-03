@@ -16658,3 +16658,12 @@ NORMAL END NO.36 急流勇退END 达成
 
 类推的话，今年预定的几次live前会稍微播一播。顺便Live顺利的话，社内的live相关资源又需要平衡的话，可能会因为感到空虚选择毕业
 
+
+
+*****
+
+####  Maonpuyo  
+##### 7362#       发表于 2022-1-3 12:58
+
+live完后病遁 live完休息 live后人就消失了 循环几次一年就混过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
