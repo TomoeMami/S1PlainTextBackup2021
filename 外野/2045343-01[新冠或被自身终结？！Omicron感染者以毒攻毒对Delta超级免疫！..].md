@@ -1113,3 +1113,18 @@ N手屎💩
 
 如果走这个趋势的话，就要看病毒会不会走第三部的只降智不鲨人的路线了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高龙  
+##### 111#       发表于 2022-1-3 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146141&amp;ptid=2045343" target="_blank">Kanoya 发表于 2022-1-3 11:44</a>
+
+不至于，病毒有个致命的底层bug就是它复制一定要消耗宿主的细胞资源，属于是「我不杀伯仁，伯仁因我而死 ...</blockquote>
+你的脑补已经超越病毒进化的速度，就这么苛求多巴安吗？不过真进化成嗑药病毒那太可怕了。也不是没有可能，考虑鬼佬那边吸毒的那么多，难保不会有哪个巧合下启发了病毒的这方面变异，又在毒友圈扩散出去。
+<img src="https://static.saraba1st.com/image/smiley/face2017/250.png" referrerpolicy="no-referrer">
+
+真是魔鬼的想法呀，安全起见，提前把提出者焚了吧。
+

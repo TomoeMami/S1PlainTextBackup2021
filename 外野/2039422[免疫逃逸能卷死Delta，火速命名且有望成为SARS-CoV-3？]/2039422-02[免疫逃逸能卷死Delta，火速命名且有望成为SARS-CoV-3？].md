@@ -15831,3 +15831,15 @@ Omicron已经有血清分型的倾向了
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  西风之哀  
+##### 2817#       发表于 2022-1-3 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147857&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 14:30</a>
+
+这锅也不是mrna背，这不是fda不批准么。技术再先进管理部门不批准也没用啊。出一个新变种，pfizer可以在 ...</blockquote>
+这就要回到，药和疫苗要不要做三期的话题了……
+
