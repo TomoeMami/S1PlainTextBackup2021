@@ -15964,3 +15964,50 @@ ICU病床，12月28日和1月2日。
 
 <img src="https://img.saraba1st.com/forum/202201/03/161444ufr66krflk6pqdxq.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无责任死猫  
+##### 2825#       发表于 2022-1-3 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147857&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 14:30</a>
+
+这锅也不是mrna背，这不是fda不批准么。技术再先进管理部门不批准也没用啊。出一个新变种，pfizer可以在 ...</blockquote>
+那就要问问为何号称安全性比传统方法好太多的为啥会不批了。
+
+*****
+
+####  惊奇记事簿  
+##### 2826#       发表于 2022-1-3 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148739&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2022-1-3 16:14</a>
+ICU病床，12月28日和1月2日。
+
+https://protect-public.hhs.gov/pages/hospital-utilization</blockquote>
+一般icu的病床空置率是多少？
+
+*****
+
+####  smy20011  
+##### 2827#       发表于 2022-1-3 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148829&amp;ptid=2039422" target="_blank">无责任死猫 发表于 2022-1-3 16:24</a>
+那就要问问为何号称安全性比传统方法好太多的为啥会不批了。</blockquote>
+因为omicron疫苗的竞争对手是加强针，加强针防止重症和死亡的能力依然很强，你得说明防治omicron轻症的好处大于打疫苗的风险。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2828#       发表于 2022-1-3 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148739&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2022-1-3 16:14</a>
+ICU病床，12月28日和1月2日。
+
+https://protect-public.hhs.gov/pages/hospital-utilization</blockquote>
+你30号的数据怎么比这个高？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
