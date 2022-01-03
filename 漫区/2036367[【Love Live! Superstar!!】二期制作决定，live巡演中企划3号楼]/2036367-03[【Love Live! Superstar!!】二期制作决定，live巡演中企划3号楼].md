@@ -5543,3 +5543,34 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 东京大神宫的签文是打竖开的，小百合的是打横开的
 
+
+
+*****
+
+####  kbtit  
+##### 3531#       发表于 2022-1-3 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">挺好奇伊达新年老家也不回，也不和liyuu青山一起过，猜想要么是其他个人私事，要么可能东京有自己的朋友圈子
+
+*****
+
+####  中野四葉  
+##### 3532#       发表于 2022-1-3 17:29
+
+<img src="https://img.saraba1st.com/forum/202201/03/172903hmwlmr5rvvmw070m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 17:29 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">小哭包
+
+*****
+
+####  中野四葉  
+##### 3533#       发表于 2022-1-3 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这么快熟肉就出了，什么神龙
+

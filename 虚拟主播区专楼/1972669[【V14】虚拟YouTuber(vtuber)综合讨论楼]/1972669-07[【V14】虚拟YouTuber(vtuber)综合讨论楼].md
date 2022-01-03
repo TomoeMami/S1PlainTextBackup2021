@@ -10408,3 +10408,32 @@ gamers永远忠于彩虹！<img src="https://static.saraba1st.com/image/smiley/f
 
 有无老哥知道Enna是哪国人 这3国语言有点顶傲<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9884#       发表于 2022-1-3 17:22
+
+ 本帖最后由 格林卡罗尔 于 2022-1-3 17:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148300&amp;ptid=1972669" target="_blank">Aisuti 发表于 2022-1-3 15:20</a>
+
+有无老哥知道Enna是哪国人 这3国语言有点顶傲</blockquote>
+加拿大华裔吧，父母都说中文应该是二代移民
+
+<img src="https://img.saraba1st.com/forum/202201/03/172452ze2eeoe5ied2ftoe.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220103172440.png</strong> (37.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202201/03/172453s9522nanndn2jdbn.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220103172402.png</strong> (57.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 17:24 上传
+

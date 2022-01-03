@@ -5707,3 +5707,22 @@ TV里面鹅的精神面起点是最高的，TV懂王，导师役。
 
 —— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  smoothie  
+##### 443#       发表于 2022-1-3 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146673&amp;ptid=2043629" target="_blank">阿卡拉兰斯 发表于 2022-1-3 12:33</a>
+
+转载战吧迫真优秀分析迫害论文</blockquote>
+这思路也太广了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iceskey  
+##### 444#       发表于 2022-1-3 17:35
+
+BGM排名已经到80了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
