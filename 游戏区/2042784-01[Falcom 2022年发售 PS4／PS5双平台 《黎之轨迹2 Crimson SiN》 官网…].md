@@ -2353,3 +2353,12 @@ ps5版至少loading问题可以解决了
 
 —— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  windtrack  
+##### 198#       发表于 2022-1-3 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我说了在不考虑法社员工安危的前提下最优解就是剑女挡刀临终前把范爷托付给诸葛阿妮
+
