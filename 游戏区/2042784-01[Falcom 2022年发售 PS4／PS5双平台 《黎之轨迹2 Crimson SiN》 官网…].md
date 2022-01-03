@@ -2335,3 +2335,21 @@ ps5版至少loading问题可以解决了
 
 法老控从黎1就已经想明白了，主线女主和感情戏女主完全可以分开<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 196#       发表于 2022-1-3 12:08
+
+  近藤这个太极话术真是炉火纯青
+
+*****
+
+####  提挈天地  
+##### 197#       发表于 2022-1-3 12:11
+
+诸葛阿尼除了主线剧情里的的定场正论外，印象最深的就是各种“あはっは”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -15684,3 +15684,67 @@ omicron不是covid-19了还是咋地？ 之前吹的不都是吹covid19吗，怎
 
 多靶点小分子口服物鸡尾酒用药在我看来是最靠谱的办法，如果单独上挺不过半年就该抗药性了。
 
+
+
+*****
+
+####  烦死了  
+##### 2807#       发表于 2022-1-3 12:05
+
+<img src="https://img.saraba1st.com/forum/202201/03/120457xz8jqewjelwjqres.jpg" referrerpolicy="no-referrer">
+
+<strong>1641182669.jpg</strong> (165.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 12:04 上传
+
+reddit上现在说 住院会lag 都被灭到生活不能自理了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2808#       发表于 2022-1-3 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146277&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-3 11:58</a>
+
+你给我找到一条1年前辉瑞疫苗吹的文章同时平衡提过“不会要求能对付一年之后的变种”这种提示的？
+
+别给我 ...</blockquote>
+就跟1+1等于二一样的常识性问题 你觉得需要在新闻上提是你的常识不过关
+
+而且如果我没记错的话,当时没有可以逃脱mrna的变种出现
+
+*****
+
+####  smy20011  
+##### 2809#       发表于 2022-1-3 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146369&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-3 12:05</a>
+
+reddit上现在说 住院会lag 都被灭到生活不能自理了</blockquote>
+一个月前我就听到需要两周才能得到结果,现在南非论文都已经经过同行审议发表了,还需要等到什么时候?
+
+这玩意又不是核聚变,永远的50年
+
+*****
+
+####  smy20011  
+##### 2810#       发表于 2022-1-3 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146345&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-3 12:04</a>
+
+新冠的血清型会慢慢穷举出来的
+
+以后就能类似流感那样通过各地采样预测流行毒株提前接种对应疫苗了。</blockquote>
+这玩意不是艾滋病，为什么需要鸡尾酒疗法啊
+
+*****
+
+####  Kanoya  
+##### 2811#       发表于 2022-1-3 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146504&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 12:16</a>
+这玩意不是艾滋病，为什么需要鸡尾酒疗法啊</blockquote>
+Omicron已经有血清分型的倾向了
+
