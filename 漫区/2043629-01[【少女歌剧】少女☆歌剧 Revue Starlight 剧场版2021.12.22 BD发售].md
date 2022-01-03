@@ -5685,3 +5685,12 @@ TV里面鹅的精神面起点是最高的，TV懂王，导师役。
 你把迷宫revue放蕉纯前面那就是迷宫坐观众席了，你说tv是积分制蕉被淘汰了那确实，剧场版压根不是选拔，无 ...</blockquote>
 一种植物，可别，谁坐观众席twice我说可不算<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Acatv  
+##### 441#       发表于 2022-1-3 16:53
+
+恋哥哥那是重吗，不像真昼，恋哥哥在日常里一点重属性都不表现出来，可谓举重若轻！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
