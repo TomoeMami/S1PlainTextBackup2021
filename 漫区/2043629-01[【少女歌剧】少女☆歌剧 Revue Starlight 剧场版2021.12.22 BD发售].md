@@ -5796,3 +5796,23 @@ BGM排名已经到80了</blockquote>
 
 至于英国那个闪耀怪，光恋1.1个闪耀蕉看了都抹布吸，不是很看好阿蕉单刷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rainknine  
+##### 449#       发表于 2022-1-3 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54152109&amp;ptid=2043629" target="_blank">ardito 发表于 2022-1-3 21:39</a>
+那反过来说要是把鹅放下去看，蕉不是一样是赢不得的局而且别说一个鹅没下去了，克洛都还在上面呢 ...</blockquote>
+没，真没必要硬整战斗力偏序关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">少歌很明显是战斗力互掐黑洞（
+
+不过仅作为闲谈吹逼的话，手游没玩过就当平行世界，剧场版克洛仔是被皆杀了的，我觉得阿蕉必秒克洛仔<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+（只是暴言，我爱克洛）
+
+要说跟剧场和长颈鹿勾结，阿光在英国赛区填参赛志愿表的时候英国首席也在一边偷窥，我认为英国赛区必然有不可告人的幕后交易<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+结果而言无论是恋还是光都不是烧别人闪耀的人，条件没满足，阿蕉输了，合情合理（虽然蕉知不知道top star要烧闪耀是未知数）
+
+图一乐，图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
