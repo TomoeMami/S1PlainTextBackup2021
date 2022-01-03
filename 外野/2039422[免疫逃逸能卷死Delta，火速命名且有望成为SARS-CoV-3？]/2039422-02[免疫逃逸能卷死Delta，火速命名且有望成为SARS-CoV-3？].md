@@ -15578,3 +15578,12 @@ MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  ak123  
+##### 2798#       发表于 2022-1-3 10:53
+
+米国国防部长阳性了，然后他一周前密接过败登<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

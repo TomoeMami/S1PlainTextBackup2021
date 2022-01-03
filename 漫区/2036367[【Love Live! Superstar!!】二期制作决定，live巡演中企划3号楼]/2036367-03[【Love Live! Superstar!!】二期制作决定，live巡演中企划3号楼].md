@@ -5418,3 +5418,12 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 听了新一期打铁匠才知道小百合新年没有回宫崎老家
 
+
+
+*****
+
+####  cybernetics31  
+##### 3517#       发表于 2022-1-3 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以小百合新年一个人过的？啊这………………
+
