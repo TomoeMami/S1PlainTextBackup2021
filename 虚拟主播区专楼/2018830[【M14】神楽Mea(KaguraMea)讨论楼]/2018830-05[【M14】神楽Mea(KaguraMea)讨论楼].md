@@ -10698,3 +10698,12 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 素材还挺多的，又换背景了
 
+
+
+*****
+
+####  ashero  
+##### 7230#       发表于 2022-1-4 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">超 将 棋
+
