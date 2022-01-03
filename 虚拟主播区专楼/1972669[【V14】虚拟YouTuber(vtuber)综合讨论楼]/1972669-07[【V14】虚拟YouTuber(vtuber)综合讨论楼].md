@@ -10341,3 +10341,15 @@ syl
 
 拉黑应该已经解除了，官号重新关注了阿葵，列表也正常了，不过阿葵还没重新关注回去。那其实大概之前是官号把阿葵拉黑了……
 
+
+
+*****
+
+####  rzrbtk  
+##### 9878#       发表于 2022-1-3 09:02
+
+gamers带头冲锋<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">！（虽然目前看着姑且是手滑的程度）
+说是反抗军，哪怕是搞事无数的圭利环其实心里还是怕运营的吧，圭利3D不知有没被穿小鞋，猫搞完观众出道计划回去跟郡道直播声音都抖了还说可能是自己最后的直播了（玩笑），时至今日要复现一二哥杀上enkr也不可能了，上位势要不虹信要不有求于虹要不缩了，下位势搞事怕不是直接优化了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+2022的虹好精彩惹，hololive，小心了！（开玩笑）
+

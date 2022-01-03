@@ -1013,3 +1013,21 @@ N手屎💩
 
 赢！
 
+
+
+*****
+
+####  tssily1314  
+##### 101#       发表于 2022-1-3 09:09
+
+感谢有种西方想拉我们下水的味道<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+*****
+
+####  惊奇记事簿  
+##### 102#       发表于 2022-1-3 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54145008&amp;ptid=2045343" target="_blank">tssily1314 发表于 2022-1-3 09:09</a>
+感谢有种西方想拉我们下水的味道</blockquote>
+要不是中国动态清零，西方早就宣布已经尽力了然后躺倒，然后扣上武汉病毒的帽子，光明正大的想抵制哪个就拉出来说事
+
