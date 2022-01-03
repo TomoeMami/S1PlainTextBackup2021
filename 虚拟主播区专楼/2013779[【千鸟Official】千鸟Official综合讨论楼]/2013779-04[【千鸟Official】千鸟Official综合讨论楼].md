@@ -4095,3 +4095,77 @@ syl 文静今年过年不回家
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下换新设备了
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 4926#       发表于 2022-1-3 19:43
+
+一个小时水能洒两次，想换键盘直说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 4927#       发表于 2022-1-3 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贷款上班喽！
+
+*****
+
+####  rgauss  
+##### 4928#       发表于 2022-1-3 19:44
+
+ 本帖最后由 rgauss 于 2022-1-3 19:51 编辑 
+
+滑了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+水杯放在电脑旁确实容易撒
+
+我这下半年已经洒了七八次了
+
+syl 我两眼一黑了·
+
+*****
+
+####  T型钉宫病毒  
+##### 4929#       发表于 2022-1-3 19:53
+
+文静：“我跟他在一起的时间说不定都不如和你们在一起的时间长”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人民de救星  
+##### 4930#       发表于 2022-1-3 19:55
+
+男友粉破大防咯，happy
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伞沢直美  
+##### 4931#       发表于 2022-1-3 19:55
+
+这下方寸大乱开始胡编了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 4932#       发表于 2022-1-3 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我不好说
+
+*****
+
+####  伞沢直美  
+##### 4933#       发表于 2022-1-3 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">一切的一切，得从那杯翻在键盘的水开始说起
+
+手忙脚乱的吱吱分散了注意力，为了找回话题一时失语
+
+于是不得不在一个故事的基础上继续编造下一个故事
+
+那杯水堪称萨拉热窝的枪，那块键盘少说也得封个大公
+
