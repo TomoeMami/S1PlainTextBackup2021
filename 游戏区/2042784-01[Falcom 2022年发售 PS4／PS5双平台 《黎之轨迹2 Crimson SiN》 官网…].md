@@ -2294,3 +2294,35 @@ ps5版至少loading问题可以解决了
 
 建议 falcom 多看看 anime，多来点虐(女)主和重女，金毛捶地哭，欧内该
 
+
+
+*****
+
+####  Oshino  
+##### 191#       发表于 2022-1-3 11:21
+
+剑女不会真靠人气投票上位了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 192#       发表于 2022-1-3 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54145928&amp;ptid=2042784" target="_blank">Oshino 发表于 2022-1-3 11:21</a>
+剑女不会真靠人气投票上位了吧</blockquote>
+查无学妹<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 193#       发表于 2022-1-3 11:28
+
+没有上位这一说，本来就是女主待遇。 强推金毛小三才不可理喻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2042312  
+##### 194#       发表于 2022-1-3 11:31
+
+消失的黄毛
+

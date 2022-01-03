@@ -15587,3 +15587,38 @@ MRNA吹已经进化到光谱加强针omicron版本了...你这消息他们可能
 
 米国国防部长阳性了，然后他一周前密接过败登<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  charse2r  
+##### 2799#       发表于 2022-1-3 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54143985&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 01:28</a>
+
+之前也没有omicron啊
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+omicron不是covid-19了还是咋地？ 之前吹的不都是吹covid19吗，怎么贷款吹了就不还钱了？
+
+*****
+
+####  砥草  
+##### 2800#       发表于 2022-1-3 11:31
+
+ 本帖最后由 砥草 于 2022-1-3 11:36 编辑 
+<blockquote>ak123 发表于 2022-1-3 10:53
+米国国防部长阳性了，然后他一周前密接过败登</blockquote>
+拜振华也要为祖国献礼了吗？马上春节了，来个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2801#       发表于 2022-1-3 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146005&amp;ptid=2039422" target="_blank">砥草 发表于 2022-1-3 11:31</a>
+拜振华也要为祖国献礼了吗？马上春节了，来个大的</blockquote>
+这种人以天为单位测新冠，一个医疗团队随时待命，抗体单抗拉满的。想要进icu都难
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

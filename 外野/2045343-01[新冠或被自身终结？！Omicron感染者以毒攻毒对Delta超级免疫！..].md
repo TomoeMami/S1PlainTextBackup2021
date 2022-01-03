@@ -1085,3 +1085,16 @@ N手屎💩
 
 流感就是这样
 
+
+
+*****
+
+####  Kanoya  
+##### 109#       发表于 2022-1-3 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54145309&amp;ptid=2045343" target="_blank">高龙 发表于 2022-1-3 10:01</a>
+自然界有寄生趋同的现象，比如弓型虫寄生的老鼠会自己跑去喂猫（寄生的人类是不是变成狂热猫奴就没有数据了 ...</blockquote>
+不至于，病毒有个致命的底层bug就是它复制一定要消耗宿主的细胞资源，属于是「我不杀伯仁，伯仁因我而死」，跟寄生虫还是两码事的
+
+除非它真的像HSV1型一样进化成了真mild，把资源消耗换到一些无关紧要的器官去，然后促使快乐激素的分泌，那我当场倒戈成共存派<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
