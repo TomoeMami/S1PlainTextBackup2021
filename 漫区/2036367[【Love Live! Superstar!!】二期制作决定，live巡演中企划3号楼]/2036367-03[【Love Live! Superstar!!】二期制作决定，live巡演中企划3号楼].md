@@ -5756,3 +5756,16 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 偶然发现圣诞那期live的结束语部分，liyuu说接下来要用中文说圣诞快乐，然后冲中国观众开始喊话时先来了一句 民那桑，接着才是中文 圣诞快乐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  任天索尼子  
+##### 3551#       发表于 2022-1-4 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54153919&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-4 00:33</a>
+偶然发现圣诞那期live的结束语部分，liyuu说接下来要用中文说圣诞快乐，然后冲中国观众开始喊话时先来了一 ...</blockquote>
+这算啥 她说自己下意识的说一些感叹词语气词之类的时候已经是日语了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
