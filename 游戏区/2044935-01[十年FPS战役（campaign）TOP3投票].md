@@ -818,3 +818,14 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
 
 传送门怎么样都不算fps吧
 
+
+
+*****
+
+####  古代人皮克  
+##### 79#       发表于 2022-1-3 21:44
+
+没有孤岛危机3和血龙？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把ultrakill 和 dusk这些个retro shooter和各种3A一起比是不是不太公平
+

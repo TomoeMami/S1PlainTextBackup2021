@@ -5664,3 +5664,14 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  player3960  
+##### 3543#       发表于 2022-1-3 21:59
+
+慢慢练吧，或者找个健身教练指导一下，不如请青山吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
