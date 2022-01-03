@@ -5673,3 +5673,15 @@ TV里面鹅的精神面起点是最高的，TV懂王，导师役。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ardito  
+##### 440#       发表于 2022-1-3 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148002&amp;ptid=2043629" target="_blank">海晟天锻 发表于 2022-1-3 14:49</a>
+
+你把迷宫revue放蕉纯前面那就是迷宫坐观众席了，你说tv是积分制蕉被淘汰了那确实，剧场版压根不是选拔，无 ...</blockquote>
+一种植物，可别，谁坐观众席twice我说可不算<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

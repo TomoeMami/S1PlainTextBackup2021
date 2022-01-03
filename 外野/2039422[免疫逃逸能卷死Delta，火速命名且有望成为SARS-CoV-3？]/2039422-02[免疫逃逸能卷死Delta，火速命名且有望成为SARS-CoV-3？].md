@@ -15843,3 +15843,26 @@ Omicron已经有血清分型的倾向了
 这锅也不是mrna背，这不是fda不批准么。技术再先进管理部门不批准也没用啊。出一个新变种，pfizer可以在 ...</blockquote>
 这就要回到，药和疫苗要不要做三期的话题了……
 
+
+
+*****
+
+####  yuandi0120  
+##### 2818#       发表于 2022-1-3 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147857&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 14:30</a>
+
+这锅也不是mrna背，这不是fda不批准么。技术再先进管理部门不批准也没用啊。出一个新变种，pfizer可以在 ...</blockquote>
+问题在于别家也没绕过fda啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，如果mrna的优点只有在给自己开后门而且还无视一切行政成本的真空中的球形鸡条件下才能体现出来，那哪怕这个优点真的存在，在现实中这个技术也大概率落不到实处了。
+
+*****
+
+####  eveshell  
+##### 2819#       发表于 2022-1-3 15:17
+
+<blockquote>smy20011 发表于 2022-1-3 12:46
+不过相比用两种药，更重要的是要全世界能用上药。who说的，在全世界范围内消灭贫困与饥饿，就能消灭新冠。
+
+ ...</blockquote>
+这句话真好笑 要先把人性自私资本主义干掉才能解决新冠 那还是躺平吧
+

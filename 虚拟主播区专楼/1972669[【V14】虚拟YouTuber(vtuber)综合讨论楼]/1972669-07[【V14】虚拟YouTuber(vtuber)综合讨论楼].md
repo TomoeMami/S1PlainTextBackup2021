@@ -10392,3 +10392,19 @@ ex gamers永远不会让我失望<img src="https://static.saraba1st.com/image/sm
 
 比我印象里多一点……考虑到他3D披露的时候也才300万sc其实还挺多的，虽然这点钱前排随便开个纪念回就有了
 
+
+
+*****
+
+####  OldGlory  
+##### 9882#       发表于 2022-1-3 15:07
+
+gamers永远忠于彩虹！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aisuti  
+##### 9883#       发表于 2022-1-3 15:20
+
+有无老哥知道Enna是哪国人 这3国语言有点顶傲<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
