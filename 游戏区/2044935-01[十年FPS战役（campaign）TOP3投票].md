@@ -789,3 +789,14 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
  现在还觉得2代Hargreaves大宅里那几套空的纳米战甲如果能动起来和玩家打一场闹鬼盔甲boss战，无论是游戏 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就二代那个ai水平，在这种没掩体的房间打纳米服大概要么是玩家继续靠隐身机制玩弄ai，要么是ai强行看破隐身再拿数值恶心玩家，这种设定在剧情上挺合适的，实际游戏还是免了
 
+
+
+*****
+
+####  费老师  
+##### 76#       发表于 2022-1-3 15:41
+
+<blockquote>UmarIbnLaAhad 发表于 2022-1-1 12:07
+隐身机制（当面隐身敌人强行看不见）和升级完之后的持续时间太强了，要是砍两刀再调一下敌人ai，调成一代 ...</blockquote>
+一代战役和二代没法比，二代的战场场景设计屌炸天，不输好莱坞电影
+
