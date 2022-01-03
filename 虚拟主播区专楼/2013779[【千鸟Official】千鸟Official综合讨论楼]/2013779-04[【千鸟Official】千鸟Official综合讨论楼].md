@@ -4178,3 +4178,61 @@ syl 我两眼一黑了·
 
 bgm太应景了，我两眼一亮
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4935#       发表于 2022-1-3 20:24
+
+md在外面没听到
+吱吱自爆了？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  rgauss  
+##### 4936#       发表于 2022-1-3 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54151412&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-1-3 20:24</a>
+
+md在外面没听到
+
+吱吱自爆了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">文静和观众互造节目效果。
+
+有前男友这事我觉得看了之前的直播应该都知道
+
+*****
+
+####  tn_teana  
+##### 4937#       发表于 2022-1-3 20:26
+
+说自己看闻香识女人看哭了，妈妈进来问她哭那么伤心是不是跟男朋友分手了
+
+然后被观众拷打，终于承认了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Quark  
+##### 4938#       发表于 2022-1-3 20:34
+
+今天怎么可以点歌
+
+*****
+
+####  夜潇箫  
+##### 4939#       发表于 2022-1-3 20:36
+
+谈过几个呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 4940#       发表于 2022-1-3 20:38
+
+文静没结过婚，梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
