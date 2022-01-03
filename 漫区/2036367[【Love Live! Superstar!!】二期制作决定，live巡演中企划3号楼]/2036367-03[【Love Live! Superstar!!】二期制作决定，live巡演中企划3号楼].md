@@ -5574,3 +5574,28 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这么快熟肉就出了，什么神龙
 
+
+
+*****
+
+####  秋月艾莉  
+##### 3534#       发表于 2022-1-3 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">小百合那句“平时明明能表演好的，为什么一到正式演出就演不好了呢”把我听麻了
+
+香哥哥本香了属于是
+
+*****
+
+####  TCone  
+##### 3535#       发表于 2022-1-3 18:02
+
+<img src="https://img.saraba1st.com/forum/202201/03/180234yqmh1kg6phhwqx60.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ADA7EA02-9BED-44F2-ACFF-C86740C1DE1E.jpeg</strong> (205.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-3 18:02 上传
+

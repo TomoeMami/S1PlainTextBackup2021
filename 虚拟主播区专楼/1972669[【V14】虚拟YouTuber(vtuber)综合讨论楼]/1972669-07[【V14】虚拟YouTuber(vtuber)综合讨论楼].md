@@ -10437,3 +10437,21 @@ gamers永远忠于彩虹！<img src="https://static.saraba1st.com/image/smiley/f
 
 2022-1-3 17:24 上传
 
+
+
+*****
+
+####  雨井绫  
+##### 9885#       发表于 2022-1-3 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">感觉应该没啥事……阿葵已经在正常发推了。不过她还没把2434的关注点回去，可能压根不知道有这事（她有自搜习惯吗？
+
+*****
+
+####  Ketestrait  
+##### 9886#       发表于 2022-1-3 17:54
+
+<img src="https://tvax1.sinaimg.cn/large/7c16af6bly1gy0mtdy8iyj20xm0ipac8.jpg" referrerpolicy="no-referrer">
+
+社：“エリー見てるか？これが師匠だ！”
+

@@ -16011,3 +16011,17 @@ https://protect-public.hhs.gov/pages/hospital-utilization</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  charse2r  
+##### 2829#       发表于 2022-1-3 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146414&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 12:09</a>
+
+就跟1+1等于二一样的常识性问题 你觉得需要在新闻上提是你的常识不过关
+
+而且如果我没记错的话,当时没有 ...</blockquote>
+哦，现在才知道可能有“可以逃脱mrna的变种出现”了啊？当时怎么瞒着不说啊？就使劲贷款吹贬低灭活？
+
