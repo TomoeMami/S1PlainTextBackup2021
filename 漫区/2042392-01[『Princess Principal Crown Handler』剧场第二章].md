@@ -669,3 +669,15 @@ BD 明年3/29发售
 这感觉已经可以跟TV版看作是两个作品了，第一章第二章都几乎没有感情戏，现在公主在两个人的时候连安洁本名 ...</blockquote>
 第一章不就叫了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alingzero  
+##### 67#       发表于 2022-1-3 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144432&amp;ptid=2042392" target="_blank">嘲哳的声音 发表于 2022-1-3 03:43</a>
+
+第一章不就叫了吗</blockquote>
+可第二章就没叫啊，虽说名字只是个代号，但这个真名正是体现出她们两人与众不同的地方。看公主只有两个人时还叫安洁感觉真难受
+

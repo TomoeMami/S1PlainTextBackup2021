@@ -10353,3 +10353,18 @@ gamers带头冲锋<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 2022的虹好精彩惹，hololive，小心了！（开玩笑）
 
+
+
+*****
+
+####  pansherry  
+##### 9879#       发表于 2022-1-3 09:52
+
+ 本帖最后由 pansherry 于 2022-1-3 09:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54144331&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-1-3 02:52</a>
+
+夜见最近和葵皇关系挺好的但她突然把明天直播取消了说是要去收录，个人猜想可能今天突然葵皇和你虹出摩擦了 ...</blockquote>
+3号的话之前夜见直播的时候不小心放出过计划了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+以下内容需要积分高于 80 才可浏览
+<img src="https://tva4.sinaimg.cn/large/771ca9d1gy1gy08v01mijj22eo14010l.jpg" referrerpolicy="no-referrer">
+
