@@ -5776,3 +5776,23 @@ BGM排名已经到80了</blockquote>
 
 真的纠结战力对比就没意思了，在少歌的世界观下时机成熟了石动双叶也能把兄弟萌都穿了。谁没有一堆头衔呢？爱城华恋TV里赢了那么多，到头来不是神乐光一捅就给放干了，打都不用打。
 
+
+
+*****
+
+####  ardito  
+##### 448#       发表于 2022-1-3 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54149845&amp;ptid=2043629" target="_blank">rainknine 发表于 2022-1-3 18:10</a>
+
+但蕉观战的那两次maya也没赢哪怕一次啊
+
+感觉，说服力不如背叛的金牛座，至少金牛座最后萌p看上去 ...</blockquote>
+那反过来说要是把鹅放下去看，蕉不是一样是赢不得的局<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+要说蕉之前那种守护大家闪耀的路线已经基本退环境了，再是这套真跟鹅再打一局也就是手游主线，被喷傲慢破防然后寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒希望蕉蕉有点新的目标，孤独和傲慢已经到了头，同学都成长了，别一到revue还是老三件。有点扯远
+
+蕉在99届里背板，打的同学也是被自己锁死的，九话结束，十话就整了个更高更远。什么叫舞台少女は日々進化中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片说是战力唯心，圣翔队真是单纯的不行，就430L前半句，一个人不成事，也过不了重启。九话恋哥哥是什么都不懂，回头一句要和小光一起摘星就把蕉蕉砍了，八话阿光怎么赢，看滑翔那段的歌词就行了。再看一集光，闪耀不足又想把华恋隔离出去，进场就被纯那吊起来打。这要不是届杀又给蕉蕉秀了一波，都没啥好说的
+
+至于英国那个闪耀怪，光恋1.1个闪耀蕉看了都抹布吸，不是很看好阿蕉单刷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
