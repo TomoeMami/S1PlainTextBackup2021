@@ -15910,3 +15910,57 @@ Omicron已经有血清分型的倾向了
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  洞庭湖  
+##### 2823#       发表于 2022-1-3 16:11
+
+ 本帖最后由 洞庭湖 于 2022-1-3 16:15 编辑 
+
+继续跟踪，普通病床数占用，12月28日和1月2日，来源[https://protect-public.hhs.gov/pages/hospital-utilization](https://protect-public.hhs.gov/pages/hospital-utilization)
+
+1228-1.png
+(108.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202201/03/161000e0jqfbscy0cbcggh.png" referrerpolicy="no-referrer">
+
+2022-01-02-1.JPG
+(116.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 16:10 上传
+
+<img src="https://img.saraba1st.com/forum/202201/03/161001c7h22oh22ph6r2z2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洞庭湖  
+##### 2824#       发表于 2022-1-3 16:14
+
+ICU病床，12月28日和1月2日。
+[https://protect-public.hhs.gov/pages/hospital-utilization](https://protect-public.hhs.gov/pages/hospital-utilization)
+
+<img src="https://img.saraba1st.com/forum/202201/03/161444f604o075h80c6uhp.png" referrerpolicy="no-referrer">
+
+<strong>1228-2.png</strong> (122.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 16:14 上传
+
+2022-01-02-2.JPG
+(122.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202201/03/161444ufr66krflk6pqdxq.jpg" referrerpolicy="no-referrer">
+

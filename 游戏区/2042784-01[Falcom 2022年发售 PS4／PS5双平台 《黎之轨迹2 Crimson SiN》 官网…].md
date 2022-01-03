@@ -2414,3 +2414,12 @@ ps5版至少loading问题可以解决了
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  零崎不识  
+##### 205#       发表于 2022-1-3 16:18
+
+法老控掌握了财富代码，艾蕾因+师姐
+
