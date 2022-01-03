@@ -10514,3 +10514,36 @@ gamers永远忠于彩虹！<img src="https://static.saraba1st.com/image/smiley/f
 
 不是bug是feature<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9893#       发表于 2022-1-3 20:45
+
+[https://twitter.com/ratna_petit/status/1477973013026902018](https://twitter.com/ratna_petit/status/1477973013026902018)
+
+<img src="https://img.saraba1st.com/forum/202201/03/204451zsjdlj0da21n0eea.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220103204418.jpg</strong> (121.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-3 20:44 上传
+
+休止+新衣装，combo打满了
+
+*****
+
+####  hulaoda007  
+##### 9894#       发表于 2022-1-3 20:56
+
+星川ァ的新衣服有点和大小姐的衣服撞车的感觉？
+
+*****
+
+####  格林卡罗尔  
+##### 9895#       发表于 2022-1-3 20:59
+
+类似的太多了，要我说和她自己的旧衣服就属性对撞了
+
