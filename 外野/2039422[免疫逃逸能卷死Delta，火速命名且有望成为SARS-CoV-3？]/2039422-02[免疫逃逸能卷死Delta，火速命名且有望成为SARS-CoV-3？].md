@@ -16094,3 +16094,17 @@ mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你
 
 也不对，增加了床位了
 
+
+
+*****
+
+####  smy20011  
+##### 2835#       发表于 2022-1-4 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54150493&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-3 19:09</a>
+
+29号到2号icu
+
+看总数从5万8涨到了6万2左右涨了0.4万</blockquote>
+更多医院上报信息,结果这些医院新冠患者不多?
+
