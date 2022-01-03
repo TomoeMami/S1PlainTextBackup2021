@@ -10547,3 +10547,26 @@ gamers永远忠于彩虹！<img src="https://static.saraba1st.com/image/smiley/f
 
 类似的太多了，要我说和她自己的旧衣服就属性对撞了
 
+
+
+*****
+
+####  cckuku  
+##### 9896#       发表于 2022-1-3 22:44
+
+救命，我b站日v的相关推荐已经全被en那个狐狸给污染了，我发誓我一次都没看过他啊！
+
+*****
+
+####  rzrbtk  
+##### 9897#       发表于 2022-1-3 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54150354&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-1-3 18:59</a>
+
+不一定吧，可以在sky录虹quiz的时候顺带录下跳绳，毕竟暂停录quiz也就最近几个月的事
+
+syl 小熊猫5号复活， ...</blockquote>
+主要是当时那个语气有种还未休止的感觉,不过大部分人感觉是录nju的时候顺路去的。
+
+省一楼，麻将杯分组，郡跟莉莉叶山lr一组，感觉近期跟eden联动很多，也许是好事
+
