@@ -2432,3 +2432,12 @@ ps5版至少loading问题可以解决了
 
 法老控不会在遛粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  phyc  
+##### 207#       发表于 2022-1-3 19:41
+
+这个艾蕾因有点像艾莉啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
