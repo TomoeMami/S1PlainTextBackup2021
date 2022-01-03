@@ -3427,3 +3427,14 @@ Subaru...
 
 整个一蘑菇队长啊 道具运有点差<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月孝三  
+##### 13843#       发表于 2022-1-3 09:23
+
+补了录像，真是菜的抠脚。以后还是主办lol大会吧
+
+不过嗦面也不错，难以抉择捏
+
