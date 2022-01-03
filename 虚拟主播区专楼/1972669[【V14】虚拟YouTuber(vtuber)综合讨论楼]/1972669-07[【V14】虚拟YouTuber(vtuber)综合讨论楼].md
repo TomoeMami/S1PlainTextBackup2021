@@ -10377,3 +10377,18 @@ gamers带头冲锋<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 ex gamers永远不会让我失望<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9881#       发表于 2022-1-3 13:27
+
+<blockquote>443421870 发表于 2022-1-3 02:41
+</blockquote>
+谢谢！
+
+没有年增量就去查了去年的男v收入排行，从关sc(2020.9)开始到现在差不多660万日元
+
+比我印象里多一点……考虑到他3D披露的时候也才300万sc其实还挺多的，虽然这点钱前排随便开个纪念回就有了
+

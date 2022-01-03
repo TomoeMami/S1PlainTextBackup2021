@@ -5454,3 +5454,35 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 年后有没有回老家就不知道了
 
+
+
+*****
+
+####  kata魂  
+##### 3521#       发表于 2022-1-3 13:32
+
+鲤鱼又发了那个视频……这到底是咋回事
+
+*****
+
+####  D麦林  
+##### 3522#       发表于 2022-1-3 13:34
+
+昨天那视频重发了
+
+*****
+
+####  lj205  
+##### 3523#       发表于 2022-1-3 13:35
+
+鲤鱼台历收到，感觉…………印刷质量一般……
+
+*****
+
+####  cybernetics31  
+##### 3524#       发表于 2022-1-3 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147370&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-3 13:35</a>
+鲤鱼台历收到，感觉…………印刷质量一般……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个重点是签名啊
+
