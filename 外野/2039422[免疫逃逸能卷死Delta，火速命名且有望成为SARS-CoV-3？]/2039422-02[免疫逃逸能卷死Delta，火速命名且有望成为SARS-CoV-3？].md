@@ -16117,3 +16117,76 @@ mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你
 
 印——度——啊——
 
+
+
+*****
+
+####  jxwats1  
+##### 2837#       发表于 2022-1-4 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54150239&amp;ptid=2039422" target="_blank">ひびき 发表于 2022-1-3 18:50</a>
+
+mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你怪技术不行？</blockquote>
+啥？针对德尔塔的灭活疫苗不是也早就做出来了吗？
+[https://www.sohu.com/a/488499069_359980](https://www.sohu.com/a/488499069_359980)
+
+*****
+
+####  3333qwe  
+##### 2838#       发表于 2022-1-4 02:41
+
+ 本帖最后由 3333qwe 于 2022-1-4 02:47 编辑 
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+7E0EABAA-B867-48E0-BE98-A68803D52119.webp
+(28.14 KB, 下载次数: 0)
+
+2022-1-4 02:39 上传
+
+点击文件名下载附件
+
+由手机上传
+
+mild的解释 
+[https://www.businessinsider.com/studies-omicron-less-severe-attacks-lung-cells-TMPRSS2-Gupta-COVID-2021-12](https://www.businessinsider.com/studies-omicron-less-severe-attacks-lung-cells-TMPRSS2-Gupta-COVID-2021-12)
+
+o真的是mild了？
+
+*****
+
+####  Redis  
+##### 2839#       发表于 2022-1-4 02:48
+
+灭活这个
+
+西安按照公开的接种率可是95%
+
+你也不能说这个没用不是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2840#       发表于 2022-1-4 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154543&amp;ptid=2039422" target="_blank">3333qwe 发表于 2022-1-4 02:41</a>
+
+mild的解释 
+
+https://www.businessinsider.com/studies-omicron-less-severe-attacks-lung-cells-TMPRSS2- ...</blockquote>
+所有的研究指向的都是mild
+
+*****
+
+####  jxwats1  
+##### 2841#       发表于 2022-1-4 02:57
+
+ 本帖最后由 jxwats1 于 2022-1-4 04:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154543&amp;ptid=2039422" target="_blank">3333qwe 发表于 2022-1-4 02:41</a>
+
+mild的解释 
+[https://www.businessinsider.com/studies-omicron-less-severe-attacks-lung-cells-TMPRSS2-](https://www.businessinsider.com/studies-omicron-less-severe-attacks-lung-cells-TMPRSS2-) ...</blockquote>
+omicron确实更难传染到肺部，这里之前已经讨论过一波了。
+
+我觉得越来越多证据证明了至少对先前感染过的或者打过疫苗的来说，住院率和入院时长确实降低了；而且在各国观测到的住院率也确实更低。但是对没打过疫苗也没感染过的人来说（比如儿童）mild的证据非常有限
+
