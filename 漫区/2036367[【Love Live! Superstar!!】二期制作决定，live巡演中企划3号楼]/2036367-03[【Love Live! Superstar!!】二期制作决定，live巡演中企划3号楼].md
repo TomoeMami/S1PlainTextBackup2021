@@ -5675,3 +5675,14 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 3544#       发表于 2022-1-3 22:17
+
+这点和可可一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
