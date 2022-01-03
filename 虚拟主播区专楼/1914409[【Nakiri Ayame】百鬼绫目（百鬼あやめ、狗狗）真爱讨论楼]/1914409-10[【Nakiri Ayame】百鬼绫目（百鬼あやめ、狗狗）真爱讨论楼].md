@@ -3468,3 +3468,12 @@ Subaru...
 昨天的同接虽然低的离谱，YouTube确实有问题，但红包没少收
 等下可以看看和towa录了什么歌
 
+
+
+*****
+
+####  stedckk  
+##### 13846#       发表于 2022-1-3 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就她那动不动掉坑的水平，能进决赛偷笑了
+
