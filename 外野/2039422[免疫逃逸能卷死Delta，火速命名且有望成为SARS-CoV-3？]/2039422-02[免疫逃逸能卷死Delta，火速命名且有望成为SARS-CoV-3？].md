@@ -16040,3 +16040,36 @@ https://protect-public.hhs.gov/pages/hospital-utilization</blockquote>
 
 有可能是纳入系统的医院数目在不断增加，所以百分比下来了。病人总数是上升的。12月28日只有5400家医院汇报，1月2号是6000多家了。
 
+
+
+*****
+
+####  ひびき  
+##### 2831#       发表于 2022-1-3 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54148253&amp;ptid=2039422" target="_blank"> yuandi0120 发表于 2022-1-3 15:15</a> 引用:smy20011 发表于 2022-1-3 14:30 这锅也不是mrna背，这不是fda不批准么。技术再先进管理部门不批准也没用啊。出一个新变种，pfizer可以在 ... 问题在于别家也没绕过fda啊，如果mrna的优点只有在给自己开后门而且还无视一切行政成本的真空中的球形鸡条件下才能体现出来，那哪怕这个优点真的存在，在现实中这个技术也大概率落不到实处了。 </blockquote>
+流感每新出一个变种做了二期就能上，凭什么新冠就要重做三期呢？
+
+阴谋点想，辉瑞和摩德纳给fda孝敬的还不够多来自: iPhone客户端
+
+*****
+
+####  ひびき  
+##### 2832#       发表于 2022-1-3 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54149686&amp;ptid=2039422" target="_blank"> charse2r 发表于 2022-1-3 17:51</a> 引用:smy20011 发表于 2022-1-3 12:09 就跟1 1等于二一样的常识性问题 你觉得需要在新闻上提是你的常识不过关  而且如果我没记错的话,当时没有 ... 哦，现在才知道可能有“可以逃脱mrna的变种出现”了啊？当时怎么瞒着不说啊？就使劲贷款吹贬低灭活？ </blockquote>
+mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你怪技术不行？
+
+来自: iPhone客户端
+
+*****
+
+####  琉璃  
+##### 2833#       发表于 2022-1-3 18:56
+
+ 本帖最后由 琉璃 于 2022-1-3 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54150239&amp;ptid=2039422" target="_blank">ひびき 发表于 2022-1-3 18:50</a>
+
+mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你怪技术不行？</blockquote>
+灭活对德尔塔不上加强针都有60%率，对奥密克戎才效果不好。一周前对奥密克戎加强针已经上报了，现在的倾向是使用“两针一吸”的混合加强方式。
+
