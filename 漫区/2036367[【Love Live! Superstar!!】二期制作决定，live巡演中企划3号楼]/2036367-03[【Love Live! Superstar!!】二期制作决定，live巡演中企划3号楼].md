@@ -5653,3 +5653,14 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 在考虑要不要教鲤鱼贴胶布带<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然也是玄学，但多少还是有点用吧
 
+
+
+*****
+
+####  ads147147  
+##### 3542#       发表于 2022-1-3 21:09
+
+年纪大了加过去没训练过肌肉拉伸不够，看踢腿就知道鲤鱼腿都踢不高，只能说还能靠训练多找补了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
