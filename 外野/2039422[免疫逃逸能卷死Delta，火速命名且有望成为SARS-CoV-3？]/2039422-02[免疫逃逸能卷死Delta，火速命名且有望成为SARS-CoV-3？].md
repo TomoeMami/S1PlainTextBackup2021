@@ -15804,3 +15804,30 @@ Omicron已经有血清分型的倾向了
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  yuandi0120  
+##### 2815#       发表于 2022-1-3 14:29
+
+ 本帖最后由 yuandi0120 于 2022-1-3 14:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146189&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-3 11:49</a>
+
+任何一个疫苗，都不会要求能对付一年之后的变种。如果你觉得这是打脸了mrna支持者的话，你要考虑一下你对 ...</blockquote>
+但是就算我们把能不能对付一年之后的变种这个问题放到一旁，mrna当初的一大吹点是“可以迅速设计”、“可以更快、更便宜、更标准化地生产（生产中的错误率更低），这可以提高对严重疫情的反应能力 。”
+
+现在看来，在omicron的极高速传染速度面前这些优点全都没有表现机会了啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，你总不能等全世界所有人都得过一遍了下一种变种已经开始出现才把omicron的疫苗搞出来，那我还不如慢慢搞灭活呢，反正已经赶不上了不如选一个容易保存还有技术积累的。
+
+*****
+
+####  smy20011  
+##### 2816#       发表于 2022-1-3 14:30
+
+ 本帖最后由 smy20011 于 2022-1-3 14:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147850&amp;ptid=2039422" target="_blank">yuandi0120 发表于 2022-1-3 14:29</a>
+但是就算我们把能不能对付一年之后的变种这个问题放到一旁，mrna当初的一大吹点是“可以迅速设计”、“可 ...</blockquote>
+这锅也不是mrna背，这不是fda不批准么。技术再先进管理部门不批准也没用啊。出一个新变种，pfizer可以在两个月之内拿出量产的疫苗，不过fda是不可能批的。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

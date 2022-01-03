@@ -5617,3 +5617,47 @@ tv版的时候虽然很喜欢但一直觉得拘泥于对几原风格的模仿，
 或者认同双面蕉论，也挺好的（
 打带英首席这种当了top star就把其它人的闪耀烧掉，实现的目标也只是让自己的舞台动作更优美的人，没其他补充塑造的话，感觉不如tv本篇天堂，应该能切到第七话再演蕉全杀了吧，大概。
 
+
+
+*****
+
+####  ardito  
+##### 435#       发表于 2022-1-3 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147474&amp;ptid=2043629" target="_blank">海晟天锻 发表于 2022-1-3 13:47</a>
+
+剧场版蕉鹅这俩人一个代表酒神一个代表日神，按你歌的指代这是相互制约相互对立的同格啊
+
+  -- 来自 ...</blockquote>
+蕉都被丢到观众席上看鹅两次了，要说对立吧，对面可没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海晟天锻  
+##### 436#       发表于 2022-1-3 14:41
+
+我是说酒神日神精神是相互制约对立的，鹅代表日神崇尚虚假和谐完美的幻境（指完美的舞台容器）然后被克洛砍了，蕉代表酒神崇尚天人合一的狂欢（指野兽的狩猎）然后被纯那砍了，前面也是这俩人再认真对戏，我是想说这俩人在revue里的定位是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  jstcsjx  
+##### 437#       发表于 2022-1-3 14:41
+
+TV里面鹅的精神面起点是最高的，TV懂王，导师役。
+
+开头看出光缺失闪耀，第三话指出华恋不足，第六话看破香子双叶关系，第七话指出蕉的想法，第十话看出华恋和光两人闪耀的本质，再加上对克洛一直以来的在意，甚至还学了法语。
+
+*****
+
+####  ardito  
+##### 438#       发表于 2022-1-3 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54147944&amp;ptid=2043629" target="_blank">海晟天锻 发表于 2022-1-3 14:41</a>
+
+我是说酒神日神精神是相互制约对立的，鹅代表日神崇尚虚假和谐完美的幻境（指完美的舞台容器）然后被克洛砍 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没毛病
+
+当然最后终归还是回到蕉蕉忠诚的观众席<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
