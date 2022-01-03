@@ -766,3 +766,26 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
 
 — from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  CswStar  
+##### 74#       发表于 2022-1-3 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54109666&amp;ptid=2044935" target="_blank">koodooliz 发表于 2021-12-31 04:14</a>
+
+想着看看有没有兄弟连系列，才发现最后的正作地狱公路都是08年的了，巴斯通遥遥无期，
+
+这种走真 •  ...</blockquote>
+兄弟连那个血腥效果真的让我印象深刻，之后在没见过有游戏那么搞得了，有点怀念成为罐头厂前的育碧。
+
+*****
+
+####  UmarIbnLaAhad  
+##### 75#       发表于 2022-1-3 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54126720&amp;ptid=2044935" target="_blank">ybfelix 发表于 2022-1-1 13:08</a>
+ 现在还觉得2代Hargreaves大宅里那几套空的纳米战甲如果能动起来和玩家打一场闹鬼盔甲boss战，无论是游戏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就二代那个ai水平，在这种没掩体的房间打纳米服大概要么是玩家继续靠隐身机制玩弄ai，要么是ai强行看破隐身再拿数值恶心玩家，这种设定在剧情上挺合适的，实际游戏还是免了
+
