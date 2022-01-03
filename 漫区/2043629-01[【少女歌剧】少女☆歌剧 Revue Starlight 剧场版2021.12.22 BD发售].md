@@ -5753,3 +5753,17 @@ maya是首席
 
 都很正常，大家和和气气根据剧情互秒<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wuliaozheX  
+##### 446#       发表于 2022-1-3 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54149528&amp;ptid=2043629" target="_blank">iceskey 发表于 2022-1-3 17:35</a>
+BGM排名已经到80了</blockquote>
+桀桀，等不及看婆罗门破防啦<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+再高点再高点
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
