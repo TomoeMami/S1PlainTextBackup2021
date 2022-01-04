@@ -8827,3 +8827,28 @@ FIAVjrYVgAIhVv2.jpg
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  UNISONIA  
+##### 86363#       发表于 2022-1-4 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54135127&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-1-2 09:42</a>
+
+看样子换了A爹后效率提高了，这个估计有可能。</blockquote>
+ラセングル那家公司还没有正式上线，时至今日官网和游戏里的名义还是DW
+
+另外他们似乎不打算搬离原办公地址，估计还是和DW在同一楼进行办公
+
+*****
+
+####  khxooo  
+##### 86364#       发表于 2022-1-4 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155281&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-4 08:51</a>
+ラセングル那家公司还没有正式上线，时至今日官网和游戏里的名义还是DW
+
+另外他们似乎不打算搬离原办公地 ...</blockquote>
+估计人手方面A爹有派人过去增援吧。
+
