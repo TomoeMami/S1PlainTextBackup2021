@@ -6001,3 +6001,18 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 鲤鱼这对打铁的记恨好深啊，打铁在家乡可要支棱起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zylwz  
+##### 3572#       发表于 2022-1-4 20:18
+
+小百合怎么对鱼喊岬的反应这么大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结合nako之前的艺名是东田岬 再加上小百合这么大的反应
+
+我合理猜测岬是nako的真名的名字
+
+都直呼名字了 那反应确实会大一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

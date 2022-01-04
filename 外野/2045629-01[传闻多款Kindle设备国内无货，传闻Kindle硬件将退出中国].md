@@ -2533,3 +2533,12 @@ a7常用，dxg吃灰
 就是kindle在中国真卖不动了，从17年开始的调整CN整个的意义就是 ...</blockquote>
 现在海外购还可以吗？我从外国疫情爆了之后就不敢买了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jyky  
+##### 248#       发表于 2022-1-4 20:10
+
+借楼问一下，ios的kindle app删了一次后再装就怎么都切换不到日服了，应该怎么操作？
+
