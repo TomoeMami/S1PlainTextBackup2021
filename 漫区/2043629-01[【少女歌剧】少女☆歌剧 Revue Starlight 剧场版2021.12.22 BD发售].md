@@ -6448,3 +6448,29 @@ https://revuestarlight.bushimo.jp/2019/06/01/180/</blockquote>
 メインストーリー新章「削劇『天堂真矢 ...</blockquote>
 那就是记错了，不过56章还是不错的，和人物性格也对的上。1-3那就是各种魔怔人大合集。
 
+
+
+*****
+
+####  第五秋  
+##### 496#       发表于 2022-1-4 23:17
+
+凛明馆的剧情和结构、主题真的不错
+
+幻想能动画化（）
+
+*****
+
+####  franly  
+##### 497#       发表于 2022-1-4 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">虽然演出比TV版工整了很多，但是在看到迷宫组之前都是面无表情的
+
+可能古川哥哥太想整活了吧，前面两个舞台过于生草完全无法共情
+
+几个舞台论个人喜好程度的话迷宫组&gt;&gt;&gt;&gt;&gt;蕉纯&gt;花叶
+
+至于两个女主的主线，我只能说逼人戏再多也无法挽回在我心中的形象，反而觉得更恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+大概会复习几次迷宫组的舞台，但是TV3集和7集那种mindf*ck感再也没有了
+

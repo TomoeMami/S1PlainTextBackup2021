@@ -16678,3 +16678,19 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 
 奶一个3k同接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 7364#       发表于 2022-1-4 23:14
+
+草，待机还八千呢，一开播掉两千了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7365#       发表于 2022-1-4 23:17
+
+这同接真的爆笑了🤣🤣
+
