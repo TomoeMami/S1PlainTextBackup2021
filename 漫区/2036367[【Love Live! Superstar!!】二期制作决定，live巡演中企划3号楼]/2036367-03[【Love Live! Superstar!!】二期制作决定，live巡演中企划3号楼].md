@@ -6269,3 +6269,20 @@ v2修正版~
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  仟音一心  
+##### 3589#       发表于 2022-1-5 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163128&amp;ptid=2036367" target="_blank">zylwz 发表于 2022-1-4 20:18</a>
+
+小百合怎么对鱼喊岬的反应这么大
+
+结合nako之前的艺名是东田岬 再加上小百合这么大的反应
+
+我合理猜测 ...</blockquote>
+
+东田岬大概率就是真名，有人去查过。
+
