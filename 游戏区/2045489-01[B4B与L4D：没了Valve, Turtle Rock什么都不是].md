@@ -589,3 +589,20 @@ v社属实牛，有些东西也是做半条命积累下来的，貌似求生之�
 
 部位破坏，我知道的能做比较细的，除了求生之路外就是《杀戮空间》了
 
+
+
+*****
+
+####  kyonkoo  
+##### 66#       发表于 2022-1-4 17:38
+
+2021-12-18
+
+腾讯现已收购《喋血复仇》、《求生之路》的开发商 Turtle Rock Studios 的母公司 Slamfire，在此次收购之后 Turtle Rock Studios 将保持独立运营，也仍由其联合创始人 Phil Robb 和 Chris Ashton 领导。 
+
+Turtle Rock Studios 也承诺此次收购并不会对华纳兄弟发行的《喋血复仇》产生任何影响。
+
+“我们都很期待加入腾讯工作室的大家庭。”Turtle Rock Studios 的总裁兼总经理 Steve Goldstein 对此次收购表示道，“腾讯杰出的合作伙伴、全球的影响力以及深厚的游戏知识和前所未有的支持将帮助我们创造出我们梦想中的各种游戏，并同时允许我们保留我们工作室的独立自主权。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

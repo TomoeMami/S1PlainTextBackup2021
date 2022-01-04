@@ -16564,3 +16564,24 @@ https://www.uscardforum.com/t/topic/61480?page=2
 
 日本这个“全员入院”的蓝鸟热搜猛一看还挺吓人
 
+
+
+*****
+
+####  lvcha  
+##### 2872#       发表于 2022-1-4 17:21
+
+o记到底卷赢了d记吗？别到时候d记再卷土重来混合双打
+
+*****
+
+####  讨喜の弟控  
+##### 2873#       发表于 2022-1-4 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160195&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 15:49</a>
+https://www.uscardforum.com/t/topic/61480?page=2
+
+美国华人论坛自述得omicron的症状，最夸张的一个5针疫 ...</blockquote>
+等会？我没看错吧？5针疫苗？
+所以是2针灭活+3针mrna？
+

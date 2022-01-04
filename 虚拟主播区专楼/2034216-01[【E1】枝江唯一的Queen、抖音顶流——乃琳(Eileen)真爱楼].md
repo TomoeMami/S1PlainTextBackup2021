@@ -5187,3 +5187,30 @@ BV1AW411b7Te BV1SX4y1u7qr BV1Wr4y1Q7sa
 
 今天很开心 乃宝晚安啦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanlow666  
+##### 384#         楼主| 发表于 2022-1-4 17:21
+
+乃琳Queen:[【翻唱】乃琳 ❤ Marry You ❤ 在月下接受我的告白吧【直播】](https://t.bilibili.com/611728124643444422)
+
+（运营代发）
+
+素材来自1月2日乃琳50w粉丝纪念直播
+歌曲：Marry You
+原唱：Bruno Mars
+翻唱：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202201/04/172116rfoflflzcq35knky.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (148.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 17:21 上传
+

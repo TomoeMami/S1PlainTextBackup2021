@@ -5959,3 +5959,16 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 这放假心还没收回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 3568#       发表于 2022-1-4 17:27
+
+【唐可可比我更重要吗？！-哔哩哔哩】 https://b23.tv/9y57F8G
+
+百合样板戏成功百万，单独切片都没这么多。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
