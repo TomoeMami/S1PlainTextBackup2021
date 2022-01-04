@@ -16633,3 +16633,12 @@ Astrocytes might be vulnerable even if t ...</blockquote>
 PCR阴性不如阳性有说服力，因为可能是技术不好，比如取样RP不行或者测序深度不够<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 另外，这篇论文能发nature，很显然是因为找到对脑中各种细胞的影响，这篇文章的立论中心是对脑功能的潜在影响。对普通人来讲，知道有证据证明新冠影响大脑，比具体通路（是不是在大脑复制etc）更重要一些。至于新冠病毒怎么影响大脑有些反复扯皮非常正常。
  <blockquote>. Here we profile 65,309 single-nucleus transcriptomes from 30 frontal cortex and choroid plexus samples across 14 control individuals (including 1 patient with terminal influenza) and 8 patients with COVID-19. <strong>Although</strong> our systematic analysis yields no molecular traces of SARS-CoV-2 in the brain, <strong>we observe broad cellular perturbations indicating that barrier cells of the choroid plexus sense and relay peripheral inflammation into the brain and show that peripheral T cells infiltrate the parenchyma. </strong>We discover microglia and astrocyte subpopulations associated with COVID-19 that share features with pathological cell states that have previously been reported in human neurodegenerative disease4,5,6. Synaptic signalling of upper-layer excitatory neurons—which are evolutionarily expanded in humans7 and linked to cognitive function8—is preferentially affected in COVID-19. Across cell types, perturbations associated with COVID-19 overlap with those found in chronic brain disorders and reside in genetic variants associated with cognition, schizophrenia and depression. <strong>Our findings and public dataset provide a molecular framework to understand current observations of COVID-19-related neurological disease, and any such disease that may emerge at a later date.</strong></blockquote>
 
+
+
+*****
+
+####  eveshell  
+##### 2878#       发表于 2022-1-4 21:38
+
+美国分析1月底会出来死亡最高峰，之后就在今年2022结束疫情。如果奥密克戎传播够快，能否死够，达成群体免疫呢？
+
