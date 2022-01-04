@@ -16256,3 +16256,24 @@ mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你
 
 —— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ak123  
+##### 2848#       发表于 2022-1-4 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155984&amp;ptid=2039422" target="_blank">米村正二 发表于 2022-1-4 09:59</a>
+根据美国约翰斯·霍普金斯大学统计数据，截至北京时间2022年1月4日7时22分，美国新冠肺炎累计确诊病例达到5 ...</blockquote>
+然而检测机构都放假了，真正发威的峰值要等两天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kira1988  
+##### 2849#       发表于 2022-1-4 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155984&amp;ptid=2039422" target="_blank">米村正二 发表于 2022-1-4 09:59</a>
+
+根据美国约翰斯·霍普金斯大学统计数据，截至北京时间2022年1月4日7时22分，美国新冠肺炎累计确诊病例达到5 ...</blockquote>
+这是天赐的疫苗啊（狗头），赶紧让所有美国人，英国人都得上一遍就胜利了
+

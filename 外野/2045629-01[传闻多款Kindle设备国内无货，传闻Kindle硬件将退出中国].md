@@ -1318,3 +1318,68 @@ Kindle软件的逻辑脑残度真的是标准老外尿路
 “全部分类”里面搜索kindle，倒是有6w+条了：
 <img src="http://tvax4.sinaimg.cn/large/007WH5Y2ly1gy1geuw7g6j32yo1fru0x.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  EFSF  
+##### 135#       发表于 2022-1-4 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156674&amp;ptid=2045629" target="_blank">Nanachi 发表于 2022-1-4 11:02</a>
+
+我不禁好奇了起来，国内的kindle电子书到底有多少本呢？
+
+打开中亚的kindle商店页面：</blockquote>
+哪用搜，你kindle电子书主页到到下面就有一个kindle电子书商店（测试版），显示一共有超过20000个商品。
+
+不做纸质书了和出版社谈不下来，有20000多个也算是出版社给面子了。
+
+*****
+
+####  调教大师  
+##### 136#       发表于 2022-1-4 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154448&amp;ptid=2045629" target="_blank">BallanceHZ 发表于 2022-1-4 02:04</a>
+
+微信阅读体验真的爆杀kindle</blockquote>
+自从开始用微信读书，再也没有开过KINDLE
+
+*****
+
+####  vf503  
+##### 137#       发表于 2022-1-4 11:12
+
+[f:0<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好奇zlib是怎么处理版权问题的 
+
+*****
+
+####  obeyalsodie  
+##### 138#       发表于 2022-1-4 11:13
+
+手里的KO2用的实在不多，大多时候都在用手机上的阅读看网文，后悔kindle买早了，如果是现在的话我宁可买个安卓系统的
+
+*****
+
+####  sscc225  
+##### 139#       发表于 2022-1-4 11:14
+
+我的kindle都成泡面盖了，不太方便，买了个海信A5安卓的电纸书手机
+
+*****
+
+####  benhawk  
+##### 140#       发表于 2022-1-4 11:14
+
+话说到底kindle显示质量是什么级别的，好几个测评视频，都说kindle屏幕素质最好
+
+*****
+
+####  sdefrfg  
+##### 141#       发表于 2022-1-4 11:17
+
+calibre + zlib就可以了，完全不需要用到亚马逊的生态
+支持正版的时候就直接买实体版了
+不过电纸书这东西确实只有看传统文学的时候最有用，没有这个需求就容易当泡面盖
+
+— from samsung SM-G781W, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
