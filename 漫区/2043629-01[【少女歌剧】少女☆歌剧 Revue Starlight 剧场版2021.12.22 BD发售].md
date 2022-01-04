@@ -6392,3 +6392,36 @@ https://b23.tv/f9pm8YJ
 
 只是想要一个写脚本的+噱头的可能性更大一点，毕竟是塔罗牌卡面图不改动，正位和逆位都能出两个礼装的屑策划<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  青龙圣者  
+##### 492#       发表于 2022-1-4 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162480&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 19:06</a>
+
+前面楼回复过，剧场版里用电车广告、传单的方式提及了一点手游和舞台角色的存在，我很喜欢这种点到为止的 ...</blockquote>
+古川是监修，当时塔罗篇宣传就这么写的。
+
+官网上有
+[https://revuestarlight.bushimo.jp/2019/06/01/180/](https://revuestarlight.bushimo.jp/2019/06/01/180/)
+
+*****
+
+####  unnilennium  
+##### 493#       发表于 2022-1-4 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162666&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-4 19:26</a>
+
+古川是监修，当时塔罗篇宣传就这么写的。
+
+官网上有
+
+https://revuestarlight.bushimo.jp/2019/06/01/180/</blockquote>
+你发的链接里写的并不是塔罗啊。古川和樋口参与兼修的部分是：
+
+メインストーリー新章「削劇『天堂真矢』」开始，包括「死にゆく王と四人の騎士」、「名門、落つ」、「自称、舞台少女」到「作劇、舞台少女」结束。
+
+「アルカナ・アルカディア」的部分是单独的章节了，这里只提到了樋口一个人，491L我发的官方的推特连接有写。
+
