@@ -2417,3 +2417,23 @@ kindle还边缘业务，怕是中亚是要变成印象笔记那样啊</blockquot
 看到这第一本就想起了几年前被呛的日亚，去年开始崩掉的LK，还有现在疑似同样被办的bw了，看轻小说越来越 ...</blockquote>
 lk和bw是啥，倾国？
 
+
+
+*****
+
+####  chilno  
+##### 238#       发表于 2022-1-4 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160407&amp;ptid=2045629" target="_blank">13号 发表于 2022-1-4 16:07</a>
+
+其实如果以前经常电子设备看书的话， 本来就是多种APP都会去用的了。
+
+目前我个人在用的： Kindle为主，基 ...</blockquote>
+那不就是说明根本没有前几页吹的什么国产卷疯了的替代品啊...
+
+看得我都想搞个32G的pw5了
+
+kindle的替代性不管是手机还是ipadmini或者什么app能补足的
+
+最完美的kindle+微信读书能实现就好了
+

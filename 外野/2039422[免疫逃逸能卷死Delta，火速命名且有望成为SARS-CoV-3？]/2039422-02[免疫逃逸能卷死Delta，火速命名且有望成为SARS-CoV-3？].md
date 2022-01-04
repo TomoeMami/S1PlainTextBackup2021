@@ -16585,3 +16585,35 @@ https://www.uscardforum.com/t/topic/61480?page=2
 等会？我没看错吧？5针疫苗？
 所以是2针灭活+3针mrna？
 
+
+
+*****
+
+####  月影挽歌  
+##### 2874#       发表于 2022-1-4 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161472&amp;ptid=2039422" target="_blank">lvcha 发表于 2022-1-4 17:21</a>
+
+o记到底卷赢了d记吗？别到时候d记再卷土重来混合双打</blockquote>
+还有德奥合并经典剧情呢
+
+*****
+
+####  kiragz  
+##### 2875#       发表于 2022-1-4 17:52
+
+如果O的傳染力再點個絕育後裔，能滅絕人類嗎？
+
+—— 来自 Xiaomi M2012K11C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Kanoya  
+##### 2876#       发表于 2022-1-4 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161784&amp;ptid=2039422" target="_blank">kiragz 发表于 2022-1-4 17:52</a>
+如果O的傳染力再點個絕育後裔，能滅絕人類嗎？
+
+—— 来自 Xiaomi M2012K11C, Android 12上的 S1Next-鹅版  ...</blockquote>
+不能，根据澳洲兔子经验，只能灭绝98％
+
