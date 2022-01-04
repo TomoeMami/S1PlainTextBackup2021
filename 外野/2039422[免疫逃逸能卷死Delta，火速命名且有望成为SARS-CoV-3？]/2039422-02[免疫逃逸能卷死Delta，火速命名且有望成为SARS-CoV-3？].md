@@ -16317,3 +16317,48 @@ O这次如何?
 不是说之前的病毒特别喜欢去脑子么</blockquote>
 看到有报道O病毒增值水平很高，复阳概率比德尔塔高的多
 
+
+
+*****
+
+####  smy20011  
+##### 2853#       发表于 2022-1-4 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157029&amp;ptid=2039422" target="_blank">dllplayer 发表于 2022-1-4 11:27</a>
+
+脑脊液PCR检测走一波?
+
+不是说之前的病毒特别喜欢去脑子么</blockquote>
+我看在美国的医生反驳了病毒喜欢去脑子这个说法 检测出的那个本来就患有脑病
+
+*****
+
+####  smy20011  
+##### 2854#       发表于 2022-1-4 11:48
+
+<img src="https://img.saraba1st.com/forum/202201/04/114752hx5x00dvjxvzo8xv.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-03 19.47.38.png</strong> (23.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 11:47 上传
+
+贩卖焦虑2.0
+
+*****
+
+####  dllplayer  
+##### 2855#       发表于 2022-1-4 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157267&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 11:45</a>
+
+我看在美国的医生反驳了病毒喜欢去脑子这个说法 检测出的那个本来就患有脑病 ...</blockquote>
+不是那些大体老师解剖下来都是脑子里有病毒的么
+
+无症状4天后死于脑缺血是可能脑子有病..
+
+问题那么多都能在大脑里检测出病毒啊..
+
+又不是说光脑缺血的那位脑子里有毒
+
