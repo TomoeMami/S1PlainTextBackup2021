@@ -5838,3 +5838,12 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 提醒一下啊，原宿Gamers看板娘选举，今晚11点截止
 [https://www.gamers.co.jp/special/harajuku_kanban/](https://www.gamers.co.jp/special/harajuku_kanban/)
 
+
+
+*****
+
+####  chenflyyy  
+##### 3558#       发表于 2022-1-4 14:53
+
+这投票最大的变数就香音了，而香音人气很大一部分来自sayu，但sayu连转推拉票都没有，再加上国内这边拉票活动搞得挺多的，到处都能看到，可可基本上稳了
+

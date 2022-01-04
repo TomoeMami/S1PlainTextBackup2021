@@ -16523,3 +16523,22 @@ Astrocytes might be vulnerable even if t ...</blockquote>
 法国发现的新毒株能卷走奥密克戎吗</blockquote>
 不是应该几大强毒伺候一个人,这点福气还小吗?
 
+
+
+*****
+
+####  smy20011  
+##### 2869#       发表于 2022-1-4 14:44
+
+ 本帖最后由 smy20011 于 2022-1-4 14:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159261&amp;ptid=2039422" target="_blank">dllplayer 发表于 2022-1-4 14:38</a>
+
+拍老师不是猜因为隔时间太长导致没发现么</blockquote>
+也可能是检测手段过于灵敏导致的，我看了那个原解刨的论文，他们是用的正常的笛卡尔坐标系，也就是说，这里面很多的病毒载量都是要画到坐标轴上的。
+
+我和拍老师都不是专业的，这东西还是等后续论文吧。
+
+感觉如果不是重症（需要机械通氧/ICU）的人，应该不需要担心这个。
+
+比如流感也会在睾丸中存在 [https://www.webmd.com/men/news/2 ... de-range-of-viruses](https://www.webmd.com/men/news/20170913/semen-harbors-wide-range-of-viruses) 之前楼里说没见过病毒入侵脑部的，其实不少病毒都可以[http://jmi.fudan.edu.cn/CN/abstract/abstract633.shtml](http://jmi.fudan.edu.cn/CN/abstract/abstract633.shtml)
+

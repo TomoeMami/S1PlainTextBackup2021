@@ -2029,3 +2029,141 @@ KU是订阅制，但是印象里书库中文这边不是很全，有点鸡肋
 微信读书是唯一会删改书的内容电子书平台，比如三体。上面是微信读书，下面是多看阅读，实体书也没有删。[f ...</blockquote>
 笑了，原来已经到这种地步了吗
 
+
+
+*****
+
+####  MaXia0  
+##### 205#       发表于 2022-1-4 14:46
+
+虽然kindle在国内的用户群，或者说国人看电纸书的人比例确实不高，但是这样的基数都养不活亚马逊的团队我是没想到的。
+我一般看上什么书都是第一时间去亚马逊买，太贵就心愿单，除非根本没有…
+
+*****
+
+####  rockzrq  
+##### 206#       发表于 2022-1-4 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159331&amp;ptid=2045629" target="_blank">张元英 发表于 2022-1-4 14:43</a>
+泥潭都知道盗版会搞死游戏, 却不觉得kindle的死是自己的原因而是ZF打压, 谁来跟我解释一下这逻辑?
+
+ ...</blockquote>
+虽然我觉得相较于国内审查，亚马逊确实可以算一个自由窗口，但是真正自由的在美亚日亚，中亚也就那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，另外被zf逼迫走的逻辑实在是看不懂，感觉这不就是单纯的亚马逊自己的市场布局调整吗
+
+*****
+
+####  chm007  
+##### 207#       发表于 2022-1-4 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157894&amp;ptid=2045629" target="_blank">哈迪斯兜帽 发表于 2022-1-4 12:36</a>
+
+一到重点就开始顾左右而言他
+
+没啥好说的了，希望楼里的懂哥能多做几本中文电子书。 ...</blockquote>
+做了你也不一定看得到，现在都已经在走小圈子分享模式了
+
+*****
+
+####  chm007  
+##### 208#       发表于 2022-1-4 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158979&amp;ptid=2045629" target="_blank">狄一琛2019 发表于 2022-1-4 14:18</a>
+
+行吧，有商城要关的传言了。
+
+没有kindle中文商城后，以后再想看新书就真不容易了，我没意识到这一点。
+
+然而 ...</blockquote>
+正版盗版都苦逼，国产的强大加密，让人买了书只能在自家平台看，一旦换阅读软件，沉没成本相当之高
+
+*****
+
+####  LiberaMe  
+##### 209#       发表于 2022-1-4 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157987&amp;ptid=2045629" target="_blank">哈迪斯兜帽 发表于 2022-1-4 12:45</a>
+
+想知道还有哪个平台可以像亚马逊这样自己就能简单拆包，很急。</blockquote>
+这封面的妹子是白毛二老婆吗···
+
+*****
+
+####  petrouchka  
+##### 210#       发表于 2022-1-4 14:54
+
+KPW用来看那种手拿着酸的大部头奇幻/科幻小说超级好用的，平常就放兜里，电量可以续航很久，墨水屏看久了眼睛也不会疼。
+
+遗憾啊。
+
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 211#       发表于 2022-1-4 14:56
+
+ 本帖最后由 哈迪斯兜帽 于 2022-1-4 14:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159489&amp;ptid=2045629" target="_blank">LiberaMe 发表于 2022-1-4 14:54</a>
+
+这封面的妹子是白毛二老婆吗···</blockquote>
+是的
+
+金发三老婆也已经提上议程了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">政治婚姻
+
+*****
+
+####  LiberaMe  
+##### 212#       发表于 2022-1-4 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159522&amp;ptid=2045629" target="_blank">哈迪斯兜帽 发表于 2022-1-4 14:56</a>
+
+是的
+
+金发三老婆也已经提上议程了政治婚姻</blockquote>
+哈，头发都养长了这得过多少年了
+
+金发是那个想见亲妈的侧马尾吗···
+
+*****
+
+####  Redis  
+##### 213#       发表于 2022-1-4 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157764&amp;ptid=2045629" target="_blank">回锅牛肉 发表于 2022-1-4 12:24</a>
+
+利益相关，kindle只是个开始哈</blockquote>
+中亚要开始清洗了
+
+估计是新ceo上任，要开始砍这些边缘业务了
+
+*****
+
+####  Redis  
+##### 214#       发表于 2022-1-4 15:01
+
+不过我还是麻利的破解一下
+
+有没有把书从kindle里面批量导出的工具可以用？
+
+*****
+
+####  Lygljj  
+##### 215#       发表于 2022-1-4 15:01
+
+说到底，国内看书就是个小众爱好，先不说无处不在的审核自我阉割
+
+就说实体书出版，现在动不动精装+那种密度很低的书页，，一本书又厚又沉，对长时间看书的人来说完全是负反馈
+
+在此基础上，定价也是年年攀高，现在动不动大几十上百，连带着电子版的价格也上升
+
+*****
+
+####  Lygljj  
+##### 216#       发表于 2022-1-4 15:01
+
+说到底，国内看书就是个小众爱好，先不说无处不在的审核自我阉割
+
+就说实体书出版，现在动不动精装+那种密度很低的书页，，一本书又厚又沉，对长时间看书的人来说完全是负反馈
+
+在此基础上，定价也是年年攀高，现在动不动大几十上百，连带着电子版的价格也上升
+
