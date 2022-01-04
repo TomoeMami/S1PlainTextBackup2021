@@ -1904,3 +1904,46 @@ kindle主要还是买书比较方便
 当然主要还是我已经买了很多书了，这个沉没成本不可忽略不计 ...</blockquote>
 沉没成本应该没有的，你买的书还是绑在你的账号上的嘛，Amazon又没有关闭kindle服务
 
+
+
+*****
+
+####  leolodge  
+##### 192#       发表于 2022-1-4 13:51
+
+年中时候就发现淘宝的旗舰店已经关掉了。反正服务在就行，用了kindle app之后就没打开过kindle了。
+
+*****
+
+####  Redis  
+##### 193#       发表于 2022-1-4 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158602&amp;ptid=2045629" target="_blank">luguozmy 发表于 2022-1-4 13:46</a>
+
+沉没成本应该没有的，你买的书还是绑在你的账号上的嘛，Amazon又没有关闭kindle服务 ...</blockquote>
+没有kindle市场了，这个服务开着不也是亏钱
+
+*****
+
+####  lakewest  
+##### 194#       发表于 2022-1-4 13:53
+
+这东西我12年买了一个用到现在了 你们这个也跟手机一样每年换啊？
+
+*****
+
+####  weare17k  
+##### 195#       发表于 2022-1-4 13:59
+
+所以还是没人来解答，为什么会有人觉得砍了硬件，书城和kindle app服务还会继续运营？我依然无法理解这个逻辑
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  无雨中  
+##### 196#       发表于 2022-1-4 14:05
+
+我有个问题
+其他安卓电纸书有没有类似于kindle的第三方推送功能（send to kindle那种的）
+
