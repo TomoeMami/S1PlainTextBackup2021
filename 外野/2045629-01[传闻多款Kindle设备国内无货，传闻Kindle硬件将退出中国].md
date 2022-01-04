@@ -2511,3 +2511,25 @@ iPad的kindle app很好用，可以选勿扰模式之后对我这样的碎片用
 
 微信读书唯一的优点是无限白嫖
 
+
+
+*****
+
+####  拜拜  
+##### 246#       发表于 2022-1-4 19:52
+
+a7常用，dxg吃灰
+
+—— 来自 Hisense HNR320T, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  bubuyu  
+##### 247#       发表于 2022-1-4 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162112&amp;ptid=2045629" target="_blank">EFSF 发表于 2022-1-4 18:24</a>
+19年就清洗干净了，现在哪还是清洗啊。
+
+就是kindle在中国真卖不动了，从17年开始的调整CN整个的意义就是 ...</blockquote>
+现在海外购还可以吗？我从外国疫情爆了之后就不敢买了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
