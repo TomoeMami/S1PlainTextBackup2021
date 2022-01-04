@@ -1501,3 +1501,123 @@ PC端下电子书然后用caliber DRM free插件可破
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  985604670  
+##### 154#       发表于 2022-1-4 12:04
+
+没办法了，大家好好复习外语吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jajajzz  
+##### 155#       发表于 2022-1-4 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154714&amp;ptid=2045629" target="_blank">南去 发表于 2022-1-4 04:51</a>
+有calibre配合zlibrary可以完全抛开kindle自带生态，图个墨水屏罢了。kindle最适合看小说，带插图的和大部 ...</blockquote>
+吹zlib还行，zlib上这两年的中文书除了轻小说基本不都是亚马逊破解出来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 156#       发表于 2022-1-4 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156343&amp;ptid=2045629" target="_blank">onlv星骸 发表于 2022-1-4 10:31</a>
+kindle最近把待机广告删了让我非常怨念... 
+
+我本来还挺喜欢这种随机刷一本书皮当待机封面的感觉...</blockquote>
+最新系统强制显示主页我觉得更不舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jajajzz  
+##### 157#       发表于 2022-1-4 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155585&amp;ptid=2045629" target="_blank">土星六边形 发表于 2022-1-4 09:25</a>
+所以有人告诉本文青一个可以导出购买的电子书并且能够破解去除drm的中文电子书平台吗？ ...</blockquote>
+也不是没有 kobo和pubu 你得忍受台湾贵2-3倍的定价和繁转简多一个步骤或者直接看繁体字。
+最主要的是丰富度除了漫画和轻小说实际不如亚马逊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyupha  
+##### 158#       发表于 2022-1-4 12:15
+
+ 本帖最后由 zyupha 于 2022-1-4 12:20 编辑 
+
+这楼看得血压上来了，
+有些人到底站在哪边？
+作为读者难道不希望drm做得差一点？
+作为利益相关难道不希望它活下去？
+可是却一边骂反盗版做得差，一边嘲笑它死了活该？
+懂了，这楼里骂亚马逊死的好的一定是国内那些drm做得好的竞品的利益相关者，是群众的敌人呢
+
+算了，最近各种海盗越来越难找，这就是资本的力量吧，毕竟做事越绝的资本越容易活下去。
+
+—— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天下至贱| + 2|唉|
+
+查看全部评分
+
+*****
+
+####  天下至贱  
+##### 159#       发表于 2022-1-4 12:17
+
+你们没必要这么看不上kindle和中亚吧...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+举个例子，我最近在读的两本，关于我爱我家幕后的两本书，《当明天成为昨天——“我家”冷暖二十年》和《我爱·我家》，我刚才查了下你们推荐的微信读书上是没有的，搜了下海盗网上倒是有相关资源，可是试着下载后发现跟我在Kindle商店买的版本是一模一样的，中亚倒了后这种相对冷门小众的书真的还会有人做mobi资源吗，我不太相信。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  春日研  
+##### 160#       发表于 2022-1-4 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157690&amp;ptid=2045629" target="_blank">天下至贱 发表于 2022-1-4 12:17</a>
+你们没必要这么看不上kindle和中亚吧...
+
+举个例子，我最近在读的两本，关于我爱我家幕后的两本书， ...</blockquote>
+现在基本没人做书了
+都是直接破解的中亚的
+
+*****
+
+####  该用户不存在  
+##### 161#       发表于 2022-1-4 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154266&amp;ptid=2045629" target="_blank">梓鲨小队 发表于 2022-1-4 01:24</a>
+
+惊了！我还没买！这玩意有国产平替吗？
+
+—— 来自 S1Fun</blockquote>
+推荐海信手机，安卓电子书挺方便
+
+*****
+
+####  天堂蜘蛛  
+##### 162#       发表于 2022-1-4 12:21
+
+微信读书这种要啥没啥的，吹这玩意儿的不是水军就是自来水。
+
+*****
+
+####  lazyboy  
+##### 163#       发表于 2022-1-4 12:22
+
+所以在哀嚎什么？
+没有书了？kindle商场里的中文书都是正经出版物有实体版吧
+没有盗版？kindle盈利状况差不就是因为盗版吗？
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

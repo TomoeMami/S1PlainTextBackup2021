@@ -16362,3 +16362,77 @@ O这次如何?
 
 又不是说光脑缺血的那位脑子里有毒
 
+
+
+*****
+
+####  smy20011  
+##### 2856#       发表于 2022-1-4 12:08
+
+ 本帖最后由 smy20011 于 2022-1-4 12:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157418&amp;ptid=2039422" target="_blank">dllplayer 发表于 2022-1-4 11:55</a>
+
+不是那些大体老师解剖下来都是脑子里有病毒的么
+
+无症状4天后死于脑缺血是可能脑子有病..
+
+问题那么多都能 ...</blockquote>
+4天的那个就是癫痫发病的人啊
+
+*****
+
+####  dllplayer  
+##### 2857#       发表于 2022-1-4 12:11
+
+ 本帖最后由 dllplayer 于 2022-1-4 12:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157578&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 12:08</a>
+
+4天的那个就是癫痫发病的人啊</blockquote>
+那其他的病人呢..5天的..13天的..18天的都检测到sgRNA+
+
+31天33天47天65天230天都能检测到病毒...这个该怎么说?
+
+光盯着4天说...这个人脑子本就有病..所以大家不要担心病毒入脑?
+
+*****
+
+####  惊奇记事簿  
+##### 2858#       发表于 2022-1-4 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157578&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 12:08</a>
+4天的那个就是癫痫发病的人啊</blockquote>
+算了，你是单线程的么？
+
+*****
+
+####  smy20011  
+##### 2859#       发表于 2022-1-4 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157623&amp;ptid=2039422" target="_blank">dllplayer 发表于 2022-1-4 12:11</a>
+
+那其他的病人呢..5天的..13天的..18天的都检测到sgRNA+
+
+31天33天47天65天230天都能检测到病毒...这个该怎 ...</blockquote>
+其他检测出的病毒含量都很低
+
+<img src="https://img.saraba1st.com/forum/202201/04/121354q48af01880jxee4g.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-03 20.13.05.png</strong> (270.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 12:13 上传
+
+我觉得需要担忧的是P38/P43这个病例 另外这些病例都死了 不能指望死亡的时候血脑屏障依然起效吧
+
+*****
+
+####  smy20011  
+##### 2860#       发表于 2022-1-4 12:20
+
+而且这篇nature也做了解刨，结果没有发现病毒在脑内复制的痕迹
+
+Astrocytes might be vulnerable even if they are not infected by the virus. A study published on 21 June7 compared the brains of 8 deceased people who had COVID-19 with the brains of 14 controls. The researchers found no trace of SARS-CoV-2 in the brains of the infected people, but they did find that gene expression had been affected in some astrocytes, which were not working properly.
+
+[https://www.nature.com/articles/s41586-021-03710-0](https://www.nature.com/articles/s41586-021-03710-0)
+
