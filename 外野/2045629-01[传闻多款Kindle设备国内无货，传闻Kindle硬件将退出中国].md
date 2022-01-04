@@ -2594,3 +2594,49 @@ a7常用，dxg吃灰
 同时开梯子换日语系统换日亚账号也行不通，不知道什么原因</blockquote>
 你开了全局么？kindleAPP可以直连，不开全局可能登录失败
 
+
+
+*****
+
+####  最后的脆皮肠  
+##### 254#       发表于 2022-1-4 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154754&amp;ptid=2045629" target="_blank">死亡確認 发表于 2022-1-4 05:25</a>
+
+主要是kindle的硬件和软件可以分开后单纯的买硬件觉得划不来，想要的话直接用kindle的app买然后手机看其实 ...</blockquote>
+手机看没有墨水屏体验还是差很多的。
+
+手机可以买海信A7，安卓系统想装啥都行。
+
+*****
+
+####  sakura79  
+##### 255#       发表于 2022-1-4 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155079&amp;ptid=2045629" target="_blank">cqc1021 发表于 2022-1-4 08:21</a>
+
+kindle本体的使用体验确实不行，但kindle的APP用起来还是远比微信读书舒服的。
+
+—— 来自 samsung SM-N986 ...</blockquote>
+是说贴心地只给四种字体防止选择恐惧吗？
+
+*****
+
+####  jyky  
+##### 256#       发表于 2022-1-4 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163264&amp;ptid=2045629" target="_blank">黑岩泪香 发表于 2022-1-4 20:32</a>
+
+我试了一下没问题啊，要不你再试试从日服itunes下载kindle？</blockquote>
+就是从日服下的，刚才删了重下了一遍，现在直接就进不去了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jyky  
+##### 257#       发表于 2022-1-4 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163280&amp;ptid=2045629" target="_blank">Sacko9 发表于 2022-1-4 20:34</a>
+
+你开了全局么？kindleAPP可以直连，不开全局可能登录失败</blockquote>
+开了全局，各种方法都打滚试过了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
