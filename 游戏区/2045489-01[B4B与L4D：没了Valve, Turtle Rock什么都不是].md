@@ -561,3 +561,31 @@ v社属实牛，有些东西也是做半条命积累下来的，貌似求生之�
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  C.W.Nimitz  
+##### 64#       发表于 2022-1-4 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54151919&amp;ptid=2045489" target="_blank">伊苏林迪百合 发表于 2022-1-3 05:19</a>
+
+顺便看了这人的战争机器5和12的对比，联盟组做打击感也比epic差了好多啊...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">起码画面、优化等硬性技术力。
+
+再看343技术力可是简直了
+
+*****
+
+####  C.W.Nimitz  
+##### 65#       发表于 2022-1-4 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54149228&amp;ptid=2045489" target="_blank">白铠之冠 发表于 2022-1-3 01:09</a>
+
+求生之路原来有这么血腥嘛？还是砍瓜切菜的时候我没注意到？
+
+  -- 来自 能搜索的 Stage1官方 Android客户 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">因为太多了感受不到。
+
+部位破坏，我知道的能做比较细的，除了求生之路外就是《杀戮空间》了
+

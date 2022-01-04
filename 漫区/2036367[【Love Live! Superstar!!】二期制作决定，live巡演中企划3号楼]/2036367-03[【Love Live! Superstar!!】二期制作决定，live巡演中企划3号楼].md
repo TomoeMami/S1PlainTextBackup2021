@@ -5907,3 +5907,55 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 跨年live上纪实文学和星光序曲最后一句唱得真的强，当时听得非常震撼
 
+
+
+*****
+
+####  黑雪姫  
+##### 3565#       发表于 2022-1-4 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160442&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-1-4 16:09</a>
+
+历来这种看板娘活动都没有leader选上的吧</blockquote>
+因为之前领队角色人气都不高，但这次不一样。
+
+跟是不是领队没任何关系，跟角色人气有关。
+
+*****
+
+####  stygian  
+##### 3566#       发表于 2022-1-4 17:13
+
+ 本帖最后由 stygian 于 2022-1-4 17:20 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/04/171254z78gsxqawasx8ssl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 17:12 上传
+
+2022鱼的裂啦抱负
+
+绊写的日不日中不中，名字还写成liyyu，丈育实锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦对这是繁体写法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/04/172030b3pbpdq32pp5sqwl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 17:20 上传
+
+个人抱负，中文脑从左到右
+
+*****
+
+####  lj205  
+##### 3567#       发表于 2022-1-4 17:19
+
+这放假心还没收回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

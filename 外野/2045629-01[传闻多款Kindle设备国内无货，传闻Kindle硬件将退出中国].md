@@ -2405,3 +2405,15 @@ kindle还边缘业务，怕是中亚是要变成印象笔记那样啊</blockquot
 说起来kindle的电池坏了能找到地方修吗</blockquote>
 能，我换过以前KT的电池，但是感觉还是不经用，最后只能换机器
 
+
+
+*****
+
+####  LiberaMe  
+##### 237#       发表于 2022-1-4 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159765&amp;ptid=2045629" target="_blank">qssk 发表于 2022-1-4 15:15</a>
+
+看到这第一本就想起了几年前被呛的日亚，去年开始崩掉的LK，还有现在疑似同样被办的bw了，看轻小说越来越 ...</blockquote>
+lk和bw是啥，倾国？
+
