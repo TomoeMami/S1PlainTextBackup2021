@@ -16716,3 +16716,118 @@ https://www.nature.com/articles/s41593-021-00926-1</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  wszweill  
+##### 2883#       发表于 2022-1-5 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54165666&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 10:55</a>
+
+对啊，但是比天天复读病毒入脑贩卖焦虑要好一点
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goo ...</blockquote>
+我觉得能影响大脑是主要的，至于能不能复制是次要的。用PCR阴性来否定复制的可能性证据强度也不足，毕竟证明存在和证明不存在是两码事。就算退一步，假定病毒没进入大脑，那肯定也有其他影响脑功能的通路，大脑的主要问题还是恢复性基本是个玄学<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jxwats1  
+##### 2884#       发表于 2022-1-5 02:10
+
+ 本帖最后由 jxwats1 于 2022-1-5 02:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166275&amp;ptid=2039422" target="_blank">DraQin 发表于 2022-1-5 01:06</a>
+
+带英挣扎了一段时间以后终于还是超过20万了
+
+只能说请继续前进，前进，前进
+
+虽然如此，最近格拉斯 ...</blockquote>
+好家伙，我看了你发的才去搜了下英国的数据：[https://coronavirus.data.gov.uk/](https://coronavirus.data.gov.uk/)
+
+感染、入院、死亡在过去七天都上升了50%这样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">就这数据也有底气继续叫 M!I!L!D! 吗
+
+---------------------------------------------------------------------------------------------------------------
+
+编辑：谢谢楼下朋友指正。死亡数+50%似乎确实来自假期少报告矫正回归。看来仍然有底气继续叫M!I!L!D!<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 2885#       发表于 2022-1-5 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166605&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-5 02:10</a>
+好家伙，我看了你发的才去搜了下英国的数据：https://coronavirus.data.gov.uk/
+
+感染、入院、死亡在过去 ...</blockquote>
+害不是才死了49嘛，不要拿50% 来fear mongering<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2886#       发表于 2022-1-5 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166605&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-5 02:10</a>
+
+好家伙，我看了你发的才去搜了下英国的数据：https://coronavirus.data.gov.uk/
+
+感染、入院、死亡在过去 ...</blockquote>
+你是拿圣诞节的数据比1月份的数据么？
+
+[https://coronavirus.data.gov.uk/ ... me=United%20Kingdom](https://coronavirus.data.gov.uk/details/deaths?areaType=overview&amp;areaName=United%20Kingdom)
+
+*****
+
+####  smy20011  
+##### 2887#       发表于 2022-1-5 02:30
+
+<img src="https://img.saraba1st.com/forum/202201/05/022930zm8esdkmmmwe1mvv.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-04 10.29.02.png</strong> (60.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 02:29 上传
+
+比起50%这个数据，你放个图不好么
+
+<img src="https://img.saraba1st.com/forum/202201/05/023038vnvbe3kboqnvbqt8.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-04 10.30.31.png</strong> (123.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 02:30 上传
+
+这里是因为新冠而死的人的数据
+
+*****
+
+####  arcanearcher  
+##### 2888#       发表于 2022-1-5 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166605&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-5 02:10</a>
+好家伙，我看了你发的才去搜了下英国的数据：https://coronavirus.data.gov.uk/
+
+感染、入院、死亡在过去 ...</blockquote>
+年轻人症状mild，现阶段死亡率波动mild，未来看是否会医疗击穿带来超额死亡了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smy20011  
+##### 2889#       发表于 2022-1-5 05:08
+
+<img src="https://img.saraba1st.com/forum/202201/05/050758ddjqykvqqjadvc9q.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-04 13.07.49.png</strong> (83.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 05:07 上传
+
+Omicron：我不光一天要感染完整个美国，还要感染三次
+

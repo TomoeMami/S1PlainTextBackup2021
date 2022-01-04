@@ -6497,3 +6497,35 @@ https://revuestarlight.bushimo.jp/2019/06/01/180/</blockquote>
 
 后面风评回转好多了，官方现在主推齐格飞，二代都出了，动画化估计难。
 
+
+
+*****
+
+####  double8  
+##### 500#       发表于 2022-1-5 02:36
+
+路人粉表示看完了，很过瘾
+
+以及上来的西红柿和全程的西红柿让我不得不出戏到魔神BIG-O的故事里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+甚至舞台（stage）也是都有的重要设定，不得不让我想起第二季第一话罗杰休克状态下一整集的演出，很好奇导演有没有参考那一集罗杰的状态去搞剧场版的，既视感太强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“你叫了我罗杰·史密斯是吧，多萝西”“我可以扮演罗杰史密斯是吧”
+
+“扮演？你可不是什么演员，罗杰·史密斯”
+
+“一点没错，R·多萝西·怀英莱特”“只要你还这样称呼，我就是罗杰·史密斯！”
+
+BIG-O，SHOW TIME!!!<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wly  
+##### 501#       发表于 2022-1-5 04:00
+
+<blockquote>第五秋 发表于 2022-1-4 23:17
+凛明馆的剧情和结构、主题真的不错
+
+幻想能动画化（）</blockquote>
+手游三学校整体设计没有圣翔用心，但总体看来确实是凛明馆最适合展开剧情，设定较其他两个学校真实得多。西格比较适合当反派。
+

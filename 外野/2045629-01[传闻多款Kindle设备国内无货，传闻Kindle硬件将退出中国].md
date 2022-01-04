@@ -2649,3 +2649,22 @@ kindle本体的使用体验确实不行，但kindle的APP用起来还是远比�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">阅读观感好，但商店书少
 
+
+
+*****
+
+####  桐江  
+##### 259#       发表于 2022-1-5 02:37
+
+突然想起，求推荐一个好用的，没广告的，能朗读txt的阅读app。。。
+
+*****
+
+####  精钢魔像  
+##### 260#       发表于 2022-1-5 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166723&amp;ptid=2045629" target="_blank">桐江 发表于 2022-1-5 02:37</a>
+
+突然想起，求推荐一个好用的，没广告的，能朗读txt的阅读app。。。</blockquote>
+edge浏览器
+

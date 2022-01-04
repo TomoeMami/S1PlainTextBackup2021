@@ -10845,3 +10845,26 @@ ptr：明年见<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 （就算意识到了大概也不会主动找人聊这种数字的产生原因
 
+
+
+*****
+
+####  2014720  
+##### 7247#       发表于 2022-1-5 02:08
+
+我是指她主动把和赤坂的互动拿出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">很不像她不是吗
+
+*****
+
+####  2014720  
+##### 7248#       发表于 2022-1-5 02:10
+
+ 本帖最后由 2014720 于 2022-1-5 03:09 编辑 
+
+bsyl
+
+未来明貌似和你麻还没互动过吧，这企划前期诚意还可以了
+<img src="https://p.sda1.dev/4/f1a7af3b80ac757187b207f6e32f87eb/IMG_CMP_122321871.jpeg" referrerpolicy="no-referrer">
+
+跑去未来明的油管看了看…
+

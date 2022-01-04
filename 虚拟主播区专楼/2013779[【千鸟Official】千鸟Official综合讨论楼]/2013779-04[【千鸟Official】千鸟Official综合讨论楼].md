@@ -4406,3 +4406,14 @@ syl 这哪偷的
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  andeloz  
+##### 4957#       发表于 2022-1-5 04:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">隔壁猫雷昨晚唱one last kiss掉了10w同接 她那么在意同接的一个人 这样还是给喵喵露唱了 反观文静 真为静栗惹感到不值
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
