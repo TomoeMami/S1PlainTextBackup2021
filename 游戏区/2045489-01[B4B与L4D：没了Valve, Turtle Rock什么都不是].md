@@ -549,3 +549,15 @@ v社属实牛，有些东西也是做半条命积累下来的，貌似求生之�
 
 老厂的技术积累还是强，对比之下高下立判，不管是细节还是整体都输得透彻，我觉得B4B最大的问题还是盲目自信的定价策略，对真正冲着L4D招牌来玩的老玩家没有清醒的认知，翻车也是理所当然的
 
+
+
+*****
+
+####  真实之影  
+##### 63#       发表于 2022-1-4 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157305&amp;ptid=2045489" target="_blank">deadpeople 发表于 2022-01-04 11:47:50</a>
+老厂的技术积累还是强，对比之下高下立判，不管是细节还是整体都输得透彻，我觉得B4B最大的问题还是盲目自 ...</blockquote>b4b和l4d都是全价60刀游戏吧……
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

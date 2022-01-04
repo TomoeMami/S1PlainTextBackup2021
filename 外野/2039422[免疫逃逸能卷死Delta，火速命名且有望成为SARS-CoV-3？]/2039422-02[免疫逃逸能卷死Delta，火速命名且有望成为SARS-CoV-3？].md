@@ -16555,3 +16555,12 @@ https://www.uscardforum.com/t/topic/61480?page=2
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  charse2r  
+##### 2871#       发表于 2022-1-4 17:00
+
+日本这个“全员入院”的蓝鸟热搜猛一看还挺吓人
+
