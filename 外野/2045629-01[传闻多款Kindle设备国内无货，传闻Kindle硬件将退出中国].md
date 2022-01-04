@@ -1383,3 +1383,60 @@ calibre + zlib就可以了，完全不需要用到亚马逊的生态
 
 — from samsung SM-G781W, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  weare17k  
+##### 142#       发表于 2022-1-4 11:31
+
+为什么会有人觉得关了硬件，书城和kindle app服务还会继续运营？这个逻辑无法理解啊。说实话我也哀嚎了半天，哀嚎基础就是我认为服务也会关的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  finnegan  
+##### 143#       发表于 2022-1-4 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155266&amp;ptid=2045629" target="_blank">死宅真恶心 发表于 2022-1-4 08:49</a>
+
+贝光头脑子进水了吧，这也能砍吗？</blockquote>
+只是可能不在中国**销售，又没说全球停产。
+
+Bezos现在心思全在航天不说，Amazon刚进入中国市场时也不怎么重视，节日促销都要请示西雅图总部。
+
+*****
+
+####  tillnight  
+##### 144#       发表于 2022-1-4 11:37
+
+差不多得了，亚马逊变相支持海贼版都吹出来了。你现在百度找那些主打kindle推送的资源网站，还有几个活着的？从去年初开始就逐一倒闭，谁这么好心帮支持海贼的亚马逊打击盗版嗷？又做不好drm又要借特殊公司身份从外交上施压版权保护，可以说又菜又贪，还能反向吹起来了啧啧。
+
+*****
+
+####  寂寞的等待  
+##### 145#       发表于 2022-1-4 11:40
+
+说实话真的是用来做泡面盖的，现在我看电子书要么用手机，要么用电脑，现在的手机屏幕都是6寸以上的，够用了，显示效果比KINDLE好
+
+*****
+
+####  六等星  
+##### 146#       发表于 2022-1-4 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155776&amp;ptid=2045629" target="_blank">overmindoyj 发表于 2022-1-4 09:43</a>
+这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
+
+ ...</blockquote>
+啊，可是他们说中国马上变朝鲜啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  土星六边形  
+##### 147#       发表于 2022-1-4 11:41
+
+<blockquote>tillnight 发表于 2022-1-4 11:37
+差不多得了，亚马逊变相支持海贼版都吹出来了。你现在百度找那些主打kindle推送的资源网站，还有几个活着的 ...</blockquote>
+不吹，请告诉我一个在买了书之后可以导出存在我自己的介质上并放在任何环境阅读的中文电子书平台，我马上转移
+

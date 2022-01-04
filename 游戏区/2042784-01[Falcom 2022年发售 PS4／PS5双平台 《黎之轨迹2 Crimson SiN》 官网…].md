@@ -2477,3 +2477,12 @@ ps5版至少loading问题可以解决了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别到时候被师姐用剑圣级的切入把这两都ko了
 
+
+
+*****
+
+####  sin.yugi  
+##### 211#       发表于 2022-1-4 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">范爷实力离师姐差得太远了，没戏的
+

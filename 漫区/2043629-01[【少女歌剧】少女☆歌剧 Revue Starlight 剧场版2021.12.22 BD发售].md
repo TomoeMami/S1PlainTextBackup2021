@@ -6076,3 +6076,24 @@ BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入�
 
 很强<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yanayosihana  
+##### 471#       发表于 2022-1-4 11:39
+
+我不管蕉哥哥的【再演】就是最强的！！！
+
+*****
+
+####  青龙圣者  
+##### 472#       发表于 2022-1-4 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156603&amp;ptid=2043629" target="_blank">ardito 发表于 2022-1-4 10:56</a>
+
+双叶那也不算被秒吧，前半场还是压制了一下，阿恋后来高调出轨才没了，心里想着女人的恋哥哥，确实
+
+很强 ...</blockquote>
+前半叠香子BUFF，后面被恋哥哥一转魔怔秒了。
+

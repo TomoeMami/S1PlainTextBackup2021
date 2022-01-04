@@ -16277,3 +16277,43 @@ mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你
 根据美国约翰斯·霍普金斯大学统计数据，截至北京时间2022年1月4日7时22分，美国新冠肺炎累计确诊病例达到5 ...</blockquote>
 这是天赐的疫苗啊（狗头），赶紧让所有美国人，英国人都得上一遍就胜利了
 
+
+
+*****
+
+####  smy20011  
+##### 2850#       发表于 2022-1-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156933&amp;ptid=2039422" target="_blank">kira1988 发表于 2022-1-4 11:20</a>
+
+这是天赐的疫苗啊（狗头），赶紧让所有美国人，英国人都得上一遍就胜利了 ...</blockquote>
+现在美国一天感染100万人我也不奇怪了
+
+
+
+*****
+
+####  dllplayer  
+##### 2851#       发表于 2022-1-4 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154872&amp;ptid=2039422" target="_blank">諾 发表于 2022-1-4 07:26</a>
+
+广州首名Omicron患者的病情轻微，经过大半个月治疗，病毒载量已降低，但核酸检测仍是阳性。  专家表示，在 ...</blockquote>
+脑脊液PCR检测走一波?
+
+不是说之前的病毒特别喜欢去脑子么
+
+O这次如何?
+
+*****
+
+####  66666  
+##### 2852#       发表于 2022-1-4 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157029&amp;ptid=2039422" target="_blank">dllplayer 发表于 2022-1-4 11:27</a>
+
+脑脊液PCR检测走一波?
+
+不是说之前的病毒特别喜欢去脑子么</blockquote>
+看到有报道O病毒增值水平很高，复阳概率比德尔塔高的多
+
