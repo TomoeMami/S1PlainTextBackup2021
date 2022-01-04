@@ -2640,3 +2640,12 @@ kindle本体的使用体验确实不行，但kindle的APP用起来还是远比�
 你开了全局么？kindleAPP可以直连，不开全局可能登录失败</blockquote>
 开了全局，各种方法都打滚试过了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aazau  
+##### 258#       发表于 2022-1-4 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">阅读观感好，但商店书少
+

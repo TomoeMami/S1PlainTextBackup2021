@@ -713,3 +713,27 @@ cod丧尸其实T组做的很不错了 走出了自己的风格 但是可惜被�
 
 cod那种刷波数做任务的感觉受众面还是小了点
 
+
+
+*****
+
+####  古代人皮克  
+##### 78#       发表于 2022-1-4 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161320&amp;ptid=2045489" target="_blank">C.W.Nimitz 发表于 2022-1-4 17:10</a>
+
+因为太多了感受不到。
+
+部位破坏，我知道的能做比较细的，除了求生之路外就是《杀戮空间》了 ...</blockquote>
+doom永恒阿
+
+*****
+
+####  qianoooo  
+##### 79#       发表于 2022-1-4 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163186&amp;ptid=2045489" target="_blank">subject07 发表于 2022-1-4 20:25</a>
+
+这个油管主有点厉害，全程未说话，用素材和一点加工就简洁却完美地阐释了自己的观点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">经典的little sweet lie就是出自他手啊 脍炙人口
+

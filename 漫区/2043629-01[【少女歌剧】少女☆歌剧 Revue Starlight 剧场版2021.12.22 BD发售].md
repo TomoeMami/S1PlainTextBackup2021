@@ -6434,3 +6434,17 @@ https://revuestarlight.bushimo.jp/2019/06/01/180/</blockquote>
 
 「名門、落つ」和「自称、舞台少女」还是挺好看的，b站也有翻译
 
+
+
+*****
+
+####  青龙圣者  
+##### 495#       发表于 2022-1-4 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162793&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 19:39</a>
+
+你发的链接里写的并不是塔罗啊。古川参与兼修、樋口脚本的部分是：
+
+メインストーリー新章「削劇『天堂真矢 ...</blockquote>
+那就是记错了，不过56章还是不错的，和人物性格也对的上。1-3那就是各种魔怔人大合集。
+
