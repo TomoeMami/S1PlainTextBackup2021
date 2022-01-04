@@ -5828,3 +5828,13 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 原来如此和是这样啊这两个短语用英文怎么 ...</blockquote>
 大家都是二次元，谁还不了解谁呀<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 3557#       发表于 2022-1-4 14:19
+
+提醒一下啊，原宿Gamers看板娘选举，今晚11点截止
+[https://www.gamers.co.jp/special/harajuku_kanban/](https://www.gamers.co.jp/special/harajuku_kanban/)
+

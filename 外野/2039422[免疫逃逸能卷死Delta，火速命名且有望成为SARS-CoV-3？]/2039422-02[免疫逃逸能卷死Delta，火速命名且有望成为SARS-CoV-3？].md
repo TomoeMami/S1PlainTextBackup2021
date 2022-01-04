@@ -16449,3 +16449,53 @@ As a result, beginning Tuesday, the state will begin to ask hospitals to break d
 
 感觉以后想比较住院率更加困难了 纽约之后要报告因为covid入院的 vs 入院后检测出covid的
 
+
+
+*****
+
+####  pushare  
+##### 2862#       发表于 2022-1-4 14:01
+
+BNO:U.S. COVID update: More than 1 million new cases, including backlogs
+
+- New cases: 1,045,968
+- Average: 494,660 (+81,979)
+- States reporting: 44/50
+- In hospital: 104,737 (+6,034)
+- In ICU: 19,542 (+654)
+- New deaths: 1,909
+- Average: 1,343 (+33)
+
+*****
+
+####  角龙大剑  
+##### 2863#       发表于 2022-1-4 14:01
+
+法国发现的新毒株能卷走奥密克戎吗
+
+*****
+
+####  kira1988  
+##### 2864#       发表于 2022-1-4 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157323&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 11:48</a>
+
+贩卖焦虑2.0</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">病毒也卷起来了
+
+*****
+
+####  钞君  
+##### 2865#       发表于 2022-1-4 14:07
+
+艹啊！
+
+【#南极出现聚集性疫情#：奥密克戎或在各大洲出现】据比利时媒体报道，比利时南极“伊丽莎白公主极地站”出现聚集性疫情。1月3日，中国第38次南极科考队队员表示，中国科考队一直遵循严格的防疫措施，在此之前就已禁止去其他国家站点“串门” ，队员们目前一切正常。[http://t.cn/A6JwqqCo](http://t.cn/A6JwqqCo) ​​​
+
+*****
+
+####  赤色彗星SEXY  
+##### 2866#       发表于 2022-1-4 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 瘟疫公司不行啊！！！ 说好的冰岛最难呢！！现在TM南极都沦陷了
+

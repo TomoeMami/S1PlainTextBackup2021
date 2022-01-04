@@ -1947,3 +1947,43 @@ kindle主要还是买书比较方便
 我有个问题
 其他安卓电纸书有没有类似于kindle的第三方推送功能（send to kindle那种的）
 
+
+
+*****
+
+####  Sacko9  
+##### 197#       发表于 2022-1-4 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158816&amp;ptid=2045629" target="_blank">无雨中 发表于 2022-1-4 14:05</a>
+我有个问题
+其他安卓电纸书有没有类似于kindle的第三方推送功能（send to kindle那种的） ...</blockquote>
+要是推送的话文石是有的，而且比kindle的推送方法更丰富
+
+*****
+
+####  jajajzz  
+##### 198#       发表于 2022-1-4 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157898&amp;ptid=2045629" target="_blank">Nanachi 发表于 2022-1-4 12:36</a>
+—— 来自 S1Fun</blockquote>
+您就是想在7寸上看16开大排版的小天才吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+硬件摆烂？哦哟，大家都是一个供应商但是现在显示效果超过kindle的电子书还没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> kobo算半个吧
+
+*****
+
+####  狄一琛2019  
+##### 199#       发表于 2022-1-4 14:18
+
+行吧，有商城要关的传言了。
+
+没有kindle中文商城后，以后再想看新书就真不容易了，我没意识到这一点。
+
+然而大势如此无可奈何，毕竟我也是盗版用户
+
+*****
+
+####  TalesYuki  
+##### 200#       发表于 2022-1-4 14:18
+
+微信最大的优势是白嫖。以前排版最好的多看阅读已经半死不活了
+
