@@ -4331,3 +4331,12 @@ syl 这哪偷的
 
 今天怎么感觉这么低气压
 
+
+
+*****
+
+####  GAKOTO  
+##### 4949#         楼主| 发表于 2022-1-4 13:10
+
+估计是因为昨天的节奏没睡好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
