@@ -16436,3 +16436,16 @@ Astrocytes might be vulnerable even if they are not infected by the virus. A stu
 
 [https://www.nature.com/articles/s41586-021-03710-0](https://www.nature.com/articles/s41586-021-03710-0)
 
+
+
+*****
+
+####  smy20011  
+##### 2861#       发表于 2022-1-4 12:27
+
+But Ms. Hochul said that some hospital executives have told her between 20 and 50 percent of their Covid patients are not suffering from severe symptoms, but that they are testing positive in the hospital incidentally, after being admitted for other reasons such as car accidents.
+
+As a result, beginning Tuesday, the state will begin to ask hospitals to break down how many patients are being admitted for acute Covid-19 symptoms, in an effort to further decipher this wave’s severity.
+
+感觉以后想比较住院率更加困难了 纽约之后要报告因为covid入院的 vs 入院后检测出covid的
+

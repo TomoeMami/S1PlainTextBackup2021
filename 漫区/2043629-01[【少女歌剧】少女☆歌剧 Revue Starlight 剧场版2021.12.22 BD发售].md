@@ -6106,3 +6106,39 @@ BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入�
 
 蕉其实很有反派气息，尤其是那种自认为自己的想法对大家是有利的，并且将这种想法强加于别人身上的偏执自我的气质。
 
+
+
+*****
+
+####  rainknine  
+##### 474#       发表于 2022-1-4 12:28
+
+其实还是蕉七回表现力过于强了
+在整个少歌故事里，尤其是tv版里显得很异质，因为异质所以当时看完人都是傻的，也因为异质，跟tv后续的接一起会觉得很突兀。
+输给光还好毕竟recreate的revue质量真的高，光的过去很感人，但怎么就输给nonnon剑法了，怎么就变成百合人了，我day不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+当然舞台少女心得和最终话抢救的很好，但很长一段时间里我回顾少歌的时候是跳掉第九话的。就一股野马脱缰但半途又给套回去缰绳的感觉。
+（后来补交响音乐会突然觉得星々の絆还挺好听的，在内心里和古川gg和解了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">）
+
+剧场版倒明显自由了很多，还给tv版打了不少补丁，但还是会忍不住想，当初真的顺着蕉七回的方向走的话会是什么样的“命运的舞台”。从这个角度而言，对我来说，这个作品有一小部分还停留在nana回播出的时候，是不会有后续的未完待续。
+
+只能说，期待古川gg新作
+
+*****
+
+####  蓝灯横滨  
+##### 475#       发表于 2022-1-4 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154451&amp;ptid=2043629" target="_blank">squallx 发表于 2022-1-4 02:04</a>
+
+最近几年手机铃声从百合熊的挖露露一路换成少鸽TV手机铃声用了太久了  有大佬把剧场地铁那段铃声截 ...</blockquote>
+刚好昨天下了，有需要的自取吧
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
+
+Ki-ringtrain.mp3
+(488.9 KB, 下载次数: 0)
+
+2022-1-4 12:34 上传
+
+点击文件名下载附件
+

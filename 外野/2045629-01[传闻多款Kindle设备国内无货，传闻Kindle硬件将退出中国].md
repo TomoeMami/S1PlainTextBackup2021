@@ -1621,3 +1621,114 @@ kindle最近把待机广告删了让我非常怨念...
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  回锅牛肉  
+##### 164#       发表于 2022-1-4 12:24
+
+利益相关，kindle只是个开始哈
+
+*****
+
+####  jajajzz  
+##### 165#       发表于 2022-1-4 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157742&amp;ptid=2045629" target="_blank">lazyboy 发表于 2022-1-4 12:22</a>
+所以在哀嚎什么？
+没有书了？kindle商场里的中文书都是正经出版物有实体版吧
+没有盗版？kindle盈利状况差不 ...</blockquote>
+实体版占位置，旧书二手可能贵，电子版随下随看，电子书是有他的存在意义。现在大陆也只有亚马逊做的还行，没了不哀嚎吗
+
+*****
+
+####  lostanother  
+##### 166#       发表于 2022-1-4 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157764&amp;ptid=2045629" target="_blank">回锅牛肉 发表于 2022-1-4 12:24</a>
+利益相关，kindle只是个开始哈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">哈人
+
+*****
+
+####  nanonya2  
+##### 167#         楼主| 发表于 2022-1-4 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157764&amp;ptid=2045629" target="_blank">回锅牛肉 发表于 2022-1-4 12:24</a>
+利益相关，kindle只是个开始哈</blockquote>
+大…大的要来了？
+
+*****
+
+####  heseran  
+##### 168#       发表于 2022-1-4 12:35
+
+不知道是不是一部分kindle用户吹得太狠造孽了还是什么，有些人一看到kindle就自动拿去和平板、手机做比较，就是个电子书阅读器而已，根本不在一条赛道上，比也得和其他品牌的阅读器比吧……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tepk  
+##### 169#       发表于 2022-1-4 12:36
+
+有意思，实体书一群人买了不读，电子书一群人读了不买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈迪斯兜帽  
+##### 170#       发表于 2022-1-4 12:36
+
+一到重点就开始顾左右而言他
+
+没啥好说的了，希望楼里的懂哥能多做几本中文电子书。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Nanachi  
+##### 171#       发表于 2022-1-4 12:36
+
+<img src="https://p.sda1.dev/4/4cf834868f198f6a9b7347c4e095d4f7/截图.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夕霧  
+##### 172#       发表于 2022-1-4 12:37
+
+kindle商店还在就行，手里的kpw是几代也忘了，应该还能用很久。
+
+*****
+
+####  郭美美  
+##### 173#       发表于 2022-1-4 12:37
+
+不是说电子墨子有专利吗？
+
+*****
+
+####  Place_O  
+##### 174#       发表于 2022-1-4 12:39
+
+kindle上东西也不怎么多，经常找不到自己想看的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JAD-AL50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lostanother  
+##### 175#       发表于 2022-1-4 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157910&amp;ptid=2045629" target="_blank">郭美美 发表于 2022-1-4 12:37</a>
+不是说电子墨子有专利吗？</blockquote>
+eink屏的专利和亚马逊没啥关系
+
+*****
+
+####  bubuyu  
+##### 176#       发表于 2022-1-4 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157764&amp;ptid=2045629" target="_blank">回锅牛肉 发表于 2022-1-4 12:24</a>
+利益相关，kindle只是个开始哈</blockquote>
+中亚也没剩下什么了，难道2c业务全关？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
