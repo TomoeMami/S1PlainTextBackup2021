@@ -6208,3 +6208,35 @@ FILdaCuakAAuOR7.jpg
 
 <img src="https://img.saraba1st.com/forum/202201/04/215141laccpzpe7bezgpan.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普之舜舜  
+##### 3584#       发表于 2022-1-4 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163874&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-4 21:30</a>
+
+有熟肉云盘下载吗</blockquote>
+熟肉依然姐那边有，我引用下
+
+*****
+
+####  普之舜舜  
+##### 3585#       发表于 2022-1-4 22:35
+
+ 本帖最后由 普之舜舜 于 2022-1-4 22:37 编辑 
+<blockquote>依然洳雪转发了龙歌Official的动态：
+
+2022-01-04 18:30:20
+
+v2修正版~
+
+原动态：
+[https://www.aliyundrive.com/s/qvAAfeF45U7](https://www.aliyundrive.com/s/qvAAfeF45U7)
+
+跨年熟肉修正版<[strong>https://www.aliyundrive.com/s/qvAAfeF45U7</strong>](https://www.aliyundrive.com/s/qvAAfeF45U7)
+
+音源问题可能来自eplus官方，BD发售或者问题解决之前不会再进行修复
+[https://t.bilibili.com/611834498091975326](https://t.bilibili.com/611834498091975326)</blockquote>
+
