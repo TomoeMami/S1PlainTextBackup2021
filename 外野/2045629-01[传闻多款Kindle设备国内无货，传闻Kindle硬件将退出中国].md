@@ -1215,3 +1215,106 @@ kobo问题是字体吧，原本日文原生系统，中文字库支持的字体�
 
 有个oasis，导入书挺简单的，但是续航不行，还有usb mini接口也挺烦的，毕竟现在都是c口了，每次还需要给它单独备个线
 
+
+
+*****
+
+####  冰凌火焰  
+##### 127#       发表于 2022-1-4 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154266&amp;ptid=2045629" target="_blank">梓鲨小队 发表于 2022-1-4 01:24</a>
+
+惊了！我还没买！这玩意有国产平替吗？
+
+—— 来自 S1Fun</blockquote>
+[https://www.saraba1st.com/2b/thread-2044741-1-1.html](https://www.saraba1st.com/2b/thread-2044741-1-1.html)
+[https://www.saraba1st.com/2b/thread-2043528-1-1.html](https://www.saraba1st.com/2b/thread-2043528-1-1.html)
+
+你去搜搜最近的几个求推电纸书的，还有几个人能想到Kindle的，某种程度上来说，Kindle也能算时代的眼泪了。
+
+*****
+
+####  量子大蛇  
+##### 128#       发表于 2022-1-4 10:48
+
+没有Kindle可以考虑用掌阅Ireader，因为Kindle基本上就是一条懒狗，各方面服务并不怎么样，最基本的导出都做不好，资源方面什么东西进了国内都是摆烂这没什么好说的，而会员方面我感觉掌阅的更好一些。
+
+硬件规格方面Kindle基本是收了一部分品牌价值的，所以性价比也就一般，就算退出也就那么回事吧。
+
+感觉我看书更多的还是在PC端和Ipad上，Kindle设备已经很久没启动过了。
+
+*****
+
+####  鹅饿鹅  
+##### 129#       发表于 2022-1-4 10:50
+
+本来还在犹豫要不要把kindle换了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天野七緒  
+##### 130#       发表于 2022-1-4 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156035&amp;ptid=2045629" target="_blank">dangdang00 发表于 2022-1-4 10:03</a>
+ 第一代kpw用到现在。 kpw看文字书和处理过格式的漫画还行，但是看pdf和彩色就不行了，而且这么多代没质的区 ...</blockquote>
+最近从kpw1升级到kpw5，反应速度真是重获新生
+
+*****
+
+####  yuxiao  
+##### 131#       发表于 2022-1-4 10:51
+
+Kindle软件的逻辑脑残度真的是标准老外尿路
+上个月想在台式机里装个kindle软件结果死活无法登陆账户，搜了一下发现windows的kindle就是经常无法登录，遂放弃，真是死得其所
+
+*****
+
+####  overmindoyj  
+##### 132#       发表于 2022-1-4 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155896&amp;ptid=2045629" target="_blank">蓬莱妹红 发表于 2022-1-4 09:54</a>
+
+可是他只是关了硬件服务啊，书不是照样买…最多算是书城的桌子椅子给你撤了你不是照样可以买书回去看
+
+— ...</blockquote>
+我关心的就是书城麽，硬件大不了海淘
+
+*****
+
+####  8400gs  
+##### 133#       发表于 2022-1-4 10:59
+
+退就退吧
+
+反正没安卓的电纸书设备在国内也没几个人买
+
+*****
+
+####  Nanachi  
+##### 134#       发表于 2022-1-4 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156420&amp;ptid=2045629" target="_blank">zyupha 发表于 2022-1-4 10:38</a>
+
+我相信很多排版好的盗版书是亚马逊自购自破的。
+
+书这么多，存在普通人也能破解的平台才能保证大部分书有海 ...</blockquote><blockquote><strong>很多排版好的盗版书</strong>是亚马逊自购自破的</blockquote><blockquote>如果以后只有黑客收费破解书了，那海盗书<strong>肯定大幅减少</strong>。</blockquote>
+
+我不禁好奇了起来，国内的kindle电子书到底有多少本呢？
+
+打开中亚的kindle商店页面：
+<img src="http://tvax2.sinaimg.cn/large/007WH5Y2ly1gy1gbtrmpuj32yo1fr7wj.jpg" referrerpolicy="no-referrer">
+
+随便点开一个类别看了下，可以购买的kindle电子书资源都注明了“kindle电子书”。
+<img src="http://tvax2.sinaimg.cn/large/007WH5Y2ly1gy1gbuazw0j32do12ob2a.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax2.sinaimg.cn/large/007WH5Y2ly1gy1gbs4p32j3297100npd.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/007WH5Y2ly1gy1gbsnv5zj319618mngs.jpg" referrerpolicy="no-referrer">
+
+那么这种资源究竟有多少呢？我在中亚的“kindle电子书”搜索分类里面输入了“kindle”，搜索结果2w+条：
+<img src="http://tvax2.sinaimg.cn/large/007WH5Y2ly1gy1gbt3h4nj31tf1df7wh.jpg" referrerpolicy="no-referrer">
+
+“kindle商店”分类（包含了kindle阅读器）里面搜索“kindle”，也是2w+条：
+<img src="http://tva1.sinaimg.cn/large/007WH5Y2ly1gy1gevdmq3j32yo1frhdt.jpg" referrerpolicy="no-referrer">
+
+“全部分类”里面搜索kindle，倒是有6w+条了：
+<img src="http://tvax4.sinaimg.cn/large/007WH5Y2ly1gy1geuw7g6j32yo1fru0x.jpg" referrerpolicy="no-referrer">
+

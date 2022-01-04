@@ -6014,3 +6014,65 @@ BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入�
 部分设定共通在同企划内作品里是正常的，用前传这个说法我觉得不太妥当。当然你自己怎么理解没关系。
 アルカナ系列主线现在还没更新完，剧场版BD都出了。而且手游的主线一直是围绕迷之少女える的，アルカナ主线围绕的也是【未知的戏剧A】的创作。动画并不涉及える和怪鼹鼠啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  青龙圣者  
+##### 467#       发表于 2022-1-4 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156356&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 10:32</a>
+
+部分设定共通在同企划内作品里是正常的，用前传这个说法我觉得不太妥当。当然你自己怎么理解没关系。
+
+ア ...</blockquote>
+塔罗篇就算抛开星之少女艾露，仅靠B班的雨宫剧本也是可以自圆其说的。
+
+艾露和鼹鼠并不影响最终剧本和结果。
+
+剧情里已经解释了，艾露的剧本是星之少女的主视角，雨宫的剧本则是群像剧。
+
+群像剧的结果本身并不受艾露影响，艾露即是创作者也是观众，她创作的是自己的故事。
+
+*****
+
+####  squallx  
+##### 468#       发表于 2022-1-4 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155468&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 09:11</a>
+
+你是说长颈鹿标识滚出来的那个？
+
+BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入歌vol ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谢大佬
+
+*****
+
+####  ardito  
+##### 469#       发表于 2022-1-4 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54152871&amp;ptid=2043629" target="_blank">rainknine 发表于 2022-1-3 22:45</a>
+
+没，真没必要硬整战斗力偏序关系少歌很明显是战斗力互掐黑洞（
+
+不过仅作为闲谈吹逼的话，手游没 ...</blockquote>
+其实也不是排什么序，毕竟打过的局也没那么不讲道理，严格来说应该算是剧目讨论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是摆出个阿光和香子，连个戏都没有，能说几个字出来
+
+*****
+
+####  ardito  
+##### 470#       发表于 2022-1-4 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155787&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-4 09:44</a>
+
+写点动画党不知道的：
+
+手游里剧场版前传，露女士对决蕉哥，展现了自己的闪耀，然后被魔怔蕉哥鲨了。
+
+恋哥哥 ...</blockquote>
+双叶那也不算被秒吧，前半场还是压制了一下，阿恋后来高调出轨才没了，心里想着女人的恋哥哥，确实
+
+很强<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
