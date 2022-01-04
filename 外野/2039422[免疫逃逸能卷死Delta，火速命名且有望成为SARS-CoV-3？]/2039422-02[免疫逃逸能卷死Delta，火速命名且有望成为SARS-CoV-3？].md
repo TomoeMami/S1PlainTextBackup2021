@@ -16542,3 +16542,16 @@ Astrocytes might be vulnerable even if t ...</blockquote>
 
 比如流感也会在睾丸中存在 [https://www.webmd.com/men/news/2 ... de-range-of-viruses](https://www.webmd.com/men/news/20170913/semen-harbors-wide-range-of-viruses) 之前楼里说没见过病毒入侵脑部的，其实不少病毒都可以[http://jmi.fudan.edu.cn/CN/abstract/abstract633.shtml](http://jmi.fudan.edu.cn/CN/abstract/abstract633.shtml)
 
+
+
+*****
+
+####  smy20011  
+##### 2870#       发表于 2022-1-4 15:49
+
+https://www.uscardforum.com/t/topic/61480?page=2
+
+美国华人论坛自述得omicron的症状，最夸张的一个5针疫苗加口罩打穿了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

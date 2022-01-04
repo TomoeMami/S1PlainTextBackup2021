@@ -2281,3 +2281,45 @@ KINDLE能看彩图吗？或者现在有电子阅读器能看彩图吗？
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  summerfish  
+##### 228#       发表于 2022-1-4 15:59
+
+确实已经很久没看了，因为只是拿来看小说的，现在正版网文几乎都没有TXT版本的，更不用说MOBI了，只好拿IPAD看了
+
+有时候因为正版被和谐的情节，只能去盗版网站看，更是只能看IPAD了。
+
+而且现在合胃口的文越来越少，所以看视频和漫画越来越多。kindle之类的产品，是碰都不碰了
+
+*****
+
+####  lostanother  
+##### 229#       发表于 2022-1-4 16:00
+
+ 本帖最后由 lostanother 于 2022-1-4 16:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159564&amp;ptid=2045629" target="_blank">Redis 发表于 2022-1-4 14:59</a>
+中亚要开始清洗了
+
+估计是新ceo上任，要开始砍这些边缘业务了</blockquote>
+kindle还边缘业务，怕是中亚是要变成印象笔记那样啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 230#       发表于 2022-1-4 16:03
+
+ 本帖最后由 Redis 于 2022-1-4 16:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160310&amp;ptid=2045629" target="_blank">lostanother 发表于 2022-1-4 16:00</a>
+
+kindle还边缘业务，怕不是中亚是要变成印象笔记那样啊</blockquote>
+作为前前员工
+
+中亚在亚马逊内部的意义就是对接中国的卖家
+
+2c的部分已经无足轻重很久了，被老白男们一斧子下去没什么吃惊了
+
+前几天aws当机，结果我起码两周都无法访问z.cn（挂反向梯子没问题，就知道中亚这边有多草台了
+
