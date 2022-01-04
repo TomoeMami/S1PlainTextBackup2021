@@ -6368,3 +6368,27 @@ https://b23.tv/f9pm8YJ
 
 —— 来自 vivo V1824A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  unnilennium  
+##### 491#       发表于 2022-1-4 19:06
+
+ 本帖最后由 unnilennium 于 2022-1-4 19:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156536&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-4 10:49</a>
+
+塔罗篇就算抛开星之少女艾露，仅靠B班的雨宫剧本也是可以自圆其说的。
+
+艾露和鼹鼠并不影响最终剧本和结果 ...</blockquote>
+前面楼回复过，剧场版里用电车广告、传单的方式提及了一点手游和舞台角色的存在，我很喜欢这种点到为止的关系。有些企划类动画出续作，多平台面团越揉越大的（比如隔壁友奈），少歌没这么做我觉得挺好。
+
+理解您想说可以对照剧情，不过我觉得比起前传当成side story更恰当，当然这是我抠字眼了。
+
+另外アルカナ这部分的脚本只有动画系构樋口，没有古川。
+[https://twitter.com/starlightrelive/status/1318163235502260225](https://twitter.com/starlightrelive/status/1318163235502260225)
+
+顺便黑泥一句，我认为手游策划找TV主创写脚本的时候，应该没想太多剧情联系、平衡的事情，
+
+只是想要一个写脚本的+噱头的可能性更大一点，毕竟是塔罗牌卡面图不改动，正位和逆位都能出两个礼装的屑策划<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

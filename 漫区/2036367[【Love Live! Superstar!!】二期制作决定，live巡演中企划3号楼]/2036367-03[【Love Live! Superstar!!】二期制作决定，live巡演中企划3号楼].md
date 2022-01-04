@@ -5992,3 +5992,12 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 3571#       发表于 2022-1-4 19:06
+
+鲤鱼这对打铁的记恨好深啊，打铁在家乡可要支棱起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

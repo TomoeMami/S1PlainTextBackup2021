@@ -10010,3 +10010,12 @@ GOD说的话倒是很有讽刺效果啊
 
 <img src="https://p.sda1.dev/3/530a471fa7c0201b2cac93f23057f0a3/20211231_234423.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  icewolf01  
+##### 56289#       发表于 2022-1-4 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">哎，如果和之国前面不拉胯成那样的话这段可能还挺好看的
+
