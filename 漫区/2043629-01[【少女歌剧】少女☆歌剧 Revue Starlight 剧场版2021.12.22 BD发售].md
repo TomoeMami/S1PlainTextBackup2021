@@ -5990,3 +5990,27 @@ BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入�
 剧场版顶多是车内广告能证明剧fes的存在、其他几个学校名义上亮相一下。并没有说过アルカナ系列主线剧情 ...</blockquote>
 这一段蕉所迷惑的是因为主演位置的空缺，所有人对主演位置的争夺有些魔怔，这点不可否认，你看那边分崩离析的边境线还有魔怔先辈。蕉鹅战的时候鹅的态度是表示应当信任她们，虽然一时魔怔，但她们能够克服。然后等蕉鹅战结束鹅立马拉着b班去找艾露大修剧本加入了主演星之少女。
 
+
+
+*****
+
+####  青龙圣者  
+##### 465#       发表于 2022-1-4 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156120&amp;ptid=2043629" target="_blank">OnlyW 发表于 2022-1-4 10:10</a>
+
+各个媒体之间还是不要混在一起了，否则青岚三人还在舞台剧群架吊锤过圣翔九人众 ...</blockquote>
+青岚剧本自然是这样，手游虽然载体不同但是导演、编剧都是同样的人，外加只看内战其实也能参考。
+
+*****
+
+####  unnilennium  
+##### 466#       发表于 2022-1-4 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156204&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-4 10:18</a>
+最新的克洛VS光里，已经开始疯狂暗示光退学跑路离开华恋了。
+
+然后克洛推动了一波，加上古川检修、樋口脚 ...</blockquote>
+部分设定共通在同企划内作品里是正常的，用前传这个说法我觉得不太妥当。当然你自己怎么理解没关系。
+アルカナ系列主线现在还没更新完，剧场版BD都出了。而且手游的主线一直是围绕迷之少女える的，アルカナ主线围绕的也是【未知的戏剧A】的创作。动画并不涉及える和怪鼹鼠啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

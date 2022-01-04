@@ -1074,3 +1074,144 @@ kpw看文字书和处理过格式的漫画还行，但是看pdf和彩色就不�
 
 说实话我一直用的邮箱推送，如果没kindle这些年我小说看下来手机手应该很严重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashzolo  
+##### 113#       发表于 2022-1-4 10:26
+
+用vol推送看漫画还挺爽的，屏幕大小合适<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  启叔  
+##### 114#       发表于 2022-1-4 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155955&amp;ptid=2045629" target="_blank">保科智子 发表于 2022-1-4 09:57</a>
+
+国行kindle怎么登录外服账号？</blockquote>
+如果用中亚的邮箱或手机号注册需要不同的密码，直接登录就行。直接去外区
+
+*****
+
+####  tianhao2001  
+##### 115#       发表于 2022-1-4 10:29
+
+还敢推荐文石呢？
+
+不知道你坛睾雅程序员一致认为文石意识形态出了问题吗
+
+*****
+
+####  onlv星骸  
+##### 116#       发表于 2022-1-4 10:31
+
+kindle最近把待机广告删了让我非常怨念... 
+
+我本来还挺喜欢这种随机刷一本书皮当待机封面的感觉...
+
+*****
+
+####  kinovi  
+##### 117#       发表于 2022-1-4 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155776&amp;ptid=2045629" target="_blank">overmindoyj 发表于 2022-1-4 09:43</a>
+
+这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
+
+ ...</blockquote>
+是的，我也买过很多书了，如果有电子书第一时间想的是去kindle购买，要是没了就真的空落落的了
+
+*****
+
+####  lostanother  
+##### 118#       发表于 2022-1-4 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154875&amp;ptid=2045629" target="_blank">ShawElA 发表于 2022-1-4 07:28</a>
+借楼求推封闭系统的国产阅读器，我自制力好弱不敢用开放系统</blockquote>
+国内封闭系统好像只有掌阅做，要不然就是大屏的富士通和索大法
+
+*****
+
+####  老黑305  
+##### 119#       发表于 2022-1-4 10:33
+
+国内竞争对手太多了，kindle的体验确实也不一定是最好的，作为用户我虽然虽然可惜，但它死得也确实不冤
+
+*****
+
+####  magus  
+##### 120#       发表于 2022-1-4 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154306&amp;ptid=2045629" target="_blank">张元英 发表于 2022-1-4 01:31</a>
+
+中国市场可能是全世界最卷的市场，kindle从硬件到软件到内容，都已经被国产爆杀了 ...</blockquote>
+推荐个国产的看看呀
+
+
+
+*****
+
+####  zyupha  
+##### 121#       发表于 2022-1-4 10:38
+
+我相信很多排版好的盗版书是亚马逊自购自破的。
+书这么多，存在普通人也能破解的平台才能保证大部分书有海盗，如果以后只有黑客收费破解书了，那海盗书肯定大幅减少。我觉得（至少中文海盗书的）未来很惨淡。
+别喊亚马逊死的不冤了，人家就是死在好破解上了，以后死剩下的都是铁公鸡，拼命加密，锁平台，不许导出，等对手死光坐地起价，随便摆烂，日子越来越好咯<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  Unlight  
+##### 122#       发表于 2022-1-4 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155797&amp;ptid=2045629" target="_blank">我就再氪一单 发表于 2022-1-4 09:45</a>
+kobo问题是字体吧，原本日文原生系统，中文字库支持的字体就那默认几款
+
+—— 来自 Xiaomi Redmi  ...</blockquote>
+正文字体一律方正屏显雅宋（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  eveshell  
+##### 123#       发表于 2022-1-4 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155776&amp;ptid=2045629" target="_blank">overmindoyj 发表于 2022-1-4 09:43</a>
+
+这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
+
+ ...</blockquote>
+卖不出去还怪政府啦
+
+*****
+
+####  lostanother  
+##### 124#       发表于 2022-1-4 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155955&amp;ptid=2045629" target="_blank">保科智子 发表于 2022-1-4 09:57</a>
+国行kindle怎么登录外服账号？</blockquote>
+可以直接登的，美服日服都行
+
+*****
+
+####  lostanother  
+##### 125#       发表于 2022-1-4 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155962&amp;ptid=2045629" target="_blank">bixinhaner 发表于 2022-1-4 09:58</a>
+微信读书好多书显示未上架怎么办？是要氪金会员吗？
+目前除了亚马逊平台，最好的平台是不是就微信读书了？ ...</blockquote>
+没上架就只能等上架了
+
+*****
+
+####  klmmmx  
+##### 126#       发表于 2022-1-4 10:41
+
+有个oasis，导入书挺简单的，但是续航不行，还有usb mini接口也挺烦的，毕竟现在都是c口了，每次还需要给它单独备个线
+

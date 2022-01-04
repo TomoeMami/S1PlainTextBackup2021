@@ -5812,3 +5812,19 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 昨晚发的那个幕后不就挺多水蓝色？加上没有c曲当然看到的更少。一专之前预定量低，我觉得应该都是像我一样在等特典和活动，我也是等到发布活动开始才决定买哪家，而a和g店因为还在纠结倍率还没下单，g店普通版现在预定的也是第二批次，所以也不能这么快下结论。当然我的要求很低，超过之前单曲销量都是赢，除非认为不卖个五千都是暴死那就没话说，本来二次元某种程度上，也不是完全对等到三次元这边。
 
+
+
+*****
+
+####  emmer  
+##### 3556#       发表于 2022-1-4 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154296&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-1-4 01:29</a>
+
+也不奇怪 她还是人在那边环境的呢
+
+都不说别的 就问现在在这的楼友
+
+原来如此和是这样啊这两个短语用英文怎么 ...</blockquote>
+大家都是二次元，谁还不了解谁呀<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+

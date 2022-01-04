@@ -2454,3 +2454,17 @@ ps5版至少loading问题可以解决了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  asdghjkm  
+##### 209#       发表于 2022-1-4 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53958760&amp;ptid=2042784" target="_blank">Falcomfans 发表于 2021-12-16 13:16</a>
+
+黎轨的小游戏文件夹里还有钓鱼、21点和扑克，2代总该做完了才端上来吧。
+
+ ...</blockquote>
+不，其实不需要。
+
