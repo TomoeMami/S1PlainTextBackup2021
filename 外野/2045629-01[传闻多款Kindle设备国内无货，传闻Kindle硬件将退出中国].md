@@ -2457,3 +2457,35 @@ kindle的替代性不管是手机还是ipadmini或者什么app能补足的
 
 我觉得kindle很好啊，看红楼梦批注版本，kindle正版能把批注做到浅色正文各行中间，英文查词也很方便，我还挺喜欢的，看他们微信公众号推书也很好 一下子没了真觉得有点难以接受
 
+
+
+*****
+
+####  EFSF  
+##### 241#       发表于 2022-1-4 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159564&amp;ptid=2045629" target="_blank">Redis 发表于 2022-1-4 14:59</a>
+
+中亚要开始清洗了
+
+估计是新ceo上任，要开始砍这些边缘业务了</blockquote>
+19年就清洗干净了，现在哪还是清洗啊。
+
+就是kindle在中国真卖不动了，从17年开始的调整CN整个的意义就是要保正在财务上是平的甚至有盈利，同时要通过财务结构承担其他几个地区的成本，你真卖不动了就没必要维持了，你看海外购一直都还算有自己的步调。
+
+所以他要会省掉诸多会有CN本地利润不佳的项目，但是限线扩展对其他地区有增益的项目。
+
+*****
+
+####  我有妹  
+##### 242#       发表于 2022-1-4 18:24
+
+iPad的kindle app很好用，可以选勿扰模式之后对我这样的碎片用户来说就更加没必要再多买一个kindle了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxlice  
+##### 243#       发表于 2022-1-4 18:26
+
+硬件可以海外购吧，中文书质量说真的一般
+

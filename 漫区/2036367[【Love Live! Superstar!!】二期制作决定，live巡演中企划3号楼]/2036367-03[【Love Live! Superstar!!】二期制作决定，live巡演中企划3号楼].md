@@ -5972,3 +5972,23 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  优妮可  
+##### 3569#       发表于 2022-1-4 18:26
+
+青山的抖音是去年的存货吧，和鲤鱼的搞快点
+
+*****
+
+####  iuhehc  
+##### 3570#       发表于 2022-1-4 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160164&amp;ptid=2036367" target="_blank">奥柏伦亲王 发表于 2022-1-4 15:47</a>
+又看了一遍跨年live，星团真的是强到叹为观止，不敢确定是不是全程全开麦（特别是小百合和nako有几句高音） ...</blockquote>
+不是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

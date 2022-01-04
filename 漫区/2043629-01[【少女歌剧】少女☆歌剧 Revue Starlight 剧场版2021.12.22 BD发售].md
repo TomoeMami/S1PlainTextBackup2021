@@ -6328,3 +6328,25 @@ tv之所以看不太出来，是因为要把蕉哥当成一个转折点。之所
 
 —— 来自 vivo V1824A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  unnilennium  
+##### 489#       发表于 2022-1-4 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161318&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-4 17:10</a>
+
+【【剧场版前传】戏剧庆典上的圣翔内战【少女歌剧】-哔哩哔哩】 [https://b23.tv/BKZFNTK](https://b23.tv/BKZFNTK)
+
+单独把手游这两场 ...</blockquote>
+问下您在B站评论区提到的剧场版阉割80%的说法有出处吗？
+
+关于剧场版的剪辑，各种staff的talk和上映会打招呼repo我只看过
+
+1.本来是180分左右因为长度限制保留了120分（1:59:59)
+
+2.明确剪掉的内容，皆杀的revue是整个分镜一点一点剪掉了一部分，最后总长变短了
+
+开头的進路相談，每个人其实都有一些反应学园生活or跟后辈互动的剧情，明确被删掉的纯那和华恋各带了一组新生，然后打招呼的时候称纯那是学生会长
+
