@@ -16243,3 +16243,16 @@ mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你
 转化成带状疱疹</blockquote>
 还有单纯疱疹病毒
 
+
+
+*****
+
+####  米村正二  
+##### 2847#       发表于 2022-1-4 09:59
+
+根据美国约翰斯·霍普金斯大学统计数据，截至北京时间2022年1月4日7时22分，美国新冠肺炎累计确诊病例达到56091119例，累计死亡病例达到827701例。在过去约25小时里，美国新增确诊病例1021772例，新增死亡病例1695例。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">比接种疫苗效率高多了呀（棒读）
+
+—— 来自 Xiaomi M2012K11C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -10586,3 +10586,17 @@ syl 小熊猫5号复活， ...</blockquote>
  ...</blockquote>
 牛姨上传了自己的跳绳败北完整版，里面写着是在爱园的生日live（播出时间2021.11.08）收录后立刻录的
 
+
+
+*****
+
+####  怜  
+##### 9899#       发表于 2022-1-4 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54152951&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-1-3 22:52</a>
+
+主要是当时那个语气有种还未休止的感觉,不过大部分人感觉是录nju的时候顺路去的。
+
+省一楼，麻将杯分组， ...</blockquote>
+绿仙发了个视频记录自己6月9号想出的这个大会企划，估计就是录挺早吧，没准录放学后摸鱼的时候就给抓去录了
+

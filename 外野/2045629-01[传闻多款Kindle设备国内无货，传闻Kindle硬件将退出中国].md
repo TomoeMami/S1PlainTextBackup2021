@@ -806,3 +806,180 @@ kindle吃灰很久了。我觉得还是海信a5这种好，带个kindle总归没
 且不说kin ...</blockquote>
 这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
 
+
+
+*****
+
+####  wjmly1988  
+##### 84#       发表于 2022-1-4 09:45
+
+md再信这些企业特别是美企不备份我就是狗,买了一堆电子书,还有上传的文件,都没得备份.上次是雅虎邮箱,改了一堆账号.
+
+*****
+
+####  我就再氪一单  
+##### 85#       发表于 2022-1-4 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154426&amp;ptid=2045629" target="_blank">Unlight 发表于 2022-1-4 01:58</a>
+那我可能就换回Kobo了，看新出的Libra 2不错。
+
+或者有什么满足要求的国产货也可以推荐一下：7寸、300ppi、 ...</blockquote>
+kobo问题是字体吧，原本日文原生系统，中文字库支持的字体就那默认几款<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lovebbc  
+##### 86#       发表于 2022-1-4 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154334&amp;ptid=2045629" target="_blank">rockzrq 发表于 2022-1-4 01:37</a>
+原本也打算换国产设备，但有鉴于最近国内对书籍出版和交易的严管，我还是转回kindle了，毕竟可以避免国内对 ...</blockquote>
+2021年一月份就出来了，还是抽奖获得购买资格，文石代工的，就是文石Poke3价格还贵了三百多块钱。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zyupha  
+##### 87#       发表于 2022-1-4 09:48
+
+这贴就是安利国产货是不是，不看了不看了，我的KPW还能用好多年
+不过感觉这几年海盗资源越来越难找了是真的，担忧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  猫溺泉君  
+##### 88#       发表于 2022-1-4 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155776&amp;ptid=2045629" target="_blank">overmindoyj 发表于 2022-1-4 09:43</a>
+
+这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
+
+ ...</blockquote>
+你理解错了朋友，那群文青的意思是亚马逊这种平台是自由的窗口
+
+*****
+
+####  zyupha  
+##### 89#       发表于 2022-1-4 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155837&amp;ptid=2045629" target="_blank">猫溺泉君 发表于 2022-1-4 09:48</a>
+你理解错了朋友，那群文青的意思是亚马逊这种平台是自由的窗口</blockquote>
+亚马逊还真是自由的窗口，因为它的电子书容易破解。你看腾讯不怼海盗怼得死死的。
+
+—— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  edenpenn  
+##### 90#       发表于 2022-1-4 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">买了一直在吃灰
+
+
+
+*****
+
+####  用户名已注册  
+##### 91#       发表于 2022-1-4 09:53
+
+Kpw5的新翻页动画体验不错，尤其是看漫画，比前代好多了。
+
+不过没有用过其他开放系统的电纸书，不太确定其他家的效果。
+
+*****
+
+####  蓬莱妹红  
+##### 92#       发表于 2022-1-4 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155776&amp;ptid=2045629" target="_blank">overmindoyj 发表于 2022-1-4 09:43</a>
+这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
+
+ ...</blockquote>
+可是他只是关了硬件服务啊，书不是照样买…最多算是书城的桌子椅子给你撤了你不是照样可以买书回去看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  筒井彩芽  
+##### 93#       发表于 2022-1-4 09:54
+
+kindle我用的还是挺好的，ku会员用的也可以，如果看出版书比较多的挺适合的
+
+*****
+
+####  Litccc  
+##### 94#       发表于 2022-1-4 09:54
+
+微信读书的在线内容屏蔽词和删减很恶心，还好导入本地资源不难<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  狄一琛2019  
+##### 95#       发表于 2022-1-4 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154714&amp;ptid=2045629" target="_blank">南去 发表于 2022-1-4 04:51</a>
+
+有calibre配合zlibrary可以完全抛开kindle自带生态，图个墨水屏罢了。kindle最适合看小说，带插图的和大部 ...</blockquote>
+同。我基本不在Kindle商城里买书，钱都用来给zlib捐款了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我的kindle倒是用的很多，墨水屏看书眼睛舒服一点，手机ipad看久了眼干。不过带插图的还有扫图pdf不适合用kindle，我现在是ipad和kindle轮换用<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+也没啥可惜的，国内多少性能价位更优的电纸书，就算商城生态也没有什么不可替代的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mcfly  
+##### 96#       发表于 2022-1-4 09:56
+
+国内就用多看呗，感觉体验最好的
+
+*****
+
+####  shaoniu1  
+##### 97#       发表于 2022-1-4 09:57
+
+对二手利好还是利空？手里有一台一直没拆封
+
+*****
+
+####  保科智子  
+##### 98#       发表于 2022-1-4 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154334&amp;ptid=2045629" target="_blank">rockzrq 发表于 2022-1-4 01:37</a>
+
+原本也打算换国产设备，但有鉴于最近国内对书籍出版和交易的严管，我还是转回kindle了，毕竟可以避免国内对 ...</blockquote>
+国行kindle怎么登录外服账号？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bixinhaner  
+##### 99#       发表于 2022-1-4 09:58
+
+微信读书好多书显示未上架怎么办？是要氪金会员吗？
+目前除了亚马逊平台，最好的平台是不是就微信读书了？适合的墨水屏阅读器有啥呢？
+
+*****
+
+####  Amesha202  
+##### 100#       发表于 2022-1-4 09:58
+
+墨水屏手机看s1蛮不错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Hisense HLTE203T, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lemuever17  
+##### 101#       发表于 2022-1-4 09:58
+
+<blockquote>蓬莱妹红 发表于 2022-1-4 09:54
+可是他只是关了硬件服务啊，书不是照样买…最多算是书城的桌子椅子给你撤了你不是照样可以买书回去看
+
+— ...</blockquote>
+按照国内文化口的风向，我觉得kindle市场死的会比steam快
+
