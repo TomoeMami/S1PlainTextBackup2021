@@ -983,3 +983,94 @@ kindle我用的还是挺好的，ku会员用的也可以，如果看出版书比
 — ...</blockquote>
 按照国内文化口的风向，我觉得kindle市场死的会比steam快
 
+
+
+*****
+
+####  dangdang00  
+##### 102#       发表于 2022-1-4 10:03
+
+第一代kpw用到现在。
+kpw看文字书和处理过格式的漫画还行，但是看pdf和彩色就不行了，而且这么多代没质的区别。
+还不如pad上用kindle或者其他app看来得方便
+
+—— 来自 samsung SM-F7070, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+*****
+
+####  华发夜眼[CN]  
+##### 103#       发表于 2022-1-4 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155896&amp;ptid=2045629" target="_blank">蓬莱妹红 发表于 2022-1-4 09:54</a>
+
+可是他只是关了硬件服务啊，书不是照样买…最多算是书城的桌子椅子给你撤了你不是照样可以买书回去看
+
+— ...</blockquote>
+如果你是看着中亚的业务是如何一步步缩减的，那么应该能感觉到电子书平台关闭也是迟早的事情了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  luxiaojiaxp  
+##### 104#       发表于 2022-1-4 10:06
+
+买了ipad mini 6之后基本都用它看书，看pdf和漫画也很舒服，如果本来就是苹果生态里同步更方便（可惜我是安卓的
+
+*****
+
+####  启叔  
+##### 105#       发表于 2022-1-4 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155955&amp;ptid=2045629" target="_blank">保科智子 发表于 2022-1-4 09:57</a>
+
+国行kindle怎么登录外服账号？</blockquote>
+你先注册个美亚
+
+*****
+
+####  土星六边形  
+##### 106#       发表于 2022-1-4 10:07
+
+说zlib的，有没有想过一个问题，那些排版好的epub mobi，是有人从亚马逊买了破解发出来，还是有人费力地截屏ocr重新排版制作成书？
+
+*****
+
+####  sakurafly  
+##### 107#       发表于 2022-1-4 10:11
+
+难怪人家干不下去了，都白嫖，还希望一直白嫖
+
+*****
+
+####  wawaren  
+##### 108#       发表于 2022-1-4 10:11
+
+一直用ipad看书，各个app都用。就是感觉有点伤眼，前几天买了文石leaf
+
+*****
+
+####  升职加薪  
+##### 109#       发表于 2022-1-4 10:13
+
+中文书库第一肯定还是D版的阅读APP
+
+*****
+
+####  林然若水  
+##### 110#       发表于 2022-1-4 10:13
+
+<img src="https://p.sda1.dev/4/4a426d4b19420e0a656730057a756790/49037385.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Zinccc  
+##### 111#       发表于 2022-1-4 10:19
+
+以前高中时候没手机，每天晚上就看kindle<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后来用的越来越少，上个月直接二手卖了。现在就简简单单用手机看书，毕竟等东西无聊或者工作之余摸鱼还是随时掏出的手机方便
+
+*****
+
+####  suhanblood  
+##### 112#       发表于 2022-1-4 10:20
+
+说实话我一直用的邮箱推送，如果没kindle这些年我小说看下来手机手应该很严重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

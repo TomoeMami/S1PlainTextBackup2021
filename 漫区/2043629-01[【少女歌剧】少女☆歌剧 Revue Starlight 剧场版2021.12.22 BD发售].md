@@ -5924,3 +5924,69 @@ BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入�
 
 —— 来自 vivo V1824A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  海晟天锻  
+##### 459#       发表于 2022-1-4 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155787&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-01-04 09:44:26</a>
+写点动画党不知道的：
+手游里剧场版前传，露女士对决蕉哥，展现了自己的闪耀，让蕉哥刮目相看让了一局。
+恋 ...</blockquote>手游主线不是露向蕉展示闪耀结果被魔怔蕉一波带走吗？完事后露还跟蕉说我看不到你的闪耀，然后下一章蕉被鹅修正
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  unnilennium  
+##### 460#       发表于 2022-1-4 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155787&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-4 09:44</a>
+写点动画党不知道的：
+手游里剧场版前传，露女士对决蕉哥，展现了自己的闪耀，让蕉哥刮目相看让了一局。
+恋 ...</blockquote>
+剧场版顶多是车内广告能证明剧fes的存在、其他几个学校名义上亮相一下。并没有说过アルカナ系列主线剧情是前传吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+单纯的讨论这一段的剧情，蕉一开始输了也不是让的，就是她还在固有的模式里，蕉迷惑于为什么大家这次都对剧fes这么执着的时候，真昼倒是进了一步说要接受自己，不管是劣等的情感还是其他都是粮食，一开始第一轮就占优势。后来蕉还是坚持大家为什么要改变，执念更高了一筹，所以又反杀真昼。我一直认为手游在这点上就是保守的，开服三年了角色在剧情上其实没有真正的进步，蕉和真昼这段刚好就是维持在设定上的最好证明。
+
+*****
+
+####  OnlyW  
+##### 461#       发表于 2022-1-4 10:10
+
+各个媒体之间还是不要混在一起了，否则青岚三人还在舞台剧群架吊锤过圣翔九人众
+
+*****
+
+####  青龙圣者  
+##### 462#       发表于 2022-1-4 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156010&amp;ptid=2043629" target="_blank">海晟天锻 发表于 2022-1-4 10:01</a>
+
+手游主线不是露向蕉展示闪耀结果被魔怔蕉一波带走吗？完事后露还跟蕉说我看不到你的闪耀，然后下一章蕉被鹅 ...</blockquote>
+看的久远我记反了可能。那就是魔怔把露鲨了。
+
+*****
+
+####  青龙圣者  
+##### 463#       发表于 2022-1-4 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156055&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 10:05</a>
+
+剧场版顶多是车内广告能证明剧fes的存在、其他几个学校名义上亮相一下。并没有说过アルカナ系列主线剧情 ...</blockquote>
+最新的克洛VS光里，已经开始疯狂暗示光退学跑路离开华恋了。
+
+然后克洛推动了一波，加上古川检修、樋口脚本，我是当前传看的。
+
+*****
+
+####  0aleph37  
+##### 464#       发表于 2022-1-4 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54156055&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 10:05</a>
+
+剧场版顶多是车内广告能证明剧fes的存在、其他几个学校名义上亮相一下。并没有说过アルカナ系列主线剧情 ...</blockquote>
+这一段蕉所迷惑的是因为主演位置的空缺，所有人对主演位置的争夺有些魔怔，这点不可否认，你看那边分崩离析的边境线还有魔怔先辈。蕉鹅战的时候鹅的态度是表示应当信任她们，虽然一时魔怔，但她们能够克服。然后等蕉鹅战结束鹅立马拉着b班去找艾露大修剧本加入了主演星之少女。
+
