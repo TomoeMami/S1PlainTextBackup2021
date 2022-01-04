@@ -746,3 +746,12 @@ doom永恒阿
 
   COD的僵尸模式在彩蛋解密上我觉得到最后BO3已经有点丧心病狂了，BO4适当简化+引导但不是CW那种劣化地图设计+保姆引导我就很喜欢。
 
+
+
+*****
+
+####  Papercup  
+##### 81#       发表于 2022-1-4 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">原来求生之路这么吓人，以前联机打完全没注意到
+

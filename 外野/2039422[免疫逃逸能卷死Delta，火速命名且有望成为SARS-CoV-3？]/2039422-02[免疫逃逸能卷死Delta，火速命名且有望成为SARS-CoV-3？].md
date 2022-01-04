@@ -16642,3 +16642,16 @@ PCR阴性不如阳性有说服力，因为可能是技术不好，比如取样RP
 
 美国分析1月底会出来死亡最高峰，之后就在今年2022结束疫情。如果奥密克戎传播够快，能否死够，达成群体免疫呢？
 
+
+
+*****
+
+####  smy20011  
+##### 2879#       发表于 2022-1-4 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162180&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-4 18:31</a>
+PCR阴性不如阳性有说服力，因为可能是技术不好，比如取样RP不行或者测序深度不够 另外，这篇论文能 ...</blockquote>
+对啊，但是比天天复读病毒入脑贩卖焦虑要好一点
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
