@@ -1852,3 +1852,55 @@ kindle死就死了，电子书商城留着<img src="https://static.saraba1st.com
 
 网页咨询客服，过了俩小时给我连拨三通电话，然后一封电子邮件答疑。现在国产设备商的客服效率如何？记得文石的售后倒是经常出没在电纸书吧，基本版本更新都会出来发帖和答疑（可能要加个限最新型号设备。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tau_cross  
+##### 187#       发表于 2022-1-4 13:34
+
+ 本帖最后由 tau_cross 于 2022-1-4 13:36 编辑 
+
+问下亚马逊官方是单书买断还是有像XGP一样的订阅制
+
+*****
+
+####  中二骚年  
+##### 188#       发表于 2022-1-4 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158483&amp;ptid=2045629" target="_blank">tau_cross 发表于 2022-1-4 13:34</a>
+
+问下亚马逊官方是单书买断还是有像XGP一样的订阅制</blockquote>
+普通的是买断
+
+kindle ultimate大概是订阅制，没买过...
+
+*****
+
+####  别里科夫  
+##### 189#       发表于 2022-1-4 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158483&amp;ptid=2045629" target="_blank">tau_cross 发表于 2022-1-4 13:34</a>
+
+问下亚马逊官方是单书买断还是有像XGP一样的订阅制</blockquote>
+kindle unlimited是可以借10本书。
+
+*****
+
+####  havoc_cc  
+##### 190#       发表于 2022-1-4 13:42
+
+kindle能极大减缓我通勤时的电量焦虑
+
+*****
+
+####  luguozmy  
+##### 191#       发表于 2022-1-4 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154721&amp;ptid=2045629" target="_blank">Redis 发表于 2022-1-4 04:57</a>
+
+kindle主要还是买书比较方便
+
+当然主要还是我已经买了很多书了，这个沉没成本不可忽略不计 ...</blockquote>
+沉没成本应该没有的，你买的书还是绑在你的账号上的嘛，Amazon又没有关闭kindle服务
+
