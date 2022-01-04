@@ -6350,3 +6350,21 @@ tv之所以看不太出来，是因为要把蕉哥当成一个转折点。之所
 
 开头的進路相談，每个人其实都有一些反应学园生活or跟后辈互动的剧情，明确被删掉的纯那和华恋各带了一组新生，然后打招呼的时候称纯那是学生会长
 
+
+
+*****
+
+####  青龙圣者  
+##### 490#       发表于 2022-1-4 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162241&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-4 18:38</a>
+问下您在B站评论区提到的剧场版阉割80%的说法有出处吗？
+
+关于剧场版的剪辑，各种staff的talk和上映会打招 ...</blockquote>
+https://b23.tv/f9pm8YJ
+古川访谈第一部分原话
+
+要描绘9个人主要角色，一季动画果然是不够的， 所以我不得不削减60%我想在动画里描写的事情。 这就是为什么我想在剧场版中用更有魄力的影像来更加深入描绘她们，但我只有2个小时来做这个，所以我最后把我想做的东西砍掉了80%（笑）。
+
+—— 来自 vivo V1824A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
