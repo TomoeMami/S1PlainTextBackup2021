@@ -2323,3 +2323,59 @@ kindle还边缘业务，怕不是中亚是要变成印象笔记那样啊</blockq
 
 前几天aws当机，结果我起码两周都无法访问z.cn（挂反向梯子没问题，就知道中亚这边有多草台了
 
+
+
+*****
+
+####  lostanother  
+##### 231#       发表于 2022-1-4 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160361&amp;ptid=2045629" target="_blank">Redis 发表于 2022-1-4 16:03</a>
+作为前前员工
+
+中亚在亚马逊内部的意义就是对接中国的卖家</blockquote>
+原来是这样，那确实是毫不意外
+
+*****
+
+####  13号  
+##### 232#       发表于 2022-1-4 16:07
+
+ 本帖最后由 13号 于 2022-1-4 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159994&amp;ptid=2045629" target="_blank">chilno 发表于 2022-1-4 15:32</a>
+
+8页了都没人出来推荐下便宜质优的国产替代品吗</blockquote>
+其实如果以前经常电子设备看书的话， 本来就是多种APP都会去用的了。
+
+目前我个人在用的： Kindle为主，基本用oasis看，手机上Kindle的字体还是不太行。
+
+Kindle上没有的一些书，就去豆瓣阅读、微信读书，或者找电子书下来，扔到微信读书里看。 这几个app体验都做的不错了，豆瓣的月付和Kingle的挺像的，书也挺多。
+
+*****
+
+####  天下至贱  
+##### 233#       发表于 2022-1-4 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160310&amp;ptid=2045629" target="_blank">lostanother 发表于 2022-1-4 16:00</a>
+
+kindle还边缘业务，怕是中亚是要变成印象笔记那样啊</blockquote>
+整个中亚现在应该都是边缘业务了。
+
+我还是挺怀念卓越时代的，十几年前京东还没兴起，快递也没现在这么方便，当时的卓越亚马逊几乎是我在小城几乎唯一能买到自己想读的书的渠道，对了还有以前的当当。
+
+*****
+
+####  Redis  
+##### 234#       发表于 2022-1-4 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160423&amp;ptid=2045629" target="_blank">天下至贱 发表于 2022-1-4 16:08</a>
+
+整个中亚现在应该都是边缘业务了。
+
+我还是挺怀念卓越时代的，十几年前京东还没兴起，快递也没现在这么方 ...</blockquote>
+中亚对接卖家这个业务我觉得很核心
+
+毕竟中国卖家是大头，这这个业务不可能丢，所以中亚还可以一直存在下去
+
+但是2c的业务真的是明天砍了估计都不会有人去blind上面发帖的那种
+
