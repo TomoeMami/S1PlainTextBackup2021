@@ -16206,3 +16206,26 @@ omicron确实更难传染到肺部，这里之前已经讨论过一波了。
 
 话说历史上有感染后会几十年都检测阳性的病毒吗？
 
+
+
+*****
+
+####  holmesjerry  
+##### 2844#       发表于 2022-1-4 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154904&amp;ptid=2039422" target="_blank">有口皆悲 发表于 2022-1-4 07:37</a>
+话说历史上有感染后会几十年都检测阳性的病毒吗？</blockquote>
+水痘病毒
+转化成带状疱疹
+
+*****
+
+####  Akakaka  
+##### 2845#       发表于 2022-1-4 07:45
+
+<blockquote>ひびき 发表于 2022-1-3 18:50
+mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你怪技术不行？
+
+</blockquote>
+得，您这一句话我工作量去年全白干，去年下半年就上临床了
+
