@@ -737,3 +737,12 @@ doom永恒阿
 这个油管主有点厉害，全程未说话，用素材和一点加工就简洁却完美地阐释了自己的观点 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">经典的little sweet lie就是出自他手啊 脍炙人口
 
+
+
+*****
+
+####  415452356  
+##### 80#       发表于 2022-1-4 21:50
+
+  COD的僵尸模式在彩蛋解密上我觉得到最后BO3已经有点丧心病狂了，BO4适当简化+引导但不是CW那种劣化地图设计+保姆引导我就很喜欢。
+
