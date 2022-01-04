@@ -16229,3 +16229,17 @@ mrna起码把针对beta delta的变种针做出来了，灭活呢？fda不批你
 </blockquote>
 得，您这一句话我工作量去年全白干，去年下半年就上临床了
 
+
+
+*****
+
+####  smy20011  
+##### 2846#       发表于 2022-1-4 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154922&amp;ptid=2039422" target="_blank">holmesjerry 发表于 2022-1-4 07:43</a>
+
+水痘病毒
+
+转化成带状疱疹</blockquote>
+还有单纯疱疹病毒
+

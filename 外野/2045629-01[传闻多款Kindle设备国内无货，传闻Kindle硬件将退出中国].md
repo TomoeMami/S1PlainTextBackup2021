@@ -656,3 +656,153 @@ Kindle APP翻页似乎不能上下滚动？我有些书买了最后去XX读书�
 
 所以有人告诉本文青一个可以导出购买的电子书并且能够破解去除drm的中文电子书平台吗？
 
+
+
+*****
+
+####  iamsolowingpixy  
+##### 71#       发表于 2022-1-4 09:26
+
+真看书的人 会自己主动寻找资源的 不会只盯着各种APP的网络书库和网络书店
+
+*****
+
+####  水煮冰红茶  
+##### 72#       发表于 2022-1-4 09:27
+
+海信墨水屏手机，最方便。
+
+*****
+
+####  lvcha  
+##### 73#       发表于 2022-1-4 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154275&amp;ptid=2045629" target="_blank">PENTAX-DA 发表于 2022-1-4 01:25</a>
+
+硬件太多了
+
+剩下的就是书库方便程度了</blockquote>
+方便程度目前也是吊打吧。
+
+微信读书。
+
+*****
+
+####  HughNoman  
+##### 74#       发表于 2022-1-4 09:29
+
+我有三个，但是都不知道在什么犄角旮旯了
+
+*****
+
+####  忧郁的热带  
+##### 75#       发表于 2022-1-4 09:30
+
+吓得我赶紧续了一个Kp4压压惊
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  约瑟夫海顿  
+##### 76#       发表于 2022-1-4 09:32
+
+ 本帖最后由 约瑟夫海顿 于 2022-1-4 09:35 编辑 
+
+我觉得微信读书压根儿读不进去啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">毫无阅读体验
+但kindle现在利用率确实很低。。说起来我手上的还是十年前的kindle keyboard，我表弟用的dxg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时还是走私的吧。被砍之后是不是又回到走私的老路
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  老贝  
+##### 77#       发表于 2022-1-4 09:32
+
+kindle吃灰很久了。我觉得还是海信a5这种好，带个kindle总归没多带个手机方便。
+
+*****
+
+####  霧亥  
+##### 78#       发表于 2022-1-4 09:34
+
+以前总想买个泡面盖子，但也只是想，一想到我还有彩漫和动画要看就去买平板了，后来有了折叠屏，算是一揽子解决方案
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  heseran  
+##### 79#       发表于 2022-1-4 09:36
+
+我用的还是kpw3，今年还想换个os3或者Kpw5，结果国行被砍了这<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  indigo_k  
+##### 80#       发表于 2022-1-4 09:38
+
+<blockquote>32196789 发表于 2022-1-4 09:19
+这贴是不是说明了苹果用户的信息茧房程度</blockquote>
+说明日常使用率低吧，苹果最近也开了自己的在线阅读市场……
+
+*****
+
+####  lovebbc  
+##### 81#       发表于 2022-1-4 09:39
+
+微信读书是唯一会删改书的内容电子书平台，比如三体。上面是微信读书，下面是多看阅读，实体书也没有删。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/04/093844l5dt3tgomhgdphhz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-30-14-59-20-196_com.tencent.weread.jpg</strong> (506.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 09:38 上传
+
+<img src="https://img.saraba1st.com/forum/202201/04/093848okeky1jodwwefzfz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-30-15-00-11-268_com.tencent.weread.jpg</strong> (653.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 09:38 上传
+
+<img src="https://img.saraba1st.com/forum/202201/04/093847qf1bn6nybf31q3e6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-30-14-59-51-074_com.duokan.reader.jpg</strong> (703.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 09:38 上传
+
+<img src="https://img.saraba1st.com/forum/202201/04/093848kx1zx10q4z010l15.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2021-12-30-15-00-16-948_com.duokan.reader.jpg</strong> (831.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 09:38 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alpha.h  
+##### 82#       发表于 2022-1-4 09:42
+
+微信读书好用是因为不要钱吧，一个想法不一定对。
+
+*****
+
+####  overmindoyj  
+##### 83#       发表于 2022-1-4 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155508&amp;ptid=2045629" target="_blank">猫溺泉君 发表于 2022-1-4 09:16</a>
+
+一群微博上的废物文青在哀嚎kindle走了青天也就没了，cnzf罪大恶极迫害走了知识和文学之光blabla
+
+且不说kin ...</blockquote>
+这种心情很难理解吗，在书城买过几百本书，然后现在没人来保证你能继续看几年还是几个月了。
+
