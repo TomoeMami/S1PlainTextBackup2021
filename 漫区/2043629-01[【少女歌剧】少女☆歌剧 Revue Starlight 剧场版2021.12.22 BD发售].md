@@ -5891,3 +5891,15 @@ BGM排名已经到80了</blockquote>
 
 少歌输赢都是安排，安排你赢空手对波都赢了，拿别人武器都赢了，输赢都是为了实现戏剧。
 
+
+
+*****
+
+####  unnilennium  
+##### 457#       发表于 2022-1-4 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54154451&amp;ptid=2043629" target="_blank">squallx 发表于 2022-1-4 02:04</a>
+最近几年手机铃声从百合熊的挖露露一路换成少鸽TV手机铃声用了太久了  有大佬把剧场地铁那段铃声截 ...</blockquote>
+你是说长颈鹿标识滚出来的那个？
+BGM名是ki-ringtrain，跟TV的ki-ringtone是对应的，去下剧场版插入歌vol.1就可以了
+

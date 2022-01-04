@@ -8852,3 +8852,19 @@ FIAVjrYVgAIhVv2.jpg
 另外他们似乎不打算搬离原办公地 ...</blockquote>
 估计人手方面A爹有派人过去增援吧。
 
+
+
+*****
+
+####  UNISONIA  
+##### 86365#       发表于 2022-1-4 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54155374&amp;ptid=1085254" target="_blank">khxooo 发表于 2022-1-4 09:01</a>
+
+估计人手方面A爹有派人过去增援吧。</blockquote>
+看起来暂时并没有
+
+A爹其实你从魔法纪录和扭曲仙境就能看出来他们也不存在什么专业的管理人员和专业的技术人员
+
+如果你问的是动画那边的管理，那在业内都算中下的
+
