@@ -2542,3 +2542,55 @@ a7常用，dxg吃灰
 
 借楼问一下，ios的kindle app删了一次后再装就怎么都切换不到日服了，应该怎么操作？
 
+
+
+*****
+
+####  黑岩泪香  
+##### 249#       发表于 2022-1-4 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163049&amp;ptid=2045629" target="_blank">jyky 发表于 2022-1-4 20:10</a>
+
+借楼问一下，ios的kindle app删了一次后再装就怎么都切换不到日服了，应该怎么操作？ ...</blockquote>
+开梯子，换日亚账号登陆。
+
+*****
+
+####  EFSF  
+##### 250#       发表于 2022-1-4 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162977&amp;ptid=2045629" target="_blank">bubuyu 发表于 2022-1-4 20:00</a>
+现在海外购还可以吗？我从外国疫情爆了之后就不敢买了</blockquote>
+还可以，运转正常。
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  jyky  
+##### 251#       发表于 2022-1-4 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163197&amp;ptid=2045629" target="_blank">黑岩泪香 发表于 2022-1-4 20:26</a>
+
+开梯子，换日亚账号登陆。</blockquote>
+同时开梯子换日语系统换日亚账号也行不通，不知道什么原因
+
+*****
+
+####  黑岩泪香  
+##### 252#       发表于 2022-1-4 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163235&amp;ptid=2045629" target="_blank">jyky 发表于 2022-1-4 20:29</a>
+
+同时开梯子换日语系统换日亚账号也行不通，不知道什么原因</blockquote>
+我试了一下没问题啊，要不你再试试从日服itunes下载kindle？
+
+*****
+
+####  Sacko9  
+##### 253#       发表于 2022-1-4 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163235&amp;ptid=2045629" target="_blank">jyky 发表于 2022-1-4 20:29</a>
+同时开梯子换日语系统换日亚账号也行不通，不知道什么原因</blockquote>
+你开了全局么？kindleAPP可以直连，不开全局可能登录失败
+

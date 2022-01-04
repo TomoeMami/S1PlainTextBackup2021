@@ -6016,3 +6016,97 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 都直呼名字了 那反应确实会大一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 3573#       发表于 2022-1-4 20:32
+
+如果是这样的话原来岬不是姓而是名吗哇噢
+
+*****
+
+####  大哀之君  
+##### 3574#       发表于 2022-1-4 20:35
+
+这个楼是不是翻页有问题啊
+
+*****
+
+####  仟音一心  
+##### 3575#       发表于 2022-1-4 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161348&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-4 17:13</a>
+
+2022鱼的裂啦抱负
+
+绊写的日不日中不中，名字还写成liyyu，丈育实锤</blockquote><blockquote>Sayu: 你们俩怎么回事？？🙃
+
+nako：我们正在加深感情yo～check it out！
+
+sayu：保持笑容保持笑容😄
+
+nako：喜欢长发鲤酱
+
+sayu，宫城是你的主场哦，加油啊
+
+补点完整一点的对话：
+
+sayu：理想的（头发）长度呢？
+
+鲤鱼比划
+
+sayu然后nako然后鲤鱼一起：长发长发！
+
+鱼：啊！跟*岬*差不多长！
+
+樱花妹吸气
+
+鱼（再次）：跟*岬*
+
+sayu：等下，你们俩怎么回事？🙃
+
+鱼：诶？
+
+nako：是岬哟～☺️
+
+sayu：你们俩有点…🤨
+
+nako：我现在正好在、怎么说呢、那啥、这大概是、这种关系
+
+鱼：de↗su～
+
+nako：友好相处，正在加深关系，耶✌️
+
+（鱼的liella相关新年抱负）
+
+鱼：de↗su～
+
+nako：正在加深yo！check it out！😎
+
+sayu：（超低沉听不清）保持笑容😄
+
+鱼：今年的、
+
+nako：健康第一！（sayu的个人新年抱负）
+
+鱼：对！今年最开始的 “羁绊羁绊！”x2
+
+nako：羁绊羁绊～
+
+sayu：是的呢😄
+
+sayu：鲤酱喜欢做头发吗？发型啥的？
+
+鱼：长发的话会去做做头发吧？
+
+sayu：啊现在这种长度做不了的感觉？
+
+鱼：是啊（委屈）
+
+nako：喜欢长发的鲤酱———
+
+sayu：诶？！（其实这里是另起话题不过我没cut好）
+[http://t.cn/A6JwWw7J](http://t.cn/A6JwWw7J)</blockquote>
+
