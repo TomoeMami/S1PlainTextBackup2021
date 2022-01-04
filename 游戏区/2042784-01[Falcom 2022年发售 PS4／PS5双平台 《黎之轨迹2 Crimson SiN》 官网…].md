@@ -2441,3 +2441,16 @@ ps5版至少loading问题可以解决了
 
 这个艾蕾因有点像艾莉啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mchaos  
+##### 208#       发表于 2022-1-4 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54146679&amp;ptid=2042784" target="_blank">windtrack 发表于 2022-1-3 12:34</a>
+所以我说了在不考虑法社员工安危的前提下最优解就是剑女挡刀临终前把范爷托付给诸葛阿妮 ...</blockquote>
+那我直接进行一个本社爆破<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
