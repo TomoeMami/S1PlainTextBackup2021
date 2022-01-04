@@ -2246,3 +2246,38 @@ ku还可以，经常跟各种信用卡搞活动，一年会员也就几十块钱
 
 KINDLE能看彩图吗？或者现在有电子阅读器能看彩图吗？
 
+
+
+*****
+
+####  天下至贱  
+##### 224#       发表于 2022-1-4 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158009&amp;ptid=2045629" target="_blank">fine0303 发表于 2022-1-4 12:47</a>
+
+这是怎么回事？没听说过</blockquote>
+应该是拒交源码违反GPL协议那事。
+
+*****
+
+####  bixinhaner  
+##### 225#       发表于 2022-1-4 15:32
+
+你们说的zlib有传送门吗？我在网上找的免费医院都是没封面，排班一泡污。
+
+*****
+
+####  chilno  
+##### 226#       发表于 2022-1-4 15:32
+
+8页了都没人出来推荐下便宜质优的国产替代品吗
+
+*****
+
+####  原装大小姐  
+##### 227#       发表于 2022-1-4 15:36
+
+我好像今年就充过一次电，后面都在用墨案，反正也能看kindle书库
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

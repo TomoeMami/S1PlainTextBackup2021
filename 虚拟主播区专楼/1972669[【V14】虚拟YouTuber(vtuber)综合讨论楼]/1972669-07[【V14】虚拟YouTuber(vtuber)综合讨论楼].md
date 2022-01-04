@@ -10633,3 +10633,14 @@ syl 小熊猫5号复活， ...</blockquote>
 
 跳绳比赛把背景陪同的liver声音收录进来真是太好了，有挺多意料之中的贴贴的，不过也有挺多意料之外的冒菜的
 
+
+
+*****
+
+####  Ketestrait  
+##### 9903#       发表于 2022-1-4 15:24
+
+<img src="https://tva2.sinaimg.cn/large/7c16af6bly1gy1o3309egj20yn0lktcs.jpg" referrerpolicy="no-referrer">
+
+看首页补了下这个高达卡拉ok联动，老板娘就像一个混入机师群的普通人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
