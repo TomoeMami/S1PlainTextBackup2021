@@ -755,3 +755,12 @@ doom永恒阿
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">原来求生之路这么吓人，以前联机打完全没注意到
 
+
+
+*****
+
+####  ESAKA!!!!  
+##### 82#       发表于 2022-1-5 00:23
+
+也没有必要对b4b太严格了，l4d是僵尸游戏不可复制的神作，就好像魂1的地图连宫崎自己也没法超越一样，b4b没法跟它比是很正常的。横向对比其他的僵尸游戏我觉得b4b还算不错了
+
