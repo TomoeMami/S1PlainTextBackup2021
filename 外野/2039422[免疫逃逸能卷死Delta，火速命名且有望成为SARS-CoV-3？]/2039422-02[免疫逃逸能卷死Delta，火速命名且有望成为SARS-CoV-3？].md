@@ -16655,3 +16655,64 @@ PCR阴性不如阳性有说服力，因为可能是技术不好，比如取样RP
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  DraQin  
+##### 2880#       发表于 2022-1-5 01:06
+
+<img src="https://img.saraba1st.com/forum/202201/04/170355chosy43j32bx5522.png" referrerpolicy="no-referrer">
+
+<strong>img_6732.png</strong> (451.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 01:03 上传
+
+带英挣扎了一段时间以后终于还是超过20万了
+只能说请继续前进，前进，前进<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+虽然如此，最近格拉斯哥街头戴口罩的人明显比原来多了不少，代表还是有不少人真的怕了
+不过基本都是中老年人还有中国人戴，年轻人依旧接着浪
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  riczxc  
+##### 2881#         楼主| 发表于 2022-1-5 01:15
+
+ 本帖最后由 riczxc 于 2022-1-5 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54165666&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 23:55</a>
+
+对啊，但是比天天复读病毒入脑贩卖焦虑要好一点
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goo ...</blockquote>
+
+本来就不入脑，是弄坏脑里的毛细血管。
+
+https://www.nature.com/articles/s41593-021-00926-1
+
+供血不足，大脑出问题了，的确不入脑。这就和一开始说戴口罩不effective一样，完全能说得通，因为effective的意思是
+
+1. successful in producing a desired or intended result.
+
+只要达到99%的防治效果，你还是可以说戴口罩对防治新冠不effective
+
+要学习怎么不说谎的前提下误导别人。
+
+*****
+
+####  smy20011  
+##### 2882#       发表于 2022-1-5 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166341&amp;ptid=2039422" target="_blank">riczxc 发表于 2022-1-5 01:15</a>
+本来就不入脑，是弄坏脑里的毛细血管。
+
+https://www.nature.com/articles/s41593-021-00926-1</blockquote>
+但是比起病毒引起脑供血不足，病毒入脑肯定更容易传播。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
