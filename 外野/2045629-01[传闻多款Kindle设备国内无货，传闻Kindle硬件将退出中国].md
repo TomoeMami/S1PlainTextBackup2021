@@ -2379,3 +2379,29 @@ kindle还边缘业务，怕是中亚是要变成印象笔记那样啊</blockquot
 
 但是2c的业务真的是明天砍了估计都不会有人去blind上面发帖的那种
 
+
+
+*****
+
+####  天下至贱  
+##### 235#       发表于 2022-1-4 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54160496&amp;ptid=2045629" target="_blank">Redis 发表于 2022-1-4 16:12</a>
+
+中亚对接卖家这个业务我觉得很核心
+
+毕竟中国卖家是大头，这这个业务不可能丢，所以中亚还可以一直存在下 ...</blockquote>
+我也觉得挺有可能的，就像谷歌在中国仍有团队和业务一样，哪天中亚的2c全砍了只保留对接团队我也不吃惊，毕竟前两年基本就把自营全砍了。
+
+说到底，楼里无论所谓政府打压或盗版挤兑确实都算不上真正原因，说到底还是整个中亚战略定位的关系。惋惜kindle也是觉得kindle中国项目一直都还有点人文情怀，一直就是懒得赚钱的性冷淡样子（或者说摆烂？）。这年头除了网文，无论实体书还是电子书都不赚钱，还在做文学的实体出版的多少还理想主义色彩，物伤其类罢了。
+
+*****
+
+####  suhanblood  
+##### 236#       发表于 2022-1-4 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159802&amp;ptid=2045629" target="_blank">寿_ashe 发表于 2022-1-4 15:17</a>
+
+说起来kindle的电池坏了能找到地方修吗</blockquote>
+能，我换过以前KT的电池，但是感觉还是不经用，最后只能换机器
+

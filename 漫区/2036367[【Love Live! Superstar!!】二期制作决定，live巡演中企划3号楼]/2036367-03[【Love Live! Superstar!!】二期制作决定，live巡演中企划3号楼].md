@@ -5874,3 +5874,36 @@ live的day1没有听到明显副音轨，稍微判断一下大概率是预录，
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  stygian  
+##### 3562#       发表于 2022-1-4 16:32
+
+<img src="https://img.saraba1st.com/forum/202201/04/163208uji0tizprpahipde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 16:32 上传
+
+今天是鱼合奈三人组
+
+*****
+
+####  lj205  
+##### 3563#       发表于 2022-1-4 16:34
+
+ 本帖最后由 lj205 于 2022-1-4 16:37 编辑 
+
+比起鲤鱼的腰我更担心她的膝盖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3564#       发表于 2022-1-4 16:38
+
+跨年live上纪实文学和星光序曲最后一句唱得真的强，当时听得非常震撼
+
