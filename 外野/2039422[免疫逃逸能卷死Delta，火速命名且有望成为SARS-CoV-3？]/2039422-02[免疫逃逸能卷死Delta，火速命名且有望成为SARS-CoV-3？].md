@@ -16499,3 +16499,27 @@ BNO:U.S. COVID update: More than 1 million new cases, including backlogs
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 瘟疫公司不行啊！！！ 说好的冰岛最难呢！！现在TM南极都沦陷了
 
+
+
+*****
+
+####  dllplayer  
+##### 2867#       发表于 2022-1-4 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157723&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-4 12:20</a>
+
+而且这篇nature也做了解刨，结果没有发现病毒在脑内复制的痕迹
+
+Astrocytes might be vulnerable even if t ...</blockquote>
+拍老师不是猜因为隔时间太长导致没发现么
+
+*****
+
+####  dllplayer  
+##### 2868#       发表于 2022-1-4 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54158784&amp;ptid=2039422" target="_blank">角龙大剑 发表于 2022-1-4 14:01</a>
+
+法国发现的新毒株能卷走奥密克戎吗</blockquote>
+不是应该几大强毒伺候一个人,这点福气还小吗?
+
