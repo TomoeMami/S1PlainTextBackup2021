@@ -1732,3 +1732,71 @@ eink屏的专利和亚马逊没啥关系
 利益相关，kindle只是个开始哈</blockquote>
 中亚也没剩下什么了，难道2c业务全关？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 177#       发表于 2022-1-4 12:45
+
+想知道还有哪个平台可以像亚马逊这样自己就能简单拆包，很急。
+
+<img src="https://img.saraba1st.com/forum/202201/04/123943n4id2vd2i2iby2w2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220104-123843_Kindle.jpg</strong> (154.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-4 12:39 上传
+
+*****
+
+####  fine0303  
+##### 178#       发表于 2022-1-4 12:47
+
+<blockquote>tianhao2001 发表于 2022-1-4 10:29
+还敢推荐文石呢？
+
+不知道你坛睾雅程序员一致认为文石意识形态出了问题吗 ...</blockquote>
+这是怎么回事？没听说过
+
+*****
+
+####  lostanother  
+##### 179#       发表于 2022-1-4 12:49
+
+ 本帖最后由 lostanother 于 2022-1-4 12:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157890&amp;ptid=2045629" target="_blank">tepk 发表于 2022-1-4 12:36</a>
+有意思，实体书一群人买了不读，电子书一群人读了不买我就没见在网上见过几个支持正版电子书的，如 ...</blockquote>
+有活动的时候我还是会买些的。虽然我本人朋友圈都不开没有分享生活的习惯，估计主要是电子书买了就买了，没法像实体书一样摆拍吧
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 180#       发表于 2022-1-4 12:54
+
+微信读书好就好在普通用户几乎都能无限白嫖会员卡，等其他竞争者死了就是割韭菜的开始咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+kindle死就死了，电子书商城留着<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  heseran  
+##### 181#       发表于 2022-1-4 12:56
+
+有点奇怪为什么京东自营店断货这件事今天才在微博发酵，按理说亚马逊早就不在自己的店里卖kindle了，京东的KPW5更是除了预售就没显示过有货，KO也断货很久了，今天才有这种新闻出来。
+
+*****
+
+####  lostanother  
+##### 182#       发表于 2022-1-4 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157894&amp;ptid=2045629" target="_blank">哈迪斯兜帽 发表于 2022-1-4 12:36</a>
+一到重点就开始顾左右而言他
+
+没啥好说的了，希望楼里的懂哥能多做几本中文电子书。 ...</blockquote>
+不可能再有以前自己ocr然后精校精排的氛围了吧，本来圈子就小之又小，估计以后就和对百度网盘的态度一样边骂边用微信读书
+

@@ -6142,3 +6142,24 @@ Ki-ringtrain.mp3
 
 点击文件名下载附件
 
+
+
+*****
+
+####  菱0零  
+##### 476#       发表于 2022-1-4 12:48
+
+手游剧情还是能接上剧场版的，毕竟大部分矛盾都在外校，圣翔主要就演了一出鹅逆袭蕉的戏码，根据revue曲安排后面估计也没啥圣翔戏份了，也就补充下关于剧场版的前置剧情。不过算了下最后是真矢和鹤姬对唱？这是哪一出啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jstcsjx  
+##### 477#       发表于 2022-1-4 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54157800&amp;ptid=2043629" target="_blank">rainknine 发表于 2022-1-4 12:28</a>
+
+其实还是蕉七回表现力过于强了
+
+在整个少歌故事里，尤其是tv版里显得很异质，因为异质所以当时看完人都是傻 ...</blockquote>
+TV第7回继续下去的话说实在的大概率不会有多好的未来，TV第7回的蕉本质是寻求大家安稳既定的未来，害怕改变害怕分离；然而任何事物都不可能永恒，不可能保持不变；强扭的瓜不甜，蕉执着于再现过去，再现的美好也只能算是虚假的美好了
+
