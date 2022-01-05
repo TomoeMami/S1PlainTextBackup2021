@@ -8927,3 +8927,63 @@ A爹其实你从魔法纪录和扭曲仙境就能看出来他们也不存在什�
 
 现在就怕和扭一样主线通过往下细分继续拖，这次的6.25大概只是一个开始，这点上还真是有aniplex本家的范儿了（笑）
 
+
+
+*****
+
+####  zakki  
+##### 86371#       发表于 2022-1-5 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54167615&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-1-5 09:02</a>
+
+光点肯定是4月后了
+
+不知道你注意过没有2部开始的宣发节奏没有，上半年前两个月的冬祭基本是给活动 ...</blockquote>
+讲真都开决战了，主线能不能更的勤快一点，这决战还想决两年啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86372#       发表于 2022-1-5 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54167837&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 09:22</a>
+
+冬FES的内容从2018年开始就固定了，出问题的还是19年那年莫名其妙没在AJ上公布主线（而且是在预告 ...</blockquote>
+空降活动指的是哪个？星战二吗？蘑菇还说明年周年能让玩家看到最终决战的地点，换句话说就是看到终局的tittle，现在这状况怕是连2.7的tittle都看不到<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86373#       发表于 2022-1-5 09:45
+
+翻页
+
+*****
+
+####  仰望神的括约肌  
+##### 86374#       发表于 2022-1-5 09:58
+
+反正2.6及通古斯之后 再结合之前一些操作 我对主线的期待度已经降低了
+
+可以喜欢卡面就赏一个冠位
+
+为了追星就加塞一个主要角色改大纲
+
+贝屑之前的伏笔说吃就吃
+
+妲己什么的都是烟雾弹
+
+不如抱着乐子人心态看菌哥哥整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 86375#       发表于 2022-1-5 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168114&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 09:45</a>
+
+空降活动指的是哪个？星战二吗？蘑菇还说明年周年能让玩家看到最终决战的地点，换句话说就是看到终局的ti ...</blockquote>
+SW2。当时好几个“舅舅”都提过SW2是个空降活动
+
+最终决战场所不出意外就是“宙之外”，DDD时期老梗【x
+
