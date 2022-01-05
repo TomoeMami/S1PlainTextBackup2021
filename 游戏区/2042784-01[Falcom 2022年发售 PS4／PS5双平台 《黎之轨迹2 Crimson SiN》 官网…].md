@@ -2642,3 +2642,16 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 黎与红的邂逅，类似闪轨2《灰》和《蒼》的冲突
 
+
+
+*****
+
+####  Mchaos  
+##### 227#       发表于 2022-1-6 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180857&amp;ptid=2042784" target="_blank">Yeaha123 发表于 2022-1-6 00:32</a>
+黎与红的邂逅，类似闪轨2《灰》和《蒼》的冲突</blockquote>
+他敢再来一次灰与苍的冲突，我就敢掰盘<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

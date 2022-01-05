@@ -9704,3 +9704,14 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 菌鸽鸽疯狂拱火是怕这群人闹得不够嗨吗，风向变成了温柔的菌鸽鸽主动背锅笑出声
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 86440#       发表于 2022-1-6 07:39
+
+<blockquote>莫夜戎 发表于 2022-1-6 00:07
+第六章后篇电影上映的时候枪呆没趁机强化，感觉近期强化的几率比较低了。 ...</blockquote>
+加的特攻不是因为剧场版而来的强化本吗
+
