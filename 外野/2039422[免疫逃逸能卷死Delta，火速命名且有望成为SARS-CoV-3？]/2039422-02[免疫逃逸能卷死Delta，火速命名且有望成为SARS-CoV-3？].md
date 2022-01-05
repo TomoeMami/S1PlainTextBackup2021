@@ -17242,3 +17242,26 @@ https://protect-pub ...</blockquote>
 有啊 知乎的拍老师转过相关的 德国？最大的保险公司赞助 10w人以上级别的后遗症研究 猜猜目的是啥 ...</blockquote>
 对这些症状不保？
 
+
+
+*****
+
+####  坂上斗真  
+##### 2924#       发表于 2022-1-5 22:45
+
+日本等下周下下周看吧，就我看到的，神社人挤人参拜，饭馆门口排长龙吃饭，会传成啥样不敢想
+
+*****
+
+####  riczxc  
+##### 2925#         楼主| 发表于 2022-1-5 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54179536&amp;ptid=2039422" target="_blank">zerona 发表于 2022-1-5 22:37</a>
+
+对这些症状不保？</blockquote>
+这倒是不可能的，又不是美国。
+
+别说公立保险公司，私立的也受管制，不能不保。
+
+打算加保费倒是有可能。
+
