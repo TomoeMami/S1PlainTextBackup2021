@@ -17335,3 +17335,17 @@ o系也有后遗症了吗？</blockquote>
 
 反正最后中招的人在10%左右，而且邪门儿的是后遗症可能几个月之后才蹦出来，在你以为你已经好了的时候
 
+
+
+*****
+
+####  smy20011  
+##### 2931#       发表于 2022-1-6 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181030&amp;ptid=2039422" target="_blank">Redis 发表于 2022-1-6 00:55</a>
+
+目前没有研究显示o系的了没有后遗症
+
+后遗症和症状关系不大，就算无症状也可能有后遗症，比如大量脱发等等 ...</blockquote>
+又或者是得了其他的病。。
+
