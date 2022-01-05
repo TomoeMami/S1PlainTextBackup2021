@@ -9129,3 +9129,12 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rooarr  
+##### 86388#       发表于 2022-1-5 13:11
+
+原来twitter的人数还发石头的啊，我以为运营已经忘了这回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
