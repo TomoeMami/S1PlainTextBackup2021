@@ -854,3 +854,28 @@ l4d这个级别的工作量要升级成现代标准要做死人</blockquote>
 
 下面有句评论的好：up都不用发言，只需让turtle rocks自掘坟墓
 
+
+
+*****
+
+####  astrayveller  
+##### 89#       发表于 2022-1-5 19:35
+
+笑死 B4B真是纯纯cjb
+
+*****
+
+####  Benighted  
+##### 90#       发表于 2022-1-5 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是他啊，整活大师
+
+
+
+*****
+
+####  电磁炮233  
+##### 91#       发表于 2022-1-5 19:44
+
+原来科乐美2010E3发布会导演剪辑版是他做的
+

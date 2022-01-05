@@ -6436,3 +6436,12 @@ v2修正版~
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 3602#       发表于 2022-1-5 19:42
+
+鲤鱼在广播里真的是越来越自由，甚至开始吐槽投稿人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

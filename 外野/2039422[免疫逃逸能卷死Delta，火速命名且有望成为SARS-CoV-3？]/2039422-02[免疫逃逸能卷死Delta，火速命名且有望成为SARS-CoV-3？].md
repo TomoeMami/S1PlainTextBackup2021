@@ -17012,3 +17012,54 @@ BA.2在某些国家开始上分,O系毒丁兴旺啊
 
 关键是后遗症和mild不mild没关系才是最可怕的
 
+
+
+*****
+
+####  Litccc  
+##### 2905#       发表于 2022-1-5 19:22
+
+ 本帖最后由 Litccc 于 2022-1-5 19:24 编辑 
+
+话说马上两年了，有专门的后遗症研究吗？
+
+*****
+
+####  洞庭湖  
+##### 2906#       发表于 2022-1-5 19:22
+
+ 本帖最后由 洞庭湖 于 2022-1-5 19:29 编辑 
+
+1月4日ICU和普通病床，继续稳步增加中。
+
+不知道为何汇报医院从6100家爆减到5573家了。
+[https://protect-public.hhs.gov/pages/hospital-utilization](https://protect-public.hhs.gov/pages/hospital-utilization)
+
+2022-01-04-1.JPG
+(115.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/192132n384nzm9nmb8q9cn.jpg" referrerpolicy="no-referrer">
+
+2022-01-04.JPG
+(119.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/192138shbhh1lxzx881a8f.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nanrendu  
+##### 2907#       发表于 2022-1-5 19:25
+
+美国已经打算放弃统计了吧，福奇不是都已经出来发话了。
+【福奇称新冠病例总数已没那么重要：关键看住院人数-哔哩哔哩】 https://b23.tv/CKDSmn3
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
