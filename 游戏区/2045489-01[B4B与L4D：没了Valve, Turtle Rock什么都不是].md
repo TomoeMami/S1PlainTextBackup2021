@@ -879,3 +879,14 @@ l4d这个级别的工作量要升级成现代标准要做死人</blockquote>
 
 原来科乐美2010E3发布会导演剪辑版是他做的
 
+
+
+*****
+
+####  lucky95  
+##### 92#       发表于 2022-1-5 20:37
+
+现在游戏越来越拉，L4D只会显得越老越神<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

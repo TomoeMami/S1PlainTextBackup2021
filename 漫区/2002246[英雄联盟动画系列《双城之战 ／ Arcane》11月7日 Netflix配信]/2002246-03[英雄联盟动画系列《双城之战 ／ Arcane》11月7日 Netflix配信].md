@@ -960,3 +960,12 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 至于“英雄联盟”ip是不是正面buff的问题，在拳头的基本盘欧美+中韩来说，毫无疑问是正面buff，玩lol的可比喜欢看日式二次元动画的多多了，无非就是会有个lolptsd恶感倍加的debuff罢了，但是对lol抱恶感的本来就不太可能去看这动画，或者本来看的时候就会带有色眼镜，那恶感加倍也没啥区别，无非就是让评价更两极化罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 3078#       发表于 2022-1-5 20:31
+
+虽然但是，从一个看过的人的角度讲，双城之战这片子其实做得并不惹普通日本动画观众的嫌，上到八旬老太下到六岁小孩都能看，还能看懂，不含有一个特定圈子里才能理解的文化模因。只可惜大家好像不怎么主动想看，明明只要看了就懂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -10985,3 +10985,85 @@ syl这位比较重量级，希望你咩脑子灵光点把关系搞好了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离谱
 
+
+
+*****
+
+####  Rem-清曲  
+##### 7262#       发表于 2022-1-5 20:27
+
+什么年轻人  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 7263#       发表于 2022-1-5 20:30
+
+小游戏还是有意思
+
+*****
+
+####  T_Hb  
+##### 7264#       发表于 2022-1-5 20:30
+
+欺负新手是吧
+
+*****
+
+####  遗忘回想  
+##### 7265#       发表于 2022-1-5 20:30
+
+看到被肥婆随便拿下角就知道没了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 7266#       发表于 2022-1-5 20:30
+
+你麻又在欺负萌新了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是个欺负萌新的游戏
+
+*****
+
+####  T_Hb  
+##### 7267#       发表于 2022-1-5 20:32
+
+传统强项
+
+*****
+
+####  遗忘回想  
+##### 7268#       发表于 2022-1-5 20:33
+
+太残忍了，人家连快速下落都不会啊你忍心的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 7269#       发表于 2022-1-5 20:33
+
+还聊天流，有这么殴打老奶奶的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7270#       发表于 2022-1-5 20:36
+
+沉默
+
+*****
+
+####  遗忘回想  
+##### 7271#       发表于 2022-1-5 20:40
+
+这个小猪尾巴看不懂。
+
+*****
+
+####  古战场亡魂  
+##### 7272#       发表于 2022-1-5 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54178000&amp;ptid=2018830" target="_blank">遗忘回想 发表于 2022-1-5 20:40</a>
+
+这个小猪尾巴看不懂。</blockquote>
+四种花色，抽到和上一张一样的就把之前堆的牌都拿走，谁拿的少谁赢。
+

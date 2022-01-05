@@ -17117,3 +17117,35 @@ BA.2在某些国家开始上分,O系毒丁兴旺啊
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 S1Next-鹅版 v2.1.0-p ...</blockquote>
 嗯，髪国人老早就此体亏屁思过了
 
+
+
+*****
+
+####  橋白  
+##### 2913#       发表于 2022-1-5 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54176869&amp;ptid=2039422" target="_blank">Litccc 发表于 2022-1-5 19:22</a>
+话说马上两年了，有专门的后遗症研究吗？</blockquote>
+有啊 知乎的拍老师转过相关的 德国？最大的保险公司赞助 10w人以上级别的后遗症研究 猜猜目的是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  droople  
+##### 2914#       发表于 2022-1-5 20:34
+
+<blockquote>引用第2903楼Redis于2022-01-05 19:20发表的  :
+
+引用:66666 发表于 2022-1-5 17:12刚看了下我们公司在非洲新冠病毒一个后续情况，2......</blockquote>
+@Redis
+
+o系也有后遗症了吗？
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Jet.Black  
+##### 2915#       发表于 2022-1-5 20:35
+
+所以有人研究出来，第四针mrna对欧米康有用么？
+
