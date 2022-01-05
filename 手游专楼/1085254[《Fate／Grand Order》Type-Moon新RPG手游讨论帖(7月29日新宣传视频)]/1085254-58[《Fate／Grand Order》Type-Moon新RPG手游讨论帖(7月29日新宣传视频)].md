@@ -9370,3 +9370,55 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 科扬斯卡娅这个俄文名也是没完全圆上的部分……通古斯开的时候，最初考据党是推测科杨有哈萨克语里的兔子 ...</blockquote>
 两码事，我想表达的是一个日本，印度，中国的狐狸最后会取个俄语名这件事本身就挺奇怪的，能算个伏笔。不过这个Lost并不是对应异闻带世界吧，这个Lost指的是并未位列七大人类恶的Beast IV，杀兔作为B4成立的原因也和异星神，异闻带没关系，是芙芙在2017年舍弃B4位置所导致的
 
+
+
+*****
+
+####  yangun22  
+##### 86410#       发表于 2022-1-5 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54172950&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 15:31</a>
+
+科扬斯卡娅这个俄文名也是没完全圆上的部分……通古斯开的时候，最初考据党是推测科杨有哈萨克语里的兔子 ...</blockquote>
+各种语言凑个发音总能凑到意思，这要说是伏笔也太勉强了
+
+至于敏腕美人秘書タマモヴィッチ完全可以说就是来误导读者的，明白人都知道菌菇类怎么可能会直接直白把真名告诉你，基本就是她自称来蹭玉藻，不如说前半部都是把她往玉藻这块蹭但是关键地方就是不告诉你才是TM管用手法
+
+*****
+
+####  UNISONIA  
+##### 86411#       发表于 2022-1-5 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173112&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 15:42</a>
+
+两码事，我想表达的是一个日本，印度，中国的狐狸最后会取个俄语名这件事本身就挺奇怪的，能算个伏笔。不 ...</blockquote>
+嗯，我看到你在NGA的解释了，是有她不算正规七大人类恶而取“Lost”的可能性，而且图鉴里并没有把它算作L，卡面是直接写的Beast IV。
+
+至于这个设定带来的后续影响咱之前开玩笑也提到了，“反人类文明”、“动物性的”、“白色”这几个关键词加上去，可能符合这个兽性的候补也不止科杨，金色白面本尊和某公主都是符合的
+
+*****
+
+####  UNISONIA  
+##### 86412#       发表于 2022-1-5 15:54
+
+ 本帖最后由 UNISONIA 于 2022-1-5 15:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173192&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-1-5 15:47</a>
+
+各种语言凑个发音总能凑到意思，这要说是伏笔也太勉强了
+
+至于敏腕美人秘書タマモヴィッチ完全可以说就是 ...</blockquote>
+但是兔子这个线索直到最后都没给出非常有说服力的解释，科杨本身是大爆炸死去的所有动物的怨念集合，并没有刻意取狐狸或者兔子作为主要的构成部分。nega weapon这个性质强行解释为爆炸的火光看上去像人类的武器所谓也过于强行了。
+
+NFF的LOGO是参照playboy LOGO改的狐狸头先不说，NFF的全名也是Nine Fox Foundation，然而剧情描写和设定撰写层面上她和玉系确实是毫无关系的
+
+我个人的猜想是光狐弄成兔子是为了和后面暗狐对应的传说中的天狐概念做区分了……但是这也仅是我的猜想
+
+*****
+
+####  zakki  
+##### 86413#       发表于 2022-1-5 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173194&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 15:47</a>
+嗯，我看到你在NGA的解释了，是有她不算正规七大人类恶而取“Lost”的可能性，而且图鉴里并没有把它算作L ...</blockquote>
+金色白面这个确实不像B5像B4，爱玩其实也挺符合妲己的特性的，不过这一出下来我觉得妲己或者金色白面作为Beast显现肯定不会再有了，是不是改设定我也不好说。至于公主，反正月姬世界没有兽，fgo世界没有公主（目前没有），所以我才反对出公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
