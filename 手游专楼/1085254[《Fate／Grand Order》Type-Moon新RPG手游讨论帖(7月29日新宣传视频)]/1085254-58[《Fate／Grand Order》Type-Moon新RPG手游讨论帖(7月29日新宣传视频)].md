@@ -9651,3 +9651,20 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  UNISONIA  
+##### 86436#       发表于 2022-1-5 19:23
+
+ 本帖最后由 UNISONIA 于 2022-1-5 19:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54175309&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2022-1-5 17:50</a>
+
+说到伏笔，还有谁记得不知道被埋在哪里的小巷子噩梦吗
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1 ...</blockquote>
+小巷子噩梦去年acpi还说了结局会回收，他现在自己都在Guest作家阵容里（但是没有明确写过活动剧情），应该不会吃书
+
+另外他大概参加了一点月姬R弗洛夫部分的设定
+

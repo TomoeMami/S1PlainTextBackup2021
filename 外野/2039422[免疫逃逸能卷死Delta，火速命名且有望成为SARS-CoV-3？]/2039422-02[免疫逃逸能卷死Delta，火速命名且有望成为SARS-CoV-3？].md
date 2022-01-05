@@ -16976,3 +16976,39 @@ BA.2在某些国家开始上分,O系毒丁兴旺啊
 
 看起来确实mild，国内不少人也开始懈怠了
 
+
+
+*****
+
+####  totoneko  
+##### 2902#       发表于 2022-1-5 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54090421&amp;ptid=2039422" target="_blank">totoneko 发表于 2021-12-29 17:11</a>
+
+看了下，今天东京感染76人（34人二针完毕，28人一针未打），比上周同比增加36人。周平均45，57%的增长量。
+
+ ...</blockquote>
+预测霓虹会爆，但短短一周爆5倍还是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[【速報】東京都で新たに390人感染 前日(151人)から倍以上、先週水曜日(76人)から約5倍](https://news.yahoo.co.jp/articles/0caa106db25f35a76b5d8ab4af5631d2355fd2d5)两针完毕207人（53%），一针未打97人（24.9%）。
+
+*****
+
+####  Coronavirus  
+##### 2903#       发表于 2022-1-5 19:20
+
+你髪今日确诊27万，人均位列世界第一，这不比泥美强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Redis  
+##### 2904#       发表于 2022-1-5 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54174582&amp;ptid=2039422" target="_blank">66666 发表于 2022-1-5 17:12</a>
+
+刚看了下我们公司在非洲新冠病毒一个后续情况，23人阳性治愈后有18人出现不同反应症状，有10人出现食欲不振 ...</blockquote>
+这玩意儿会影响心脏和血管
+
+10%的人可能会丧失劳动力级别的后遗症
+
+关键是后遗症和mild不mild没关系才是最可怕的
+
