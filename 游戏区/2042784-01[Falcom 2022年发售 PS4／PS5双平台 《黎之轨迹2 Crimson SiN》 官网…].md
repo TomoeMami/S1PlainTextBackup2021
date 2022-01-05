@@ -2513,3 +2513,29 @@ ps5版至少loading问题可以解决了
 
 — from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
 
+
+
+*****
+
+####  ac130-2020  
+##### 215#         楼主| 发表于 2022-1-5 14:27
+
+FAMI访谈，内容就是上面篝火编辑部那篇
+
+有艾蕾茵新图
+
+<img src="https://img.saraba1st.com/forum/202201/05/142651ullm066l0vpvw9oo.jpg" referrerpolicy="no-referrer">
+
+<strong>6a5b9a00213fb80eb0b71dce6bd12f2eb83894fd.jpg</strong> (81.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 14:26 上传
+
+*****
+
+####  Yeaha123  
+##### 216#       发表于 2022-1-5 14:35
+
+上面那图像生化危机：)
+

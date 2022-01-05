@@ -9202,3 +9202,30 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 
 通古斯后立马开决战，有种把柯扬斯卡娅这个2.0最后一条支线解决后就全力奔主线的感觉，希望真是这样吧，再拖真就拖到没耐心了，就算写的再好的剧情一直拖下去也没人最终会满意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86395#       发表于 2022-1-5 14:31
+
+ 本帖最后由 zakki 于 2022-1-5 14:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171338&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 13:39</a>
+
+第二部开始绝大多数跨章的伏笔都回收的很差（尤其是奈须参与的部分），托内莉可给玛修的忠告给我的感觉是随 ...</blockquote>
+兔子十万吨灵基这个伏笔设置的挺好的，也有不少比较巧妙的地方，比如队长形象，人王，很差的同样不少，2.51弓兵，预言从者等，不过说到底这个跨章伏笔其实只有蘑菇能写，其他写手都没啥权限写什么跨章伏笔，所以无论好的坏的都是蘑菇的。
+
+马修这个蘑菇访谈里也说了，6章只是开启，真正解决还是在7章，不知道他会不会在7章的时候忘了这茬然后不了了之。
+
+说到底其实型月埋长伏笔的水准一直都在线吧，比如尼禄和巴比伦大yin妇的联系，希腊机神的设定，都算是埋了10年的伏笔，最后水到渠成吧。所以我对于目前看来2.0主线迦勒底和异星神这部分的长伏笔的回收还是比较乐观的，因为实在是多到可以缕清脉络，水到渠成了，就算仅仅是平铺直叙的讲出来都算一个很有趣的内容
+
+*****
+
+####  alucardcz  
+##### 86396#       发表于 2022-1-5 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171867&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-5 14:16</a>
+
+我宁肯出礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我就不一样了　４星能ｎｅｗ个也是ｎｅｗ　　　　虽然不知道我常驻４星还缺啥
+
