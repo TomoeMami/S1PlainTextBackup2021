@@ -17316,3 +17316,22 @@ o记到底卷赢了d记吗？别到时候d记再卷土重来混合双打</blockq
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Redis  
+##### 2930#       发表于 2022-1-6 00:55
+
+ 本帖最后由 Redis 于 2022-1-6 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54177902&amp;ptid=2039422" target="_blank">droople 发表于 2022-1-5 20:34</a>
+
+@Redis
+
+o系也有后遗症了吗？</blockquote>
+目前没有研究显示o系的了没有后遗症
+
+后遗症和症状关系不大，就算无症状也可能有后遗症，比如大量脱发等等
+
+反正最后中招的人在10%左右，而且邪门儿的是后遗症可能几个月之后才蹦出来，在你以为你已经好了的时候
+

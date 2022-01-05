@@ -6801,3 +6801,53 @@ CB28A343-8D35-4010-90E2-359A9155F974.jpeg
 
 草，原来是推测的，不过这样时间线才对，要是跨年live结束就去青山家，大半夜的上哪去买蛋糕。看来还是1号去的
 
+
+
+*****
+
+####  saya1892  
+##### 3635#       发表于 2022-1-6 00:51
+
+直播间到底磕哪对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/06/005043vs4076s6aqt00cc4.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (11.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 00:50 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/005049npt8ziptlzhwyt8c.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (26.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 00:50 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/005102iuqnbknrncqi7b73.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (6 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 00:51 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/005108g772nnc8y7n37u8m.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (6.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 00:51 上传
+
+*****
+
+####  cat1230  
+##### 3636#       发表于 2022-1-6 01:01
+
+鲤鱼新动态2个黑子直接跳脸黑鲤鱼啊，大家顺手点个举报。按时间顺序就看到了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

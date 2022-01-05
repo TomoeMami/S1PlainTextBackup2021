@@ -4442,3 +4442,22 @@ syl 这哪偷的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我一直是唯粉啊
 
+
+
+*****
+
+####  tankai  
+##### 4961#       发表于 2022-1-6 00:58
+
+文静还需要粉丝关心么?.她和几个姐妹玩开心就好.想不起来对她有啥可说的,不发帖不是很正常.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tankai  
+##### 4962#       发表于 2022-1-6 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180568&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2022-1-6 00:04</a>
+
+文静不就是个绿茶婊吗?走肾不走心就对了</blockquote>
+换12月前我要刀死你<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
