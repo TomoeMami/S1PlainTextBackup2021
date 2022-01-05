@@ -890,3 +890,14 @@ l4d这个级别的工作量要升级成现代标准要做死人</blockquote>
 
 — from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  笑歌自若  
+##### 93#       发表于 2022-1-5 21:26
+
+[https://www.reddit.com/r/Games/c ... /hidiysb/?context=3](https://www.reddit.com/r/Games/comments/qh0fm0/back_4_blood_zero_punctuation/hidiysb/?context=3)
+
+红迪这个统计也挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

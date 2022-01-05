@@ -6515,3 +6515,59 @@ v2修正版~
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">好多草莓，一定是想做法召唤恋恋出来
 
+
+
+*****
+
+####  仟音一心  
+##### 3610#       发表于 2022-1-5 21:26
+
+<blockquote>经纪人：
+
+和Liyuu在拉面屋
+
+鲤「啊ー在配菜里加个鸡蛋吧🥰」
+
+〜拉面上来了〜
+
+※发现拉面里本来就加了鸡蛋的Liyuu
+
+鲤「哎！里面有鸡蛋！竟然有2个💦2个鸡蛋💦哎哎哎😭本以为不会有鸡蛋的啊ー😭」
+
+但是把2个鸡蛋都吃完了。拉面也吃完了。
+
+(经纪人)
+
+————————————
+
+今天和Liyuu吃的拉面是…这个！！！
+
+(今天是一整天的采访day，回去时又晚又冷，暖和起来了…)</blockquote>
+
+67879F9F-420D-46D2-B5AE-9151F300B9BC.jpeg
+(42.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/212644p7f7rydwwk8fftz9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+54F79041-8231-481A-AB7F-2647FC82887C.jpeg
+(94.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/212644bk59771zzs2csyc7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6F46C1D9-BB7F-4B0E-9ED5-C1FFE36AF7DA.jpeg
+(601.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/212644roepw988os9e00uq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
