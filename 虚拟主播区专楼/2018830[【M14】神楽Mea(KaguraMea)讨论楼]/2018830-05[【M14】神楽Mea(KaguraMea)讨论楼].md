@@ -10908,3 +10908,30 @@ syl这位比较重量级，希望你咩脑子灵光点把关系搞好了
 
 今天不是要爽玩4个小时么
 
+
+
+*****
+
+####  遗忘回想  
+##### 7253#       发表于 2022-1-5 16:50
+
+写了播到九点左右啊，顶天我只信到十点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7254#       发表于 2022-1-5 16:51
+
+ 本帖最后由 T_Hb 于 2022-1-5 16:54 编辑 
+
+写的是9-10点开播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时还没开待机间，不过游戏大全玩4小时想想就折磨
+
+*****
+
+####  遗忘回想  
+##### 7255#       发表于 2022-1-5 16:57
+
+我看着日文直译应该是说9-10点左右为止的意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也没特意说明这两个时间之一开始啊，难不成是我n50音的🐙语法看不出来。
+
+后面那句四小时我当放屁看的，真这么猛老子今晚就出剪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
