@@ -10944,3 +10944,44 @@ syl这位比较重量级，希望你咩脑子灵光点把关系搞好了
 
 骗人玩超将棋的连锁形成了
 
+
+
+*****
+
+####  遗忘回想  
+##### 7257#       发表于 2022-1-5 20:10
+
+我超，开了？
+
+*****
+
+####  Rem-清曲  
+##### 7258#       发表于 2022-1-5 20:11
+
+主播的骰子好像不对劲啊     <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7259#       发表于 2022-1-5 20:18
+
+ 本帖最后由 T_Hb 于 2022-1-5 20:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好开，开的也太明显了
+
+*****
+
+####  遗忘回想  
+##### 7260#       发表于 2022-1-5 20:18
+
+主播能报一下参数吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  2014720  
+##### 7261#       发表于 2022-1-5 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离谱
+

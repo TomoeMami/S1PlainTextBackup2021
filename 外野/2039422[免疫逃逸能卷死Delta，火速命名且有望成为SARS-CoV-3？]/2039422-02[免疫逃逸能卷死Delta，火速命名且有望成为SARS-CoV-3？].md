@@ -17093,3 +17093,27 @@ BA.2在某些国家开始上分,O系毒丁兴旺啊
 你髪今日确诊27万，人均位列世界第一，这不比泥美强多了</blockquote>
 你们新冠可太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zgyt4033  
+##### 2911#       发表于 2022-1-5 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54176835&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-5 19:20</a>
+你髪今日确诊27万，人均位列世界第一，这不比泥美强多了</blockquote>
+巴斯德实验室是放弃开发疫苗了是吧
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  Coronavirus  
+##### 2912#       发表于 2022-1-5 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54177609&amp;ptid=2039422" target="_blank">zgyt4033 发表于 2022-1-5 20:12</a>
+巴斯德实验室是放弃开发疫苗了是吧
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 S1Next-鹅版 v2.1.0-p ...</blockquote>
+嗯，髪国人老早就此体亏屁思过了
+

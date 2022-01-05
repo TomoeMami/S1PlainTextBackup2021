@@ -6475,3 +6475,18 @@ v2修正版~
 
 你用网页版的话就在スレッド一覧はこちら里面用Ctrl+F来查找吧,或者整个梯子一次解决所有问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 3606#       发表于 2022-1-5 20:09
+
+ 本帖最后由 chenflyyy 于 2022-1-5 20:17 编辑 
+
+日本这疫情也不是一天两天，什么情况大家都知道<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+宫城小场正常开没问题，追加场就难说了，不过最难的还是水虹的巨蛋，当然最重要的还是希望小偶像别出事吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+星出生疫情下是真的挺倒霉的，失去打call的日系live就失去了灵魂，线下活动还有口罩和自欺欺人板影响贴贴
+
