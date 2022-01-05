@@ -2694,3 +2694,12 @@ kindle啥都好
 
 不好看漫画
 
+
+
+*****
+
+####  封印之矢  
+##### 263#       发表于 2022-1-5 09:31
+
+国内kindle要是能不架梯子，通过合法程序登日服买书就好了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
