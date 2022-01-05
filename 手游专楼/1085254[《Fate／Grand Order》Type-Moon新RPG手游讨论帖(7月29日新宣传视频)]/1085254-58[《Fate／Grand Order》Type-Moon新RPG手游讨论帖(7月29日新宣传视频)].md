@@ -9668,3 +9668,15 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 另外他大概参加了一点月姬R弗洛夫部分的设定
 
+
+
+*****
+
+####  莫夜戎  
+##### 86437#       发表于 2022-1-6 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54175302&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-5 17:50</a>
+
+奶一口强化枪呆和大碧池</blockquote>
+第六章后篇电影上映的时候枪呆没趁机强化，感觉近期强化的几率比较低了。
+

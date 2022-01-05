@@ -6614,3 +6614,19 @@ BV17L411t7Dd
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 508#       发表于 2022-1-6 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168574&amp;ptid=2043629" target="_blank">蓝灯横滨 发表于 2022-1-5 10:23</a>
+
+这个设定应该舞台剧的时候就有了
+
+“时间停下吧，不要成为大人”
+
+按访谈里说，萌p一开始就对这个唱词很疑 ...</blockquote>
+这个视频之前看过了 窝觉得最早应该也就是个模糊的想法，直到TV才完善的，毕竟之间的时间跨度很大。古川最早也说过还在犹豫把TV做成PVP还是PVE之类的话。而且#1的挺多细节实际跟TV差距还是挺大的，后面就变成沿用TV的设定了
+
