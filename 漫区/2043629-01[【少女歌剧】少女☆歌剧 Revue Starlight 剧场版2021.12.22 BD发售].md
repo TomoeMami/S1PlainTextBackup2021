@@ -6559,3 +6559,33 @@ BIG-O，SHOW TIME!!!<img src="https://static.saraba1st.com/image/smiley/face2017
 按访谈里说，萌p一开始就对这个唱词很疑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a开头n结尾有什么讲究吗
 
+
+
+*****
+
+####  蓝灯横滨  
+##### 504#       发表于 2022-1-5 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54172326&amp;ptid=2043629" target="_blank">ardito 发表于 2022-1-5 14:50</a>
+
+a开头n结尾有什么讲究吗</blockquote>
+BV17L411t7Dd
+
+13：08
+
+樋口原话，从a到n，牵引起整个故事
+
+*****
+
+####  ardito  
+##### 505#       发表于 2022-1-5 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54172575&amp;ptid=2043629" target="_blank">蓝灯横滨 发表于 2022-1-5 15:06</a>
+
+BV17L411t7Dd
+
+13：08
+
+樋口原话，从a到n，牵引起整个故事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦，五十音顺序，一下没反应过来
+

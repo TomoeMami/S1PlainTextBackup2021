@@ -2555,3 +2555,26 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 能不能老老实实的把这个立绘放编队里，别再enami怼脸了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DelayNoMore  
+##### 219#       发表于 2022-1-5 15:06
+
+这人设远看都知道是俊男美女而不是精神小伙跟怨妇大妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 220#       发表于 2022-1-5 15:08
+
+这个大衣 这个热裤 我好了
+
+*****
+
+####  natmk  
+##### 221#       发表于 2022-1-5 15:18
+
+上半身画的很好 下半身咋看觉得有点怪 不过这个大腿我好了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
