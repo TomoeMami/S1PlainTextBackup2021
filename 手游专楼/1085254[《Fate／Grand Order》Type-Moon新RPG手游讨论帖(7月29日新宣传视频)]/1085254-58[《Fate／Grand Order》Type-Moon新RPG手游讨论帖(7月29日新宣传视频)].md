@@ -8904,3 +8904,26 @@ A爹其实你从魔法纪录和扭曲仙境就能看出来他们也不存在什�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  khxooo  
+##### 86369#       发表于 2022-1-5 09:06
+
+300石头0五星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 86370#       发表于 2022-1-5 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54167615&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-1-5 09:02</a>
+
+光点肯定是4月后了
+
+不知道你注意过没有2部开始的宣发节奏没有，上半年前两个月的冬祭基本是给活动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">冬FES的内容从2018年开始就固定了，出问题的还是19年那年莫名其妙没在AJ上公布主线（而且是在预告要宣传LB4的情况下突然取消了），从这件事开始主线出的节奏就不对了。好死不死LB4和LB5制作期间后门是一直能用的，一些制作情况有被泄露出来，包括19年下半年为了某空降活动影响主线制作进度
+
+现在就怕和扭一样主线通过往下细分继续拖，这次的6.25大概只是一个开始，这点上还真是有aniplex本家的范儿了（笑）
+

@@ -914,3 +914,26 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 NGA年度动画选双城的人也不多，可能大家觉得这片并没有那么惊艳吧</blockquote>
 挺正常的，腾讯视频独播，又是游戏改，所以本身这片子在日漫圈子里看过的人不算特别多，日漫圈子里投票投不过也正常，而且nga讨论这个片子主要是在影视区不是在日漫区
 
+
+
+*****
+
+####  新的起源  
+##### 3074#       发表于 2022-1-5 09:08
+
+祖安新英雄女电刀笑死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过这背景设定过于正常了，正常到像是漫威dc那种出一集周刊就放弃的超级英雄<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  新的起源  
+##### 3075#       发表于 2022-1-5 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139418&amp;ptid=2002246" target="_blank">有优越感的人mk2 发表于 2022-01-02 19:01:05</a>
+挺正常的，腾讯视频独播，又是游戏改，所以本身这片子在日漫圈子里看过的人不算特别多，日漫圈子里投票投 ...</blockquote>nga猴区一提到双城就开始拉踩大战
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

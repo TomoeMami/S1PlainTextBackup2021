@@ -10868,3 +10868,16 @@ bsyl
 
 跑去未来明的油管看了看…
 
+
+
+*****
+
+####  TiHaru  
+##### 7249#       发表于 2022-1-5 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54162338&amp;ptid=2018830" target="_blank">遗忘回想 发表于 2022-1-4 18:51</a>
+额，你们没听直播说这几天和这位联动吗</blockquote>
+苔苔那次逆凸说过的
+
+syl这位比较重量级，希望你咩脑子灵光点把关系搞好了
+
