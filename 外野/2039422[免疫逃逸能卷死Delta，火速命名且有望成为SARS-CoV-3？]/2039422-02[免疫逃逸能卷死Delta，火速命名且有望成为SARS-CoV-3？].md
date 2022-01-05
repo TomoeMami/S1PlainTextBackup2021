@@ -17349,3 +17349,21 @@ o系也有后遗症了吗？</blockquote>
 后遗症和症状关系不大，就算无症状也可能有后遗症，比如大量脱发等等 ...</blockquote>
 又或者是得了其他的病。。
 
+
+
+*****
+
+####  wszweill  
+##### 2932#       发表于 2022-1-6 06:02
+
+昨天听nih 的新冠webinar. 没啥特别的新闻，跟O有关的也就是目前美国O基本胜利了，double time大约2天，目前常规的booster三针一样显著降低重症和死亡云云<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最后提问的时候有人问“你觉得哪个国家抗击疫情做的最好，给国际公卫政策有啥启示”。答曰：oecd中澳大利亚最好，非洲国家卢旺达不错（）
+
+*****
+
+####  希望之花  
+##### 2933#       发表于 2022-1-6 06:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">11区到底怎样看明年comiket还剩几个摊位就知道了
+
