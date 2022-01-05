@@ -799,3 +799,21 @@ doom永恒阿
 
 只能说确实长命是有理由的，，，各方面都是<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  deadpeople  
+##### 84#       发表于 2022-1-5 17:10
+
+草，看到楼上这么整让我想起dlsite那个僵尸游戏了，但凡有L4D的百分之一功力还能更上一层楼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无面  
+##### 85#       发表于 2022-1-5 17:20
+
+以前还加了群，天天找人联机，除了两作本体的地图，还有各种mod的地图可欢乐了。
+
+后来工作没时间了，群也沉寂了很长时间。记得几年前有传闻的时候，群主还冒个泡说是等3出来了大家再联机。也难得又热闹一阵。现在3估计是没有了吧
+
