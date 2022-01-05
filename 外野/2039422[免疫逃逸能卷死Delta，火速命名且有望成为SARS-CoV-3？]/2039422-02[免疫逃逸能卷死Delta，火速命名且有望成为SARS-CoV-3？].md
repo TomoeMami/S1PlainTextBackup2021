@@ -17184,3 +17184,15 @@ o系也有后遗症了吗？
 
 [https://www.wsj.com/articles/fou ... el-show-11641322072](https://www.wsj.com/articles/fourth-pfizer-dose-spurs-sharp-jump-in-antibodies-early-results-from-israel-show-11641322072)
 
+
+
+*****
+
+####  pushare  
+##### 2919#       发表于 2022-1-5 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54178368&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-5 20:59</a>
+卫生巾时报报道
+以色列研究 第四针辉瑞可以增加抗体5倍</blockquote>
+每月打一针，健壮犹太佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
