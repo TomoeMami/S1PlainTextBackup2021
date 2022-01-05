@@ -9027,3 +9027,30 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zakki  
+##### 86379#       发表于 2022-1-5 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168410&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 10:10</a>
+
+因为2017年是盐川全权负责的那年，叶良树是那年下半年他办培训的时候应募的，18年才正式进了DW
+
+1.5的四部 ...</blockquote>
+其实主要还是写手分开负责的吧，而且菌类不用监修，瞬间就效率上去了，不过1.5的主线其实也就图一乐，没有什么信息量，说是主线其实实际上也就是个稍微长一点的没有free本的活动
+
+*****
+
+####  zakki  
+##### 86380#       发表于 2022-1-5 10:37
+
+ 本帖最后由 zakki 于 2022-1-5 10:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168460&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-1-5 10:14</a>
+
+我觉得更大的可能性是：“还没写”
+
+2.6八成是定了死线是去年周年前要出，菌哥哥还是1月才开始正式 ...</blockquote>
+菌皇写作速度还是蛮快的，只要他想写，不整2.6的幺蛾子文本超级加倍，一个月就能吐出来，我觉得这点不用担心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
