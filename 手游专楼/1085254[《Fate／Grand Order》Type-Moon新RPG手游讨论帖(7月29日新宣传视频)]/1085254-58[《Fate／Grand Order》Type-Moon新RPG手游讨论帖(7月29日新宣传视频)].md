@@ -9453,3 +9453,157 @@ NFF的LOGO是参照playboy LOGO改的狐狸头先不说，NFF的全名也是Nine
 我就不一样了　４星能ｎｅｗ个也是ｎｅｗ　　　　虽然不知道我常驻４星还缺啥 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全是补宝 一个NEW没有 还不如NEW个能开技能本或者幕间的
 
+
+
+*****
+
+####  UNISONIA  
+##### 86417#       发表于 2022-1-5 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173598&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 16:12</a>
+
+杀兔的武器性质是来源于生物圈的性质吧，用于迫害的生命圈和被迫害的生命圈，分别对应武器的光兔和驯兽的暗 ...</blockquote>
+武器和驯兽这个我倒是想明白了，但是这部分也并没有很好的作为“理”活用于B4的设计中，反而是分化拿来做光狐暗狐两张卡了
+
+B4这一环要说有什么问题，要素太多太杂糅算一个，导致没办法和前两个Beast一样摘出足够鲜明的概念来描写了。我个人还是觉得Beast和Grand Servant这一块有早期设计的部分的完成度明显高于后面补的，虽说也不是后面补的部分会很差，但是细节上还是差了点意思
+
+*****
+
+####  alucardcz  
+##### 86418#       发表于 2022-1-5 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173767&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-5 16:23</a>
+
+全是补宝 一个NEW没有 还不如NEW个能开技能本或者幕间的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说来我妖精骑士一个都没  4星的是限定还是常驻
+
+*****
+
+####  areklose  
+##### 86419#       发表于 2022-1-5 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173815&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 16:25</a>
+
+说来我妖精骑士一个都没  是限定还是常驻</blockquote>
+剧情限定。
+
+*****
+
+####  alucardcz  
+##### 86420#       发表于 2022-1-5 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173825&amp;ptid=1085254" target="_blank">areklose 发表于 2022-1-5 16:26</a>
+
+剧情限定。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那完了
+
+*****
+
+####  qixinno2  
+##### 86421#       发表于 2022-1-5 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173815&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 16:25</a>
+
+说来我妖精骑士一个都没  4星的是限定还是常驻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了抽摩根结果妖崔妖高一个六宝一个四宝
+
+*****
+
+####  UNISONIA  
+##### 86422#       发表于 2022-1-5 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173815&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 16:25</a>
+
+说来我妖精骑士一个都没  4星的是限定还是常驻</blockquote>
+妖兰限定，妖崔妖高剧限
+
+按照之前一部六章的复刻情况猜测，四星这俩奥伯龙复刻的时候或许也会复刻
+
+*****
+
+####  alucardcz  
+##### 86423#       发表于 2022-1-5 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173896&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 16:31</a>
+
+妖兰限定，妖崔妖高剧限
+
+按照之前一部六章的复刻情况猜测，四星这俩奥伯龙复刻的时候或许也会复刻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可我有奥师傅啊  不可能抽的  所以还是完蛋了
+
+*****
+
+####  alucardcz  
+##### 86424#       发表于 2022-1-5 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173890&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-5 16:30</a>
+
+为了抽摩根结果妖崔妖高一个六宝一个四宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我一个都没
+
+*****
+
+####  qixinno2  
+##### 86425#       发表于 2022-1-5 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173946&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 16:34</a>
+
+可我有奥师傅啊  不可能抽的  所以还是完蛋了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2宝奥师傅走起来
+
+*****
+
+####  UNISONIA  
+##### 86426#       发表于 2022-1-5 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173946&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 16:34</a>
+
+可我有奥师傅啊  不可能抽的  所以还是完蛋了</blockquote>
+奥师傅宝2还是有点用的
+
+*****
+
+####  qixinno2  
+##### 86427#       发表于 2022-1-5 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173954&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 16:34</a>
+
+欧 羡慕 我一个都没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">分明是你太欧了 捞到摩根就跑路了
+
+*****
+
+####  zakki  
+##### 86428#       发表于 2022-1-5 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173803&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 16:24</a>
+
+武器和驯兽这个我倒是想明白了，但是这部分也并没有很好的作为“理”活用于B4的设计中，反而是分化拿来做 ...</blockquote>
+这个确实，B4这个肯定是不如早期设定好的那么流畅，只能说勉强，不算差，但也并不是特别精妙。B1 ，B2，B6，B7这几个目前来看是早期设计好的，设定要自然很多。
+
+B1，B2不说，B7暂时信息不多，我其实挺喜欢B6的设计的，把敌基督几个要素统合的很好，持繁荣之理，渴望吞噬繁荣的都市，对应七首十冠兽，另一方面手持金杯装载的是满溢出来的人类的七大罪孽，执著于罪人，对应座上的大yin妇，两者联系在一起的就是，追求繁荣，地面上构筑都市之人即为罪人。
+
+不过B6可能也有吃书的部分，目前看来B6可能只有一只
+
+*****
+
+####  alucardcz  
+##### 86429#       发表于 2022-1-5 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173972&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 16:35</a>
+
+奥师傅宝2还是有点用的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对我来说一点用都没 
+
+*****
+
+####  UNISONIA  
+##### 86430#       发表于 2022-1-5 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173980&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 16:36</a>
+
+这个确实，B4这个肯定是不如早期设定好的那么流畅，只能说勉强，不算差，但也并不是特别精妙。B1 ，B2，B ...</blockquote>
+B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我个人之前也猜测这个R是代表“強欲”的rapacity
+
+L的“瘴气”就不知道是什么鬼了，现在没什么线索
+

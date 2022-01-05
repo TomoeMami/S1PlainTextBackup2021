@@ -6378,3 +6378,17 @@ v2修正版~
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Dark_Zagi  
+##### 3598#       发表于 2022-1-5 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173644&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-5 16:15</a>
+
+有没有不翻墙逛拉版的法子好羡慕没有
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9 ...</blockquote>
+5ch本来就没有墙啊
+
