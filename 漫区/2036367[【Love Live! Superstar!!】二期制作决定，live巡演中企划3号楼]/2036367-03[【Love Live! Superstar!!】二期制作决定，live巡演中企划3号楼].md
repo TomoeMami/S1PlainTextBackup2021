@@ -6676,3 +6676,66 @@ CB28A343-8D35-4010-90E2-359A9155F974.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分开搞个人直播是杂谈还是打游戏啊 偶尔搞一次也就噶点韭菜  但LL这噶的还不够吗
 
+
+
+*****
+
+####  中野四葉  
+##### 3621#       发表于 2022-1-5 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">隔壁偶像大师整了个睡衣派对（虽然是live的bd赠品），咱们抄个作业行不行
+
+*****
+
+####  chenflyyy  
+##### 3622#       发表于 2022-1-5 23:29
+
+版权方年假结束开始干活了，好多视频都被ban了，连苍天君的现地repo都没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 3623#       发表于 2022-1-5 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180052&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-5 23:17</a>
+
+对现在管人圈不是很了解，不过一万同接应该也有二流箱水平吧
+
+而且只是当副业搞，像菜宝这样一周播一 ...</blockquote>
+如果只有杏算一流箱那就是二流箱水平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3624#       发表于 2022-1-5 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">版权炮日常，我收藏的一个萌p那个heyguys 都没了
+
+*****
+
+####  kata魂  
+##### 3625#       发表于 2022-1-5 23:38
+
+菜宝直播说1号给鲤鱼回信结果鲤鱼刚醒，那鲤鱼是跨年live后就去了青山家的?
+
+*****
+
+####  cybernetics31  
+##### 3626#       发表于 2022-1-5 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180273&amp;ptid=2036367" target="_blank">kata魂 发表于 2022-1-5 23:38</a>
+菜宝直播说1号给鲤鱼回信结果鲤鱼刚醒，那鲤鱼是跨年live后就去了青山家的?
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">间接水煮鱼
+
+*****
+
+####  kata魂  
+##### 3627#       发表于 2022-1-5 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180334&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-1-5 23:43</a>
+
+应该是了间接水煮鱼</blockquote>
+然后1号晚上那个一样的宵夜，难道住了两天？
+

@@ -6603,3 +6603,14 @@ BV17L411t7Dd
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  loley  
+##### 507#       发表于 2022-1-5 23:45
+
+完蛋了，我也戒断了。今天下午刚用客厅电视投屏看完本来也只是觉得爽，甚至还因为回音壁用不了和外面施工声感觉这次观看体验没到完美，得下次准备完全再看。结果现在干什么都没劲，空虚了，原来烧着了的长颈鹿就是我啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
