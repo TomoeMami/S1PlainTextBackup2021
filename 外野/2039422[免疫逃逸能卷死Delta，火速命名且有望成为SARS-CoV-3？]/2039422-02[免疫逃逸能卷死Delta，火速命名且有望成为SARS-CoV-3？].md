@@ -16934,3 +16934,20 @@ Covid-19 vaccines such as Sinopharm and Sinovac will protect against "severe hos
 建议立刻上调保费100%</blockquote>
 新冠死亡不属于赔付范畴即可
 
+
+
+*****
+
+####  tivipax  
+##### 2898#       发表于 2022-1-5 16:09
+
+<img src="https://img.saraba1st.com/forum/202201/05/160952hzeccvvrzvw0oxsj.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0421.JPG</strong> (423.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 16:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

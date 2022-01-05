@@ -6356,3 +6356,25 @@ v2修正版~
 
 这期裂radio小百合和nako的笑声越来越放肆（褒义）<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 3596#       发表于 2022-1-5 16:15
+
+有没有不翻墙逛拉版的法子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ads147147  
+##### 3597#       发表于 2022-1-5 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54172895&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-5 15:27</a>
+东京今天接近400人感染………………</blockquote>
+本子现在鸵鸟态度国内的人只能干着急了。只能说疫苗现在有点用，但是将来不好说。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

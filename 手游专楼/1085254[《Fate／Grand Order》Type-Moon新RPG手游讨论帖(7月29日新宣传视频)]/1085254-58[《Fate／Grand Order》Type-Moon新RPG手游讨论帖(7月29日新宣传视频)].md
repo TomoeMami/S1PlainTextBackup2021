@@ -9422,3 +9422,34 @@ NFF的LOGO是参照playboy LOGO改的狐狸头先不说，NFF的全名也是Nine
 嗯，我看到你在NGA的解释了，是有她不算正规七大人类恶而取“Lost”的可能性，而且图鉴里并没有把它算作L ...</blockquote>
 金色白面这个确实不像B5像B4，爱玩其实也挺符合妲己的特性的，不过这一出下来我觉得妲己或者金色白面作为Beast显现肯定不会再有了，是不是改设定我也不好说。至于公主，反正月姬世界没有兽，fgo世界没有公主（目前没有），所以我才反对出公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 86414#       发表于 2022-1-5 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54173296&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 15:54</a>
+
+但是兔子这个线索直到最后都没给出非常有说服力的解释，科杨本身是大爆炸死去的所有动物的怨念集合，并没 ...</blockquote>
+兔子要素基本就是她个人喜欢的playboy，比如结界中唯一一个会说话的使魔兔子，至于九尾她从一开始就是说要成为新时代九尾，另外1908年她诞生的时太阳神天照可是给了祝言的，外形和天照（玉藻）相近就是这原因
+
+*****
+
+####  zakki  
+##### 86415#       发表于 2022-1-5 16:12
+
+ 本帖最后由 zakki 于 2022-1-5 16:15 编辑 
+
+杀兔的武器性质是来源于生物圈的性质吧，用于迫害的生命圈和被迫害的生命圈，分别对应武器的光兔和驯兽的暗狐，人类也是生命圈中的一部分，用于迫害的东西指的是迫害人类的兵器，这么解释能圆上，逻辑也不算离谱，比迦摩那个好得多
+
+*****
+
+####  qixinno2  
+##### 86416#       发表于 2022-1-5 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54172079&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 14:33</a>
+
+我就不一样了　４星能ｎｅｗ个也是ｎｅｗ　　　　虽然不知道我常驻４星还缺啥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全是补宝 一个NEW没有 还不如NEW个能开技能本或者幕间的
+
