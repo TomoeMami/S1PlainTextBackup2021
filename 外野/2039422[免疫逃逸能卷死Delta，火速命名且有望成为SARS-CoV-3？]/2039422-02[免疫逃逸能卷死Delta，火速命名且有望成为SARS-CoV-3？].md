@@ -16859,3 +16859,14 @@ OneAmerica是一家价值1000亿美元的保险公司，自1877年以来，其�
 总部设在印第安纳波利斯的保险公司OneAmerica的负 ...</blockquote>
 没事 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可以开边境放劳模
 
+
+
+*****
+
+####  charse2r  
+##### 2892#       发表于 2022-1-5 11:15
+
+Covid-19 vaccines such as Sinopharm and Sinovac will protect against "severe hospitalisation" as a result of the Omicron variant, Dr Abdi Mahamud, the World Health Organisation’s incident manager for the pandemic, said on Tuesday.
+
+笑了，吹了一年的mrna到最后还是跟灭活一个终点线。
+
