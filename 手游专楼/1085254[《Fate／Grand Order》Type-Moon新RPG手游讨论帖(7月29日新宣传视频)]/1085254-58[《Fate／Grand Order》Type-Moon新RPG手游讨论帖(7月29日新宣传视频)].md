@@ -8888,3 +8888,19 @@ A爹其实你从魔法纪录和扭曲仙境就能看出来他们也不存在什�
 
 看了一眼第一次在这回复是290页，现在都快2900页了
 
+
+
+*****
+
+####  miro112233  
+##### 86368#       发表于 2022-1-5 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161072&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-4 16:50</a>
+运营不会真拿这个通古斯凑合当去年份的第二个主线了吧，自己声明了半天限时活动，结束后还归到了活动里面， ...</blockquote>
+光点肯定是4月后了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+不知道你注意过没有2部开始的宣发节奏没有，上半年前两个月的冬祭基本是给活动做宣发的，今年基本就是事件簿复刻和情人节了。3月通常会拿白情/复刻/爬塔/战旗之类的水过去，上半年最重要的联动活动和主线都是在AJ上公开，但AJ通常在三月底
+
+通古斯就和杀兔的设定一样，占着下半年主线档期，内容上和主线有重要关系，但是我硬是说它不是主线是活动<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
