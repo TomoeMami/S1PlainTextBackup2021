@@ -6543,3 +6543,19 @@ BIG-O，SHOW TIME!!!<img src="https://static.saraba1st.com/image/smiley/face2017
 按访谈里说，萌p一开始就对这个唱词很疑惑，因为演员都是渴望下一个舞台的，为什么会说时间停下呢。然后去问了古川他们，得到了解释。但具体的loop设定还是在第七集才知道的。樋口对此的说法是希望让她们保持第一次配音的新鲜感。
 还有一个细节，樋口透露最早敲定名字的两个角色就是爱城华恋（以a开始以n结尾）和大场奈奈（大场=重要的场所）
 
+
+
+*****
+
+####  ardito  
+##### 503#       发表于 2022-1-5 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168574&amp;ptid=2043629" target="_blank">蓝灯横滨 发表于 2022-1-5 10:23</a>
+
+这个设定应该舞台剧的时候就有了
+
+“时间停下吧，不要成为大人”
+
+按访谈里说，萌p一开始就对这个唱词很疑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a开头n结尾有什么讲究吗
+

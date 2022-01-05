@@ -2539,3 +2539,19 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 上面那图像生化危机：)
 
+
+
+*****
+
+####  Cloudslin  
+##### 217#       发表于 2022-1-5 14:54
+
+看上色似乎还是村上的人设图
+
+*****
+
+####  ky怪  
+##### 218#       发表于 2022-1-5 15:00
+
+能不能老老实实的把这个立绘放编队里，别再enami怼脸了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
