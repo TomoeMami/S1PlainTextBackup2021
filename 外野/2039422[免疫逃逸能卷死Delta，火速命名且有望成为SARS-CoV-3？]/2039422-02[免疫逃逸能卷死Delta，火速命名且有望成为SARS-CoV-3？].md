@@ -17205,3 +17205,28 @@ o系也有后遗症了吗？
 
 西出玉门
 
+
+
+*****
+
+####  Lozs  
+##### 2921#       发表于 2022-1-5 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161472&amp;ptid=2039422" target="_blank">lvcha 发表于 2022-1-4 17:21</a>
+o记到底卷赢了d记吗？别到时候d记再卷土重来混合双打</blockquote>
+D愤怒了，变成超级D
+就看O能不能变成黄金O了
+
+*****
+
+####  有口皆悲  
+##### 2922#       发表于 2022-1-5 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54176875&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2022-1-5 19:22</a>
+1月4日ICU和普通病床，继续稳步增加中。
+
+不知道为何汇报医院从6100家爆减到5573家了。
+
+https://protect-pub ...</blockquote>
+抽调一成的床位作为伏兵吧，当病毒自以为已经耗尽床位时可以打他个措手不及。
+

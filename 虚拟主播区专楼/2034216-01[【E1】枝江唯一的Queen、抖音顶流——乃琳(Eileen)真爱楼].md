@@ -5314,3 +5314,34 @@ x3@贝拉kira 啊哈！<blockquote>
 
 乃老师这种节奏虽然缺少晚晚刚才那种爆炸性的效果，但作为临睡前的最后一场直播真的很让人舒适。
 
+
+
+*****
+
+####  sanlow666  
+##### 390#         楼主| 发表于 2022-1-5 22:15
+
+乃琳Queen:[发布动态](https://t.bilibili.com/612263127238665094) <blockquote>一周年礼物满意嘛～来嘛一起完善day20—day30嘛！
+
+<img src="https://img.saraba1st.com/forum/202201/05/221547qkzs2puo9fuyksck.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (472.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 22:15 上传
+
+</blockquote>
+
+
+
+*****
+
+####  sanlow666  
+##### 391#         楼主| 发表于 2022-1-5 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54179001&amp;ptid=2034216" target="_blank">先生空气 发表于 2022-1-5 21:49</a>
+
+乃老师这种节奏虽然缺少晚晚刚才那种爆炸性的效果，但作为临睡前的最后一场直播真的很让人舒适。 ...</blockquote>
+这也能复读......不如把“喜欢是一件细水长流的事情”给加上。
+
