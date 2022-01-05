@@ -6403,3 +6403,20 @@ v2修正版~
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  二月十日  
+##### 3600#       发表于 2022-1-5 17:31
+
+ 本帖最后由 二月十日 于 2022-1-5 17:37 编辑 
+
+5ch虽然没被墙，但机器人判定有墙啊，过不去就被当机器人禁止访问了
+
+如果没梯子的话可以去看5ch的镜像站2ch.sc，这个是可以直接访问的：[https://nozomi.2ch.sc/lovelive/](https://nozomi.2ch.sc/lovelive/)
+
+因为是直接对5ch进行网页抓取的，所以信息会稍微有一点点滞后
+
+建议使用APP来浏览，比如安卓的chmate、iOS的twinkle等
+

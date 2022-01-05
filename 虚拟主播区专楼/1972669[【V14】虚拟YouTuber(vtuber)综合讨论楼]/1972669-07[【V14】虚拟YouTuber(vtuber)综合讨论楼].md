@@ -10687,3 +10687,14 @@ king的数字都被susan干成这样了
 
 阿葵也上传了自己的跳绳部分，里面写的是生日live（8月）完了立刻录的，看来企划是很久以前的东西了，然后参与的人都是各自有事去本社时顺便录一段<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 9909#       发表于 2022-1-5 17:22
+
+ 本帖最后由 FCCHua 于 2022-1-5 17:25 编辑 
+
+hnn的直播 5000人的投票，显示1000人的同接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
