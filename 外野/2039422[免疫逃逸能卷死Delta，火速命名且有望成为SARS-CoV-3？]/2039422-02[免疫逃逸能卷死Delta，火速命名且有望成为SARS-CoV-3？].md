@@ -16870,3 +16870,12 @@ Covid-19 vaccines such as Sinopharm and Sinovac will protect against "severe hos
 
 笑了，吹了一年的mrna到最后还是跟灭活一个终点线。
 
+
+
+*****
+
+####  克鲁特尼  
+##### 2893#       发表于 2022-1-5 12:18
+
+瑞典国王夫妇三针疫苗都打过，还是得了新冠
+
