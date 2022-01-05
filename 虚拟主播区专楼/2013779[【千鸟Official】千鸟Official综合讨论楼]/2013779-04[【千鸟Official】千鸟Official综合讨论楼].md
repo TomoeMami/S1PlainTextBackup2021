@@ -4472,3 +4472,19 @@ syl 这哪偷的
 
 你楼停尸间的一天同时也是老阿姨风平浪静的一天，说明没起什么大节奏，都是好事儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lunaticfear  
+##### 4964#       发表于 2022-1-6 02:48
+
+你楼哪天不是停尸间
+
+*****
+
+####  andeloz  
+##### 4965#       发表于 2022-1-6 03:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥哥在隔壁烂炒的时候这楼还是冷的像停尸间一样 也怪不得文静不看这里
+

@@ -6867,3 +6867,73 @@ https://youtu.be/vl47eqtERME?t=5719
 鱼回“那还是下次吧，我家现在好脏好乱”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 另外蛋糕应该是提前买好的，经纪人说是纠结送什么纠结了几天
 
+
+
+*****
+
+####  CAserlumos  
+##### 3638#       发表于 2022-1-6 01:56
+
+鲤鱼去nagi家用的なぎうち总感觉浮想联翩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 3639#       发表于 2022-1-6 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54174907&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-5 17:31</a>
+
+5ch虽然没被墙，但机器人判定有墙啊，过不去就被当机器人禁止访问了
+
+如果没梯子的话可以去看5ch的镜像站2ch ...</blockquote>
+5CH不注册回不了贴吗？我试着回帖发现提示浪人无法发帖，好像要付款买账号的样子
+
+*****
+
+####  lj205  
+##### 3640#       发表于 2022-1-6 02:05
+
+ 本帖最后由 lj205 于 2022-1-6 02:20 编辑 
+
+这文化差异真是太可爱了，我也觉得新年送蛋糕没啥问题其实，至于怎么写一般也不太注意，不过日本人确实规矩多多，以后还不如直接上英文
+
+不过那个在青山家过夜应该是误传的，还是在家睡醒再过去
+
+鲤鱼倒是找时间打扫一下房间啊～～
+
+*****
+
+####  名津流  
+##### 3641#       发表于 2022-1-6 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181100&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-6 01:05</a>
+[https://youtu.be/vl47eqtERME?t=5719](https://youtu.be/vl47eqtERME?t=5719)
+
+从这里开始讲和鱼的趣事
+
+根据菜宝说法，鱼是唱完跨年live就去了青山 ...</blockquote>
+这相处模式和对话，怎么感觉像极了我们大小酒肉哥们之间的情景，一个给另一个去电话，结果对方因为头一天通宵睡到中午才起床而没看到消息，再约就表示家里乱，算了算了
+
+就差半夜三点打过去一个电话：“睡JB睡，起来嗨，快点上游戏，4=1就缺你一个了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 或者说宅男宅女间就剩这点区别了吧
+
+*****
+
+####  二月十日  
+##### 3642#       发表于 2022-1-6 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181418&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-6 01:58</a>
+5CH不注册回不了贴吗？我试着回帖发现提示浪人无法发帖，好像要付款买账号的样子 ...</blockquote>
+不用账号的，要日本的IP才能回，把梯子切到日本节点就好啦（某些梯子的IP依旧会被限制，但原生IP类的肯定可以）
+浪人相当于5ch的VIP会员，给钱解除各种限制的
+
+*****
+
+####  二月十日  
+##### 3643#       发表于 2022-1-6 03:09
+
+ 本帖最后由 二月十日 于 2022-1-6 03:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181440&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-6 02:05</a>
+这文化差异真是太可爱了，我也觉得新年送蛋糕没啥问题其实，至于怎么写一般也不太注意，不过日本人确实规矩 ...</blockquote>
+因为菜宝说鲤鱼是去完nagi家后再给她发line的（1号早上），反推过来就是在nagi过夜？
+不过也有可能回来睡了下再很早很早就过去
+
