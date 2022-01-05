@@ -5368,3 +5368,33 @@ x3@贝拉kira 啊哈！<blockquote>
 
 乃老师今晚的直播真的很细腻。希望顾着炒和吵的朋友们吵完后明天没事干的时候可以补补
 
+
+
+*****
+
+####  sanlow666  
+##### 395#         楼主| 发表于 2022-1-6 00:24
+
+ 本帖最后由 sanlow666 于 2022-1-6 00:36 编辑 
+
+50w纪念回vlog最后bgm
+
+[《你從柔和明媚的艷陽天走過來》](https://y.music.163.com/m/song?id=39637642&amp;uct=ZkEBgc%2BhRH%2B07xRTrxWq4A%3D%3D&amp;app_version=8.6.50&amp;sc=wmv%C2%A0)
+
+今晚直播bgm
+
+[《想与你躺在夏夜星光下 听蝉鸣和风》](https://y.music.163.com/m/song?id=1856978376&amp;uct=ZkEBgc%2BhRH%2B07xRTrxWq4A%3D%3D&amp;app_version=8.6.50&amp;sc=wmv%C2%A0)
+
+浪漫的“胆小鬼”，晚安，请相信一直会有人陪你勇敢。
+
+*****
+
+####  杜知新  
+##### 396#       发表于 2022-1-6 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180765&amp;ptid=2034216" target="_blank">sanlow666 发表于 2022-1-6 00:24</a>
+50w纪念回vlog最后bgm
+
+《你從柔和明媚的艷陽天走過來》</blockquote>
+找了好久😭明天给你加鹅😘
+

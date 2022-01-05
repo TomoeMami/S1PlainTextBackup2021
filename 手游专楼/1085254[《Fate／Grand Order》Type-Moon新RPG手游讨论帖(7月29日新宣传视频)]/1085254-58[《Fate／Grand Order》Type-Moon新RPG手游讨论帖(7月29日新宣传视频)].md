@@ -9680,3 +9680,14 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 奶一口强化枪呆和大碧池</blockquote>
 第六章后篇电影上映的时候枪呆没趁机强化，感觉近期强化的几率比较低了。
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 86438#       发表于 2022-1-6 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五张呼符下去 new了张红A 五年了 我终于有了红A
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

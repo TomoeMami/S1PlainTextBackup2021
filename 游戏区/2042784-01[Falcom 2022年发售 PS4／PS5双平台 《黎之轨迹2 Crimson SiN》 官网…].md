@@ -2633,3 +2633,12 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 —— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Yeaha123  
+##### 226#       发表于 2022-1-6 00:32
+
+黎与红的邂逅，类似闪轨2《灰》和《蒼》的冲突
+
