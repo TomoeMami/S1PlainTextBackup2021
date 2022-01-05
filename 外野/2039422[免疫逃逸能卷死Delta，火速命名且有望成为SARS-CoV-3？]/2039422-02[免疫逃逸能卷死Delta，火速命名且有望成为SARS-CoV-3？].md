@@ -16879,3 +16879,30 @@ Covid-19 vaccines such as Sinopharm and Sinovac will protect against "severe hos
 
 瑞典国王夫妇三针疫苗都打过，还是得了新冠
 
+
+
+*****
+
+####  ak123  
+##### 2894#       发表于 2022-1-5 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54170286&amp;ptid=2039422" target="_blank">克鲁特尼 发表于 2022-1-5 12:18</a>
+
+瑞典国王夫妇三针疫苗都打过，还是得了新冠</blockquote>
+一看俩白发老人，怕是得上单抗仙药了
+
+*****
+
+####  ak123  
+##### 2895#       发表于 2022-1-5 12:53
+
+ 本帖最后由 ak123 于 2022-1-5 12:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54166275&amp;ptid=2039422" target="_blank">DraQin 发表于 2022-1-5 01:06</a>
+
+带英挣扎了一段时间以后终于还是超过20万了
+
+只能说请继续前进，前进，前进
+
+虽然如此，最近格拉斯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">从小金毛就能看出来，不少人患病后人体机能重创会导致快速衰老，连面向都会老十多岁，我看这帮随便浪的货,多中几次就要成身体机能上的老人了
+
