@@ -16906,3 +16906,31 @@ Covid-19 vaccines such as Sinopharm and Sinovac will protect against "severe hos
 虽然如此，最近格拉斯 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">从小金毛就能看出来，不少人患病后人体机能重创会导致快速衰老，连面向都会老十多岁，我看这帮随便浪的货,多中几次就要成身体机能上的老人了
 
+
+
+*****
+
+####  yhaos  
+##### 2896#       发表于 2022-1-5 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168482&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-5 10:16</a>
+
+养,都可以养, 体力劳动者这数据,供应链好得起来?
+
+总部设在印第安纳波利斯的保险公司OneAmerica的负 ...</blockquote>
+保险公司突然亏麻了。
+
+建议立刻上调保费100%
+
+*****
+
+####  KOGmk2  
+##### 2897#       发表于 2022-1-5 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171131&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-5 13:23</a>
+
+保险公司突然亏麻了。
+
+建议立刻上调保费100%</blockquote>
+新冠死亡不属于赔付范畴即可
+

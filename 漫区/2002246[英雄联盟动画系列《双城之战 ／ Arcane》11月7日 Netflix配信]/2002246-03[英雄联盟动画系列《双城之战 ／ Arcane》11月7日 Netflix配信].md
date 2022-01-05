@@ -937,3 +937,15 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  狼影者瑞德克斯  
+##### 3076#       发表于 2022-1-5 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54139096&amp;ptid=2002246" target="_blank">名津流 发表于 2022-1-2 18:23</a>
+
+这片在楼里大家都吹成AOTY，然而年度评选楼里投票给双城的人意外的不算多啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你对这个日漫高大上的时候就装高大上，日漫烂俗了也就跟着一起变得烂俗的圈子有什么特别的期待吗？
+

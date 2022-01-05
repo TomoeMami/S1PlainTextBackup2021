@@ -9138,3 +9138,29 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 
 原来twitter的人数还发石头的啊，我以为运营已经忘了这回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86389#       发表于 2022-1-5 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171007&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-1-5 13:11</a>
+
+原来twitter的人数还发石头的啊，我以为运营已经忘了这回事了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">辣鸡石头！　丢下去依然无事发生
+
+*****
+
+####  UNISONIA  
+##### 86390#       发表于 2022-1-5 13:39
+
+第二部开始绝大多数跨章的伏笔都回收的很差（尤其是奈须参与的部分），托内莉可给玛修的忠告给我的感觉是随着点6剧情的改动就那么不了了之了
+
+*****
+
+####  qixinno2  
+##### 86391#       发表于 2022-1-5 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次暗狐出了四个四星 感觉抽卡只要出了四星这个池子五星就没戏了
+
