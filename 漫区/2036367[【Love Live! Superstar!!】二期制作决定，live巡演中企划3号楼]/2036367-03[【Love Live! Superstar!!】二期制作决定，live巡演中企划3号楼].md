@@ -6644,3 +6644,35 @@ CB28A343-8D35-4010-90E2-359A9155F974.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五个人凑一块的生放高达1万的同接 还是别费这个力了
 
+
+
+*****
+
+####  中野四葉  
+##### 3617#       发表于 2022-1-5 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">人是5个，但一半时间用来读信同接能高到哪里去
+
+*****
+
+####  cybernetics31  
+##### 3618#       发表于 2022-1-5 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">鱼新年在nagi 家睡醒的
+
+*****
+
+####  chenflyyy  
+##### 3619#       发表于 2022-1-5 23:17
+
+对现在管人圈不是很了解，不过一万同接应该也有二流箱水平吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且只是当副业搞，像菜宝这样一周播一次就够，如果疫情严重活动停摆的话可以尝试下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3620#       发表于 2022-1-5 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分开搞个人直播是杂谈还是打游戏啊 偶尔搞一次也就噶点韭菜  但LL这噶的还不够吗
+
