@@ -9633,3 +9633,21 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 还是抽了福袋，司马懿，希望过几天能强化
 
+
+
+*****
+
+####  qixinno2  
+##### 86434#       发表于 2022-1-5 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口强化枪呆和大碧池
+
+*****
+
+####  不垃圾屌丝  
+##### 86435#       发表于 2022-1-5 17:50
+
+说到伏笔，还有谁记得不知道被埋在哪里的小巷子噩梦吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

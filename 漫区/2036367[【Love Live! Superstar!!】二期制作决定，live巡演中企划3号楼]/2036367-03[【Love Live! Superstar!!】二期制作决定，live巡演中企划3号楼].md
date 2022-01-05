@@ -6420,3 +6420,19 @@ v2修正版~
 
 建议使用APP来浏览，比如安卓的chmate、iOS的twinkle等
 
+
+
+*****
+
+####  cat1230  
+##### 3601#       发表于 2022-1-5 17:47
+
+<blockquote>引用第3599楼二月十日于2022-01-05 17:31发表的  :
+
+本帖最后由 二月十日 于 2022-1-5 17:37 编辑 5ch虽然没被墙，但机器人判定有墙啊，......</blockquote>
+@二月十日
+
+感谢。逛论坛就当日语复健<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
