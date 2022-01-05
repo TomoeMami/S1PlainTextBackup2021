@@ -838,3 +838,30 @@ Alyx没玩过，那自然是ttf2、doom和传送门2了
 
 看上面有人提到战地3，确实剧情任务很不错，可惜投过票了
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 81#       发表于 2022-1-5 13:50
+
+靠，我也忘了特殊行动一线生机
+超过十年没
+
+*****
+
+####  deadpeople  
+##### 82#       发表于 2022-1-5 14:02
+
+Prey，泰坦陨落2，地铁离去
+
+这个榜单槽点有点多，即使是放宽了标准十年内也才这么点作品吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 83#       发表于 2022-1-5 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171496&amp;ptid=2044935" target="_blank"> Stellar_Frost 发表于 2022-1-5 13:50</a> 靠，我也忘了特殊行动一线生机 超过十年没 </blockquote>
+没超，但是它也不是fps啊来自: iPhone客户端
+
