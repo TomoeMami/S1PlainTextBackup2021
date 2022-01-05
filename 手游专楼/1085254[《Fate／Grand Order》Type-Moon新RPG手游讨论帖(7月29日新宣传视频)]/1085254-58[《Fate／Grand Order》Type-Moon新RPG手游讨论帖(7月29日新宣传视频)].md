@@ -8987,3 +8987,43 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 
 最终决战场所不出意外就是“宙之外”，DDD时期老梗【x
 
+
+
+*****
+
+####  zakki  
+##### 86376#       发表于 2022-1-5 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168296&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 10:00</a>
+
+SW2。当时好几个“舅舅”都提过SW2是个空降活动
+
+最终决战场所不出意外就是“宙之外”，DDD时期老梗【x ...</blockquote>
+我觉得是51区，冬木，南极之中的一个，新登录界面，看上去像是南极上空飘着冻结的迦勒底亚斯，南极的可能性不低
+
+*****
+
+####  UNISONIA  
+##### 86377#       发表于 2022-1-5 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168082&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 09:43</a>
+
+讲真都开决战了，主线能不能更的勤快一点，这决战还想决两年啊杂七杂八水时长的充数活动能不能别 ...</blockquote>
+因为2017年是盐川全权负责的那年，叶良树是那年下半年他办培训的时候应募的，18年才正式进了DW
+
+1.5的四部虽然相对来说image没那么有意思，但是整体策划的完成度比第二部这些要高一些，没有菌皇这个朝令夕改的货色也算是一种利好
+
+临年底看着要来不及的时候，盐川又大笔一挥更改了下总国的结构和实装卡牌的内容，把本来要实装的道满推迟实装了（六周年访谈的古海武内对谈有暗示这一事）。虽然现在看着这事纯属挖了个坑，但是对当年来说就是极限操作在三个月里赶出了两个完整的主线。
+
+*****
+
+####  miro112233  
+##### 86378#       发表于 2022-1-5 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168082&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 09:43</a>
+讲真都开决战了，主线能不能更的勤快一点，这决战还想决两年啊杂七杂八水时长的充数活动能不能别 ...</blockquote>
+我觉得更大的可能性是：“还没写”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+2.6八成是定了死线是去年周年前要出，菌哥哥还是1月才开始正式动笔。2.7现在只敢画饼说今年出，连个季节都不敢定，我看是压根还没写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

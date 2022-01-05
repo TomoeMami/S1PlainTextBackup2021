@@ -16831,3 +16831,31 @@ https://www.nature.com/articles/s41593-021-00926-1</blockquote>
 
 Omicron：我不光一天要感染完整个美国，还要感染三次
 
+
+
+*****
+
+####  pushare  
+##### 2890#       发表于 2022-1-5 10:16
+
+养,都可以养, 体力劳动者这数据,供应链好得起来?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总部设在印第安纳波利斯的保险公司OneAmerica的负责人说，工作年龄的人的死亡率比大流行前的水平上升了40%，令人震惊。
+
+"该公司首席执行官斯科特-戴维森（Scott Davison）在本周的一次在线新闻发布会上说："我们现在看到的是这项业务历史上最高的死亡率--不仅仅是在OneAmerica公司。"这一数据在该业务的每个参与者中都是一致的。"
+
+OneAmerica是一家价值1000亿美元的保险公司，自1877年以来，其总部一直设在印第安纳波利斯。该公司有大约2400名员工，销售人寿保险，包括向该州的雇主提供团体人寿保险。
+
+戴维森说，死亡人数的增加代表了 "巨大的、巨大的数字"，而且死亡的不是老人，而是 "主要是18至64岁的工作年龄的人"，他们是通过OneAmerica公司拥有团体人寿保险计划的公司的雇员。
+
+*****
+
+####  Alexmacau8  
+##### 2891#       发表于 2022-1-5 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168482&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-5 10:16</a>
+养,都可以养, 体力劳动者这数据,供应链好得起来?
+
+总部设在印第安纳波利斯的保险公司OneAmerica的负 ...</blockquote>
+没事 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可以开边境放劳模
+
