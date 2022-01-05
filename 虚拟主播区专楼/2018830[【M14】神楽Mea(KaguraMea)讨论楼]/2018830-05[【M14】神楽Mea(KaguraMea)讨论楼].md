@@ -11067,3 +11067,99 @@ syl这位比较重量级，希望你咩脑子灵光点把关系搞好了
 这个小猪尾巴看不懂。</blockquote>
 四种花色，抽到和上一张一样的就把之前堆的牌都拿走，谁拿的少谁赢。
 
+
+
+*****
+
+####  2014720  
+##### 7273#       发表于 2022-1-5 20:45
+
+老奶奶被精神攻击干死了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+呃呃，反转了
+
+*****
+
+####  遗忘回想  
+##### 7274#       发表于 2022-1-5 20:46
+
+哈哈，记忆力不如老奶奶的小p孩
+
+*****
+
+####  clvan_  
+##### 7275#       发表于 2022-1-5 20:47
+
+鱼的记忆，扳回一城
+
+*****
+
+####  遗忘回想  
+##### 7276#       发表于 2022-1-5 20:50
+
+ 本帖最后由 遗忘回想 于 2022-1-5 20:53 编辑 
+
+第二把赌对了，最后一把把握住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+经典斜角<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7277#       发表于 2022-1-5 20:53
+
+YYGQ起来了
+
+*****
+
+####  clvan_  
+##### 7278#       发表于 2022-1-5 20:53
+
+阵型被布成了还行
+
+*****
+
+####  遗忘回想  
+##### 7279#       发表于 2022-1-5 20:59
+
+乌龙球滴神！
+
+*****
+
+####  2014720  
+##### 7280#       发表于 2022-1-5 20:59
+
+让你笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 7281#       发表于 2022-1-5 21:00
+
+传统弱项二连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 7282#       发表于 2022-1-5 21:00
+
+ 本帖最后由 2014720 于 2022-1-5 21:02 编辑 
+
+被老奶奶打似真是绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这么好看不知道多播点？笨b
+
+*****
+
+####  T_Hb  
+##### 7283#       发表于 2022-1-5 21:01
+
+就跑路了
+
+*****
+
+####  游山赫乃丈丶  
+##### 7284#       发表于 2022-1-5 21:03
+
+这就跑了？？
+

@@ -969,3 +969,15 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 虽然但是，从一个看过的人的角度讲，双城之战这片子其实做得并不惹普通日本动画观众的嫌，上到八旬老太下到六岁小孩都能看，还能看懂，不含有一个特定圈子里才能理解的文化模因。只可惜大家好像不怎么主动想看，明明只要看了就懂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  厄神之息  
+##### 3079#       发表于 2022-1-5 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54177861&amp;ptid=2002246" target="_blank">Siran_China 发表于 2022-1-5 20:31</a>
+
+虽然但是，从一个看过的人的角度讲，双城之战这片子其实做得并不惹普通日本动画观众的嫌，上到八旬老太下到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">虽然但是，大多数欧美卡通都包含你说的特点，但并不妨碍两者受众不共通，承认吧，人就是有逆反心理和寻求认同的渴望的，同时根据阅历知识的多寡人也是会形成自己的评判标准的，否则就不会形成各种圈子也不会形成这个社会了。
+

@@ -17149,3 +17149,38 @@ o系也有后遗症了吗？
 
 所以有人研究出来，第四针mrna对欧米康有用么？
 
+
+
+*****
+
+####  天使日又日  
+##### 2916#       发表于 2022-1-5 20:45
+
+日本增速那么快我觉得跟岸田之前宣布某几个县免费查pcr有关，可能这些数目才更接近日本真实情况
+加上这几天日本都在兴高采烈过年，各种宣传人多复苏，正好把锅扣到全日本人民头上
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  coldhot3  
+##### 2917#       发表于 2022-1-5 20:54
+
+<blockquote>玬翼 发表于 2022-1-5 19:42
+据多家法国媒体报道，去年12月9日，法国马赛地中海传染病医疗和教学研究所对外表示，发现了一种新冠病毒新 ...</blockquote>
+这是准备开新楼了吗？
+
+*****
+
+####  烦死了  
+##### 2918#       发表于 2022-1-5 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54177925&amp;ptid=2039422" target="_blank">Jet.Black 发表于 2022-1-5 20:35</a>
+所以有人研究出来，第四针mrna对欧米康有用么？</blockquote>
+卫生巾时报报道
+以色列研究 第四针辉瑞可以增加抗体5倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第三针打完6个月抗体又不够了，辉瑞赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://www.wsj.com/articles/fou ... el-show-11641322072](https://www.wsj.com/articles/fourth-pfizer-dose-spurs-sharp-jump-in-antibodies-early-results-from-israel-show-11641322072)
+
