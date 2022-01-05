@@ -17378,3 +17378,19 @@ Ian Ricksecker为了写小科普翻出了这篇去年8月牛津的论文预印�
 
 long-COVID我感觉与其说后遗症不如说是长期新冠综合症（尤其是知道了病毒仍可能在体内缓慢复制之后），关于奥密克戎持续症状的研究怎么看最早也是再过半年才能有，对此我保持谨慎悲观
 
+
+
+*****
+
+####  smy20011  
+##### 2935#       发表于 2022-1-6 07:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181768&amp;ptid=2039422" target="_blank">桐名 发表于 2022-1-6 06:39</a>
+
+Ian Ricksecker为了写小科普翻出了这篇去年8月牛津的论文预印本 地址简单概括就是疫苗接种（主要是辉瑞和摩 ...</blockquote>
+这位也是一个焦虑怪啊
+
+看了下，long covid的主诉症状是焦虑，发病率大概是流感的1.5倍
+
+[https://journals.plos.org/plosme ... ournal.pmed.1003773](https://journals.plos.org/plosmedicine/article?id=10.1371/journal.pmed.1003773)
+
