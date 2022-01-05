@@ -17230,3 +17230,15 @@ D愤怒了，变成超级D
 https://protect-pub ...</blockquote>
 抽调一成的床位作为伏兵吧，当病毒自以为已经耗尽床位时可以打他个措手不及。
 
+
+
+*****
+
+####  zerona  
+##### 2923#       发表于 2022-1-5 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54177886&amp;ptid=2039422" target="_blank">橋白 发表于 2022-1-5 20:33</a>
+
+有啊 知乎的拍老师转过相关的 德国？最大的保险公司赞助 10w人以上级别的后遗症研究 猜猜目的是啥 ...</blockquote>
+对这些症状不保？
+
