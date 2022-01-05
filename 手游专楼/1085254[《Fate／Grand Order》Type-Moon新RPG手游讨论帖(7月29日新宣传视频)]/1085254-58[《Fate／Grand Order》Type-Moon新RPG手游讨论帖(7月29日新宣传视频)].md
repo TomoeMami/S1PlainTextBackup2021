@@ -9054,3 +9054,32 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 2.6八成是定了死线是去年周年前要出，菌哥哥还是1月才开始正式 ...</blockquote>
 菌皇写作速度还是蛮快的，只要他想写，不整2.6的幺蛾子文本超级加倍，一个月就能吐出来，我觉得这点不用担心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 86381#       发表于 2022-1-5 10:45
+
+ 本帖最后由 UNISONIA 于 2022-1-5 10:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168717&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-5 10:32</a>
+
+其实主要还是写手分开负责的吧，而且菌类不用监修，瞬间就效率上去了，不过1.5的主线其实也就图一乐，没 ...</blockquote>
+1.5就新宿和下总国有主线相关，但是提供的一些线索不少都在第二部被吃书了
+
+第二部其实到现在为止菌皇的监修力度也很诡异，只能说是现在几次拖后腿都跟他有直接或者间接的关系
+
+他个人写作现在的问题不是在于量上，而是在质。月R照样量翻了倍，依然给人很水的感觉，剧情密度并不比老月姬高太多
+
+*****
+
+####  zakki  
+##### 86382#       发表于 2022-1-5 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168942&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-5 10:45</a>
+
+1.5就新宿和下总国有主线相关，但是提供的一些线索不少都在第二部被吃书了
+
+第二部其实到现在为止菌皇的监 ...</blockquote>
+老 毛病了，fsn开始就是这个毛病，不过月姬你得看拿什么比，如果和旧作全部比那的确是信息量密度不如，但如果只和表线比我不认同，旧月姬学姐线和公主线重复度至少高达40%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
