@@ -764,3 +764,38 @@ doom永恒阿
 
 也没有必要对b4b太严格了，l4d是僵尸游戏不可复制的神作，就好像魂1的地图连宫崎自己也没法超越一样，b4b没法跟它比是很正常的。横向对比其他的僵尸游戏我觉得b4b还算不错了
 
+
+
+*****
+
+####  congjasd  
+##### 83#         楼主| 发表于 2022-1-5 15:33
+
+倒腾了一点r18mod出来整理了一下回坑
+
+<img src="https://img.saraba1st.com/forum/202201/05/152736fxyfg5yufuzerypn.jpg" referrerpolicy="no-referrer">
+
+<strong>Inked屏幕截图 2022-01-05 015920_LI.jpg</strong> (387.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 15:27 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/152600uehye15zo0zec370.jpg" referrerpolicy="no-referrer">
+
+<strong>Inked屏幕截图 2022-01-05 012431_LI.jpg</strong> (368.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 15:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/05/152648dazp5zobrvyvva9q.jpg" referrerpolicy="no-referrer">
+
+<strong>Inked屏幕截图 2022-01-05 015604_LI.jpg</strong> (335.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 15:26 上传
+
+只能说确实长命是有理由的，，，各方面都是<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+

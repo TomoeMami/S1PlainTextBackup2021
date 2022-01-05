@@ -6589,3 +6589,17 @@ BV17L411t7Dd
 樋口原话，从a到n，牵引起整个故事</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦，五十音顺序，一下没反应过来
 
+
+
+*****
+
+####  朔方原的星  
+##### 506#       发表于 2022-1-5 15:31
+
+完了，戒断反应上来了
+本来刚看完时候就觉得很爽，没啥别的
+今天在睿站刷到了几个剧场版里revue的切片，戒断反应上来了
+死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
