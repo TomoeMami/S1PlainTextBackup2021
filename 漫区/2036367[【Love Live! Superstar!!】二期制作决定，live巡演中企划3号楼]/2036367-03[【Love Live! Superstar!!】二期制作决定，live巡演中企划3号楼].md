@@ -6445,3 +6445,33 @@ v2修正版~
 
 鲤鱼在广播里真的是越来越自由，甚至开始吐槽投稿人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 3603#       发表于 2022-1-5 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然不读空气 要被冲了
+
+*****
+
+####  cybernetics31  
+##### 3604#       发表于 2022-1-5 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本现在这疫情 后面追加会受影响不？
+
+*****
+
+####  二月十日  
+##### 3605#       发表于 2022-1-5 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54175245&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-5 17:47</a>
+
+@二月十日
+
+感谢。逛论坛就当日语复健</blockquote>
+看了下应该是跳转页面有墙_(:з」∠)_ 
+
+你用网页版的话就在スレッド一覧はこちら里面用Ctrl+F来查找吧,或者整个梯子一次解决所有问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -17063,3 +17063,33 @@ BA.2在某些国家开始上分,O系毒丁兴旺啊
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  玬翼  
+##### 2908#       发表于 2022-1-5 19:42
+
+据多家法国媒体报道，去年12月9日，法国马赛地中海传染病医疗和教学研究所对外表示，发现了一种新冠病毒新的变异毒株，该毒株编号为B.1.640.2，也被称为“IHU”毒株。该毒株包含46个突变点和37个缺失。该毒株最早在一位从刚果返回法国的病人身上发现。截至目前，马赛地中海传染病医疗和教学研究院共发现了12例该毒株感染者。由于样本较少，目前很难评估其传染性和危险性。世界卫生组织已经将该毒株列为接受观察的新冠变种。(环球网)
+
+*****
+
+####  讨喜の弟控  
+##### 2909#       发表于 2022-1-5 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54176808&amp;ptid=2039422" target="_blank">totoneko 发表于 2022-1-5 19:18</a>
+预测霓虹会爆，但短短一周爆5倍还是没想到
+
+【速報】東京都で新たに390人感染 前日(151人)から倍以 ...</blockquote>
+今天11区报的全国病例数超过2000，而昨天是1000出头，前天是500出头，大前天是300多
+这个增速，绝赞复刻带英和髪国
+
+*****
+
+####  ak123  
+##### 2910#       发表于 2022-1-5 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54176835&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-5 19:20</a>
+你髪今日确诊27万，人均位列世界第一，这不比泥美强多了</blockquote>
+你们新冠可太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
