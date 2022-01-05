@@ -17265,3 +17265,54 @@ https://protect-pub ...</blockquote>
 
 打算加保费倒是有可能。
 
+
+
+*****
+
+####  smy20011  
+##### 2926#       发表于 2022-1-5 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54176875&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2022-1-5 19:22</a>
+1月4日ICU和普通病床，继续稳步增加中。
+
+不知道为何汇报医院从6100家爆减到5573家了。
+
+https://protect-pub ...</blockquote>
+你这增加和减少感觉属于统计学误差。。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2927#       发表于 2022-1-5 23:53
+
+who：640就是鸡
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 2928#       发表于 2022-1-5 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54161472&amp;ptid=2039422" target="_blank">lvcha 发表于 2022-1-4 17:21</a>
+o记到底卷赢了d记吗？别到时候d记再卷土重来混合双打</blockquote>
+从英美数据来看，是卷死了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  pushare  
+##### 2929#       发表于 2022-1-5 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54179757&amp;ptid=2039422" target="_blank">riczxc 发表于 2022-1-5 22:55</a>
+
+这倒是不可能的，又不是美国。
+
+别说公立保险公司，私立的也受管制，不能不保。</blockquote>
+之前应该就有说法了，分摊上动刀
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2602,3 +2602,34 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 配一脸<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宛若青空  
+##### 224#       发表于 2022-1-5 23:51
+
+ 本帖最后由 宛若青空 于 2022-1-5 23:57 编辑 
+
+社内设定图是村上画的就很正常，正式人设图还是要等enami照着社内设定图画。
+
+另外这句话，「黎与红的邂逅，将开启至宝的大门。」至少黎2至宝会有进展<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/05/235702vund9ukza808tu8x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1591DB92-3662-4462-8FB7-2B3B28266359.jpeg</strong> (361.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-5 23:57 上传
+
+*****
+
+####  DelayNoMore  
+##### 225#       发表于 2022-1-6 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180096&amp;ptid=2042784" target="_blank">ac130-2020 发表于 2022-1-5 23:20</a></blockquote>
+用这个立绘当角色插画不就好了，非要搞事<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -6739,3 +6739,49 @@ CB28A343-8D35-4010-90E2-359A9155F974.jpeg
 应该是了间接水煮鱼</blockquote>
 然后1号晚上那个一样的宵夜，难道住了两天？
 
+
+
+*****
+
+####  chenflyyy  
+##### 3628#       发表于 2022-1-5 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180119&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-1-5 23:22</a>
+
+分开搞个人直播是杂谈还是打游戏啊 偶尔搞一次也就噶点韭菜  但LL这噶的还不够吗 ...</blockquote>
+那肯定还是杂谈好的，大家都想知道她们私底下的事，至于打游戏，我不认为星里有人上手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3629#       发表于 2022-1-5 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54180353&amp;ptid=2036367" target="_blank">kata魂 发表于 2022-1-5 23:45</a>
+然后1号晚上那个一样的宵夜，难道住了两天？</blockquote>
+1号晚上鱼回自家了吧应该
+
+*****
+
+####  cybernetics31  
+##### 3630#       发表于 2022-1-5 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计全部牡蛎
+
+
+
+*****
+
+####  player3960  
+##### 3631#       发表于 2022-1-5 23:52
+
+菜宝迫真星团第六人，啥料都有，还都能爆出来，怎么鲤鱼直播就啥都不能说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 3632#       发表于 2022-1-5 23:58
+
+不同直播平台也有关系吧，菜宝油管直播间说跨年live也没事，鱼唠嗑在叔叔家就很不方便，发个视频都得来回上传
+
