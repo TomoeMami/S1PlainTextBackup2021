@@ -9164,3 +9164,41 @@ SW2。当时好几个“舅舅”都提过SW2是个空降活动
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次暗狐出了四个四星 感觉抽卡只要出了四星这个池子五星就没戏了
 
+
+
+*****
+
+####  alucardcz  
+##### 86392#       发表于 2022-1-5 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171432&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-5 13:45</a>
+
+这次暗狐出了四个四星 感觉抽卡只要出了四星这个池子五星就没戏了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">欧　羡慕　我只有礼装
+
+*****
+
+####  qixinno2  
+##### 86393#       发表于 2022-1-5 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171804&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-5 14:12</a>
+
+欧　羡慕　我只有礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我宁肯出礼装 
+
+*****
+
+####  zakki  
+##### 86394#       发表于 2022-1-5 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54170849&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-1-5 12:58</a>
+
+2.65现在在我看来两个最大的可能性，一个是之前说过的51区，一个是冬木，但是这俩八成都是得菌哥哥自己写 ...</blockquote>
+确实是这样，我觉得年底赶出来的这个最终决战开启后，大概率后面的章节全是主线相关了，不会再像2.55,2.6一样和你讲一堆和2.0核心主线上关系不大的东西。
+
+2.7不用说，戴比特和队长两个人，分别就是，队长对应的是2.0表线，异闻带和隐匿者；戴比特对应的就是2.0暗线，迦勒底和异星神。所以戴比特的2.7肯定是和迦勒底，老所长有关的纯主线剧情，这么一看贝利尔夹在这俩人中间确实尴尬，最后只能当个搅屎棍小丑退场处理了
+
+至于2.65，目前最大的就是你说的51区和冬木二选一，不管是哪个都会是个和核心主线高度联系的章节，能解一部分2.0的真相。主要人物估计就是老福或者加拉哈德了，我觉得该来一章给老福抬抬逼格了，看起来会是个总集篇，回顾＋解谜性质的章节
+
+通古斯后立马开决战，有种把柯扬斯卡娅这个2.0最后一条支线解决后就全力奔主线的感觉，希望真是这样吧，再拖真就拖到没耐心了，就算写的再好的剧情一直拖下去也没人最终会满意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
