@@ -7425,3 +7425,110 @@ PIA是哪个？正好还没买票</blockquote>
 
 榜上还有个男的巫女……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 3688#       发表于 2022-1-6 22:29
+
+花絮💚💚
+
+和诹访前辈一起拍照啦！！！
+
+在台上前辈来抱我的时候，我感觉心脏都要跳出来了，只能做到一直捂住脸了(/；꒳；＼)
+
+现在回想起那个瞬间都感觉心跳不已…😳
+
+真的太幸福了，好喜欢前辈。
+
+真的太谢谢了！
+
+F44619CA-8A1E-4FCF-BD52-1B18C86D5CFD.jpeg
+(213.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/222919sbm13mb64udbmg1b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 3689#       发表于 2022-1-6 22:31
+
+新年那天nagi的青梅竹马居然也在~~
+
+*****
+
+####  中野四葉  
+##### 3690#       发表于 2022-1-6 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">左青梅右天降，nagi赢麻了
+
+
+
+*****
+
+####  cybernetics31  
+##### 3691#       发表于 2022-1-6 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">真好啊真好啊，青山那张好幼啊
+
+*****
+
+####  player3960  
+##### 3692#       发表于 2022-1-6 22:37
+
+真就连续剧啊，这都快7号了，参战人物还越来越多，精彩绝伦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ykyin09  
+##### 3693#       发表于 2022-1-6 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这青梅都有鲤鱼高了吧
+
+*****
+
+####  lj205  
+##### 3694#       发表于 2022-1-6 22:42
+
+鲤鱼fc说广播一周年线上活动会有天大好消息，希望大家也买张票支持一下哈～
+我个人是猜测live的直播渠道搞定了
+
+*****
+
+####  仟音一心  
+##### 3695#       发表于 2022-1-6 22:43
+
+一家三口
+
+0279C269-DB7A-406C-9ECB-F61830724E63.jpeg
+(199.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 22:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/224323w202oofnhf9i1v7i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+72F69BAD-C8E2-480F-B8BB-6DA964E4AAD6.jpeg
+(82.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 22:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/224347dzhef8dhhmyc40ty.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3696#       发表于 2022-1-6 22:45
+
+水煮鱼这大分上的……打铁周日你要雄起啊
+
