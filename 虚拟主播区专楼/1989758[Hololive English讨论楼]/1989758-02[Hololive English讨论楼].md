@@ -724,3 +724,15 @@ ame前一段好像也有提到6期想找忍忍
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 1572#         楼主| 发表于 2022-1-6 09:23
+
+英語圏VTuberグループ「ホロライブEnglish」のお正月衣装が発表！ 
+
+お披露目リレー配信が2022年1月9日（日）6時より配信決定！
+[https://prtimes.jp/main/html/rd/p/000000600.000030268.html](https://prtimes.jp/main/html/rd/p/000000600.000030268.html)
+
