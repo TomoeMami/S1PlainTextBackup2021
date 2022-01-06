@@ -998,3 +998,12 @@ https://www.hacg.cat/wp/85647.html
 
 只能说摆烂社过去确实牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 103#       发表于 2022-1-6 21:34
+
+转眼一看，L4D和L4D2都是十多年前的游戏了。
+
