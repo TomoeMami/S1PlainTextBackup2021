@@ -18069,3 +18069,21 @@ ICU病床破80%了，比想象的快。
 这个人鼓吹新冠流感化好长时间了</blockquote>
 我认识的美国医生都很忙，真的没见过有人像这位张叫兽一样高强度刷中文微博的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2988#       发表于 2022-1-6 23:37
+
+沃尔玛直接宣布covid病假的补贴减半了，究竟有多少人得了。。
+
+*****
+
+####  smy20011  
+##### 2989#       发表于 2022-1-6 23:39
+
+[https://www.wgbh.org/news/local- ... -continues-to-surge](https://www.wgbh.org/news/local-news/2022/01/04/no-icu-beds-left-massachusetts-hospitals-are-maxed-out-as-covid-continues-to-surge)
+
+美国版本的西安孕妇事件，送到医院没人处理
+
