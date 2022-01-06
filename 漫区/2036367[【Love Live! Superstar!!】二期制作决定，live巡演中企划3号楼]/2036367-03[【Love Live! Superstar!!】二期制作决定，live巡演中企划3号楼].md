@@ -7284,3 +7284,17 @@ https://youtu.be/vl47eqtERME?t=5719
 
 【【全熟】 小伊达不是徒有其表！！！第十回-哔哩哔哩】 [https://b23.tv/n8EW3JH](https://b23.tv/n8EW3JH)
 
+
+
+*****
+
+####  二月十日  
+##### 3676#       发表于 2022-1-6 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54189417&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-6 17:46</a>
+第十期的打铁匠不简单，1:30左右
+
+【【全熟】 小伊达不是徒有其表！！！第十回-哔哩哔哩】 https://b23.t ...</blockquote>
+这期我之前也听了，这里说的是今年（的除夕）不在宫城过啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+之后会不会回是没有提的
+
