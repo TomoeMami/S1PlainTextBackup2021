@@ -261,3 +261,25 @@ Number of Americans hospitalized with COVID-19 hits 120,000, highest since Janua
 我在等一天一千万，个人期待是小年-新年这个区间 就算0.3%的死亡率，都是日死亡3W，场景太美（ ...</blockquote>
 想多了，检测差不多上限了（隔壁人手不够的大家麻已经撞到了），现在大概只能从阳性率看个趋势，光盯人数意义一般
 
+
+
+*****
+
+####  wszweill  
+##### 3024#       发表于 2022-1-7 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194681&amp;ptid=2039422" target="_blank">BLTUS 发表于 2022-1-6 17:40</a>
+
+想多了，检测差不多上限了（隔壁人手不够的大家麻已经撞到了），现在大概只能从阳性率看个趋势，光盯人数 ...</blockquote>
+上限我一样很感兴趣，不过美帝的能力是远超加拿大的，我对每天千万级别的测量还是有信心，实在不行还可以看入院和死亡嘛，大差不差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BLTUS  
+##### 3025#       发表于 2022-1-7 06:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194685&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-7 06:44</a>
+
+上限我一样很感兴趣，不过美帝的能力是远超加拿大的，我对每天千万级别的测量还是有信心，实在不行还可以 ...</blockquote>
+真动员起来确实有这能力，但我看大几率是没大事就发个Test Kit打发人回家的套路，不会花死劲搞PCR的，测个天文数字出来对自己也没好处
+
