@@ -283,3 +283,24 @@ Number of Americans hospitalized with COVID-19 hits 120,000, highest since Janua
 上限我一样很感兴趣，不过美帝的能力是远超加拿大的，我对每天千万级别的测量还是有信心，实在不行还可以 ...</blockquote>
 真动员起来确实有这能力，但我看大几率是没大事就发个Test Kit打发人回家的套路，不会花死劲搞PCR的，测个天文数字出来对自己也没好处
 
+
+
+*****
+
+####  ft5555  
+##### 3026#       发表于 2022-1-7 07:04
+
+<img src="https://img.saraba1st.com/forum/202201/07/070129vafrmm2y5ait2y5i.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220107065912.png</strong> (68.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 07:01 上传
+
+[https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/?sh=76ccf3334352](https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chinas-covid-death-rate-part-1/?sh=76ccf3334352)
+
+The 800-to-1 ratio of US-to-Chinese mortality rates is a statistical, medical, biological, political and economic impossibility.
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">  大家来欢乐一下
+
