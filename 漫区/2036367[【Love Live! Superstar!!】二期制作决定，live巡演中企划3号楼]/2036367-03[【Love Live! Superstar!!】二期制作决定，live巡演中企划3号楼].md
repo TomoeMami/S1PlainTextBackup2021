@@ -6959,3 +6959,14 @@ https://youtu.be/vl47eqtERME?t=5719
 
 找到那人空间了，有点恶心啊，搞这种外网恶心人的p图
 
+
+
+*****
+
+####  lj205  
+##### 3646#       发表于 2022-1-6 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181931&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-6 07:46</a>
+找到那人空间了，有点恶心啊，搞这种外网恶心人的p图</blockquote>
+应该就是个esu 小鬼吧
+
