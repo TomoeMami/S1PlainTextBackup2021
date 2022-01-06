@@ -4528,3 +4528,15 @@ syl 这哪偷的
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 4970#       发表于 2022-1-6 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184789&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-6 11:58</a>
+
+这两天补了一下其他团员的录播，co宝，白白，王木木的杂谈力都好强啊，完全不输给静静，感觉五个人 ...</blockquote>
+白白一惊一乍时不时大喊，耳朵有点受不了
+
