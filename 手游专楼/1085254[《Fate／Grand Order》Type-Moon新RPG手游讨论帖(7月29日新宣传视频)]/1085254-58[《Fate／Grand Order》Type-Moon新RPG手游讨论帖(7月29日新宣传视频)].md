@@ -9811,3 +9811,12 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 蛾子一炮打不死的话补刀都补不了，当然是越高宝越好了</blockquote>
 暗狐有3T的贯通，可以补<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 86450#       发表于 2022-1-6 22:14
+
+去年大部分活动礼装都自带np,加上各种带群冲的光炮，官方推的就是3打手一人一炮了，不过也没把老方法堵死，想少按几下么还是省钱各自选择了
+
