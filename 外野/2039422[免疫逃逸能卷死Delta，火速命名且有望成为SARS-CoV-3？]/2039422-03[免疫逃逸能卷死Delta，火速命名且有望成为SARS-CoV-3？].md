@@ -81,3 +81,31 @@ OK，好的，你是对的。不争。静看年底。
 看过南北战争历史的人应该能想到美国人其实并不怎么在乎人命，包括他们自己，只要他们情绪化起来的话，死的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">那有什么南北战争历史的书籍或影视作品可以了解这一点吗？
 
+
+
+*****
+
+####  pushare  
+##### 3007#       发表于 2022-1-7 01:09
+
+拿机械通气的数字来糊弄的phe等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+英国人，前EUPHA的头自己说的
+
+Two things we got wrong at beginning of pandemic that still have consequences. Failing to accept that:
+1. #COVIDisAirborne 
+2. COVID is a multi system disease
+(yes, could add lots more but those 2 are key to much that followed)
+
+*****
+
+####  烤烤鱼σ  
+##### 3008#       发表于 2022-1-7 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181813&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 07:09</a>
+
+这位也是一个焦虑怪啊
+
+看了下，long covid的主诉症状是焦虑，发病率大概是流感的1.5倍</blockquote>
+我看观网的文章，马丁雅克说他儿子long covid，感染一年了，还每天卧床16小时
+
