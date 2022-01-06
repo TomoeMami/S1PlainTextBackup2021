@@ -6650,3 +6650,17 @@ BV17L411t7Dd
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  car123  
+##### 511#       发表于 2022-1-6 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54187551&amp;ptid=2043629" target="_blank">阿卡拉兰斯 发表于 2022-1-6 15:39</a>
+
+战吧那边貌似喜欢TV的比喜欢剧场版的多呢(也可能是投票选项在下面的原因？)
+
+泥潭不知道是更喜欢TV还是剧场 ...</blockquote>
+战吧很多人还没看剧场版也是原因之一吧
+

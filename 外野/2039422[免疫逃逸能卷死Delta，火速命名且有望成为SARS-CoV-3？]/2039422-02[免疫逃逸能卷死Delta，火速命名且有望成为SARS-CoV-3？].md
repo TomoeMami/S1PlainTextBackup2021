@@ -17878,3 +17878,33 @@ Joe Biden
 lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不就是don't look up吗，只不过病毒不是陨石，说不定他们赌赢了？
 
+
+
+*****
+
+####  eveshell  
+##### 2978#       发表于 2022-1-6 15:43
+
+预测一下英美疫情发展
+
+第一步：鼓吹病毒低致死率，表示单看病例新增数字意义不大
+
+第二步：停止统计疫情病例，我看不到就表示不存在
+
+第三步：号召欧洲国家（自愿或非自愿）跟进
+
+第四步：鼓励群众主动出门感染“致死率较低”的变种，获得免疫
+
+第五步：没感染过的人变成了没有“免疫”buff的异类，因为生活太过小心翼翼，处于社达鄙视链底端 
+
+第六步：宣称战胜了疫情，好莱坞以修改集体记忆的方式开始大拍庆功类型片
+
+<img src="https://img.saraba1st.com/forum/202201/06/154248r7wyeeh3g5hwq4nu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220106_154028_433_1.jpg</strong> (75.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-6 15:42 上传
+
