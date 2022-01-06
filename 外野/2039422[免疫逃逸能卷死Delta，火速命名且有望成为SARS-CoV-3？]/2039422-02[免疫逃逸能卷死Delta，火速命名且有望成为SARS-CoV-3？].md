@@ -18026,3 +18026,19 @@ ICU病床破80%了，比想象的快。
 
 <img src="https://img.saraba1st.com/forum/202201/06/192108fko8qximiigd7w8q.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nvis  
+##### 2985#       发表于 2022-1-6 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54189461&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-6 17:50</a>
+有药=有迅速控制的机会。
+
+比如说。给所有入境的人都发一份，告诉他们有症状马上吃。
+
+所有高危工作岗位和宿 ...</blockquote>
+靠吃药打药是不现实的，药物不能当饭。
+未来的破局点应该是各种黑科技的消杀方案，例如奥运代表团所用的那种消毒灯若是能改进和民用化就是个不错的手段。
+
