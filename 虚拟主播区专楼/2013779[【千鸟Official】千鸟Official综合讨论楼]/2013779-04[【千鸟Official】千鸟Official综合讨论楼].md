@@ -4574,3 +4574,28 @@ syl 这哪偷的
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实都可以 但王木木和co不能唱歌。
 然后就是因为每月80h,所以有大多数时间会摆烂，尤其是白白
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4974#       发表于 2022-1-6 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">今天sc弹幕拷打了什么吗，看tg那边在说
+
+一直在黑听根本没看到
+
+*****
+
+####  小憨1  
+##### 4975#       发表于 2022-1-6 14:42
+
+开始一段不怎么读sc，后面好起来了
+
+*****
+
+####  灰色的狐狸  
+##### 4976#       发表于 2022-1-6 14:43
+
+嗨就这<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
