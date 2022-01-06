@@ -4608,3 +4608,17 @@ syl 这哪偷的
 
 还是停尸间令人安定，可能是因为没有被maybe文静荼毒吧，希望文静今后也不要过来，给我留一片净土<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ba娜娜  
+##### 4978#       发表于 2022-1-6 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54186382&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-1-6 14:10</a>
+
+其实都可以 但王木木和co不能唱歌。
+
+然后就是因为每月80h,所以有大多数时间会摆烂，尤其是白白 ...</blockquote>
+运营的要求吗，80小时其实也还好，不过我看大部分时间确实都是在看电视剧摆烂，她们好像都不爱玩游戏，除了木木<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

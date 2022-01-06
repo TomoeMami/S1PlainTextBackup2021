@@ -17923,3 +17923,28 @@ The fast-spreading omicron variant of COVID-19 is sidelining exposed or infected
 
 Some 40% of hospitals are expecting to face critical staff shortages and some are reporting as much as one quarter of their staff out for virus-related reasons, said Kiyomi Burchill of the California Hospital Association.
 
+
+
+*****
+
+####  亚尔迪8424  
+##### 2980#       发表于 2022-1-6 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54187591&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 15:43</a>
+
+预测一下英美疫情发展
+
+第一步：鼓吹病毒低致死率，表示单看病例新增数字意义不大</blockquote>
+这个人鼓吹新冠流感化好长时间了
+
+*****
+
+####  Kanoya  
+##### 2981#       发表于 2022-1-6 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54187591&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 15:43</a>
+预测一下英美疫情发展
+
+第一步：鼓吹病毒低致死率，表示单看病例新增数字意义不大</blockquote>
+虽然都叫Omicron，但是现在正在流行的是BA.1，BA.2还没发力呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
