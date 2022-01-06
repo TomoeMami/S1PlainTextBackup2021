@@ -926,3 +926,26 @@ l4d这个级别的工作量要升级成现代标准要做死人</blockquote>
 省流最后把B4B简介中的L4D改成进化，太搞了</blockquote>
 哈哈哈 经典原班人马
 
+
+
+*****
+
+####  Rankagai  
+##### 96#       发表于 2022-1-6 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54174535&amp;ptid=2045489" target="_blank">deadpeople 发表于 2022-1-5 17:10</a>
+草，看到楼上这么整让我想起dlsite那个僵尸游戏了，但凡有L4D的百分之一功力还能更上一层楼 ...</blockquote>
+啥游戏，能指个路吗
+
+*****
+
+####  congjasd  
+##### 97#         楼主| 发表于 2022-1-6 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54187505&amp;ptid=2045489" target="_blank">Rankagai 发表于 2022-1-6 15:36</a>
+啥游戏，能指个路吗</blockquote>
+应该是这个
+<img src="https://p.sda1.dev/4/3449996d39fcd9f8c17907b015dff806/IMG_CMP_46593264.jpeg" referrerpolicy="no-referrer">
+
+https://www.hacg.cat/wp/85647.html
+
