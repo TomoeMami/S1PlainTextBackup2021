@@ -109,3 +109,26 @@ Two things we got wrong at beginning of pandemic that still have consequences. F
 看了下，long covid的主诉症状是焦虑，发病率大概是流感的1.5倍</blockquote>
 我看观网的文章，马丁雅克说他儿子long covid，感染一年了，还每天卧床16小时
 
+
+
+*****
+
+####  smy20011  
+##### 3009#       发表于 2022-1-7 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193927&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-7 00:45</a>
+
+lebonhomme有的人说未来新冠不会全年流行，而是会和季节性流感一样季节流行。
+
+OK，好的，你是对的。不争 ...</blockquote>
+目前看来两次大爆发都是在秋冬季节就是了
+
+*****
+
+####  smy20011  
+##### 3010#       发表于 2022-1-7 01:22
+
+好消息：美国感染三天下降了30%
+
+坏消息：感染依然每天70万
+

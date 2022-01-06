@@ -6673,3 +6673,15 @@ BV17L411t7Dd
 
 光恋这组没看懂啊，立意难道是恋哥哥终于放下小时候的执念从重度姛毕业了?
 
+
+
+*****
+
+####  青龙圣者  
+##### 513#       发表于 2022-1-7 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54192683&amp;ptid=2043629" target="_blank">panzerkamf 发表于 2022-1-6 22:21</a>
+
+光恋这组没看懂啊，立意难道是恋哥哥终于放下小时候的执念从重度姛毕业了? ...</blockquote>
+立意应该是打破约定之后，重新约定。
+
