@@ -18168,3 +18168,54 @@ ICU病床破80%了，比想象的快。
 
 其实我真的觉得欧美人死定了。
 
+
+
+*****
+
+####  eveshell  
+##### 2997#       发表于 2022-1-7 00:21
+
+<blockquote>天国直通车 发表于 2022-1-7 00:14
+难道有人想听到他说“新冠无药可救，欧美人死定了”？
+
+不管站在什么立场，他在公众场合只能往最理想的方 ...</blockquote>
+他就可以没凭据的说最后一个疫情冬天？不讲科学了？
+
+*****
+
+####  alerbe  
+##### 2998#       发表于 2022-1-7 00:22
+
+看过南北战争历史的人应该能想到美国人其实并不怎么在乎人命，包括他们自己，只要他们情绪化起来的话，死的多点少点也只是数字。
+
+*****
+
+####  smy20011  
+##### 2999#       发表于 2022-1-7 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193668&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-7 00:15</a>
+
+真mild</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/07/002339dda3fbdf3w1p12ga.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-06 08.23.20.png</strong> (131.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 00:23 上传
+
+确实mild，不过很多人去ER还是需要护士观察的，需要呼吸机的不多，但是因为感染人数太多，以及医护也感染了，造成医疗压力依然很大。
+
+*****
+
+####  smy20011  
+##### 3000#       发表于 2022-1-7 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193705&amp;ptid=2039422" target="_blank">公共知识 发表于 2022-1-7 00:20</a>
+
+我挺想听这句的，欧美人死定了不挺好的？
+
+其实我真的觉得欧美人死定了。 ...</blockquote>
+那好，欧美的人死定了
+

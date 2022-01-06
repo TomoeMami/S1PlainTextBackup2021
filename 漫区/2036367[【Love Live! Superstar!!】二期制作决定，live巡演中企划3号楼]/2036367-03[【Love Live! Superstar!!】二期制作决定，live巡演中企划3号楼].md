@@ -7659,3 +7659,31 @@ F44619CA-8A1E-4FCF-BD52-1B18C86D5CFD.jpeg
 新年，还在人家家过夜，晚上洗澡怎么洗的啊？还有睡衣，难道是自己带过去的吗？她家卧室是和式还是洋式啊？ ...</blockquote>
 有说过夜吗？没证据吧
 
+
+
+*****
+
+####  sjbssd  
+##### 3711#       发表于 2022-1-7 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193669&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-7 00:15</a>
+
+有说过夜吗？没证据吧</blockquote>
+不好意思，脑部超频了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3712#       发表于 2022-1-7 00:34
+
+ 本帖最后由 stygian 于 2022-1-7 00:36 编辑 
+
+青山这个青梅一开始还是声优志愿的。。。自己想做的职业被朋友先做了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3713#       发表于 2022-1-7 00:37
+
+eplus和pia的播放测试都挺流畅，最后还是在pia买了票希望到时候流畅点
+
