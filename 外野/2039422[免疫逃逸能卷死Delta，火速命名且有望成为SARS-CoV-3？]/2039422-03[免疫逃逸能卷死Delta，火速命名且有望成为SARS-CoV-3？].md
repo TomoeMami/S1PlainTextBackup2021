@@ -249,3 +249,15 @@ Number of Americans hospitalized with COVID-19 hits 120,000, highest since Janua
 要不你再算一遍</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 脑子糊涂了，手打的0.3想成3了，没关系3W也很美 （
 
+
+
+*****
+
+####  BLTUS  
+##### 3023#       发表于 2022-1-7 06:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194560&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-7 04:28</a>
+
+我在等一天一千万，个人期待是小年-新年这个区间 就算0.3%的死亡率，都是日死亡3W，场景太美（ ...</blockquote>
+想多了，检测差不多上限了（隔壁人手不够的大家麻已经撞到了），现在大概只能从阳性率看个趋势，光盯人数意义一般
+
