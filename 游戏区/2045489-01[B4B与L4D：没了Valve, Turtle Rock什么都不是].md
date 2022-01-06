@@ -989,3 +989,12 @@ https://www.hacg.cat/wp/85647.html
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这视频看完感觉就算epic送我都懒得下了....
 
+
+
+*****
+
+####  Narrative  
+##### 102#       发表于 2022-1-6 21:23
+
+只能说摆烂社过去确实牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

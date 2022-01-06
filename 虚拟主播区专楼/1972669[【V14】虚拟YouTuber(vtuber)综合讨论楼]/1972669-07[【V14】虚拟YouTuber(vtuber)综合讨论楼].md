@@ -10716,3 +10716,14 @@ hero好可爱啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">NRK明天直播活动复活，摔成这样还能这么快复归啊
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 9912#       发表于 2022-1-6 21:15
+
+[https://twitcasting.tv/hitome_hooo](https://twitcasting.tv/hitome_hooo)
+
+中岡这个营业对象声音有点像白音雪？
+

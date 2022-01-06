@@ -7362,3 +7362,66 @@ PIA是哪个？正好还没买票
 
 小偶像的私生活还是不要研究的太细的好，鲤鱼姐又是个爱自搜的，给人家留一点空间啦
 
+
+
+*****
+
+####  二月十日  
+##### 3683#       发表于 2022-1-6 21:14
+
+ 本帖最后由 二月十日 于 2022-1-6 21:15 编辑 
+
+打铁ins上发了和鲤鱼和pay酱一起去吃美式松饼的Story<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+https://instagram.com/stories/sayuridate_official/2745204377120679596
+
+*****
+
+####  仟音一心  
+##### 3684#       发表于 2022-1-6 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54191953&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-6 21:14</a>
+
+打铁ins上发了和鲤鱼和pay酱一起去吃美式松饼的Story
+
+https://instagram.com/stories/sayuridate_of ...</blockquote>
+报双N可丽饼之仇
+
+5E056895-9DA0-4CA8-9991-CE2E303E7455.jpeg
+(145.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/212013mrrkq77ek6eo1mqq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3685#       发表于 2022-1-6 21:24
+
+我好了！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+再多一些！！！！
+
+*****
+
+####  lj205  
+##### 3686#       发表于 2022-1-6 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54191498&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-6 20:29</a>
+
+PIA是哪个？正好还没买票</blockquote>
+总共两个购买渠道，不是e plus的另外一个就是pia
+
+*****
+
+####  D麦林  
+##### 3687#       发表于 2022-1-6 21:26
+
+那个巫女角色排名 我还以为会有堇的
+
+结果没有 倒是有大前辈东条希
+
+榜上还有个男的巫女……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
