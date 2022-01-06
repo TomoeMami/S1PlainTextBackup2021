@@ -18117,3 +18117,54 @@ ICU病床破80%了，比想象的快。
 
 可以看一下NY急诊室的医生的感受
 
+
+
+*****
+
+####  天国直通车  
+##### 2993#       发表于 2022-1-7 00:14
+
+ 本帖最后由 天国直通车 于 2022-1-7 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193533&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 23:56</a>
+可他目前每句预言都是美国传声筒</blockquote>
+难道有人想听到他说“新冠无药可救，欧美人死定了”？
+
+不管站在什么立场，他在公众场合只能往最理想的方向说
+
+他只是上海的医生，他不是世界的医生。更何况学医救不了白皮
+
+*****
+
+####  pushare  
+##### 2994#       发表于 2022-1-7 00:15
+
+真mild<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/4/0427b2054e19d2b2244b3a3721036345/IMG_CMP_124786630.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  lazyboy  
+##### 2995#       发表于 2022-1-7 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193654&amp;ptid=2039422" target="_blank">天国直通车 发表于 2022-1-7 00:14</a>
+难道有人想听到他说“新冠无药可救，欧美人死定了”？
+
+不管站在什么立场，他在公众场合只能往最理想的方 ...</blockquote>
+为什么只能往最理想的方向说？
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  公共知识  
+##### 2996#       发表于 2022-1-7 00:20
+
+<blockquote>天国直通车 发表于 2022-1-7 00:14
+难道有人想听到他说“新冠无药可救，欧美人死定了”？
+
+不管站在什么立场，他在公众场合只能往最理想的方 ...</blockquote>
+我挺想听这句的，欧美人死定了不挺好的？
+
+其实我真的觉得欧美人死定了。
+
