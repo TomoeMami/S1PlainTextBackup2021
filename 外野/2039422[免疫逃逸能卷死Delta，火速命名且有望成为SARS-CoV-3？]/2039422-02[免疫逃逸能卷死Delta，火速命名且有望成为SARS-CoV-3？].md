@@ -17527,3 +17527,17 @@ D愤怒了，变成超级D
 昨天听nih 的新冠webinar. 没啥特别的新闻，跟O有关的也就是目前美国O基本胜利了，double time大约2天，目 ...</blockquote>
 这还算实诚，既不想说中国好又不想撒谎，刻意限制了范围把中国撇开……
 
+
+
+*****
+
+####  卡普空  
+##### 2948#       发表于 2022-1-6 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54178088&amp;ptid=2039422" target="_blank">天使日又日 发表于 2022-1-5 20:45</a>
+
+日本增速那么快我觉得跟岸田之前宣布某几个县免费查pcr有关，可能这些数目才更接近日本真实情况
+
+加上这几天 ...</blockquote>
+我发现岸田的水平还是可以的，我原以为他只能当安倍的傀儡
+

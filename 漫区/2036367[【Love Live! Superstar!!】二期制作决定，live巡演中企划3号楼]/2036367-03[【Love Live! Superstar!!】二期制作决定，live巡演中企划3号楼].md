@@ -7092,3 +7092,33 @@ https://youtu.be/vl47eqtERME?t=5719
 
 小事务所经纪人是对制作方的，这家他熟，那事务所的人去这家试音都是他带着，这样……虹团一开始签得就是普通手游配音
 
+
+
+*****
+
+####  lj205  
+##### 3659#       发表于 2022-1-6 11:13
+
+阿波罗海岸开FC咯
+
+*****
+
+####  lj205  
+##### 3660#       发表于 2022-1-6 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54183249&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-6 10:18</a>
+
+真有人写了https://fate.5ch.net/test/read.cgi/lovelive/1641377126/
+
+甚至搞到了经纪人那边去[f: ...</blockquote>
+笑傻了，要我怎么面对桌上的鲤鱼台历
+
+
+
+*****
+
+####  cybernetics31  
+##### 3661#       发表于 2022-1-6 11:20
+
+这fc不太行啊，编号都没
+
