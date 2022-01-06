@@ -901,3 +901,16 @@ l4d这个级别的工作量要升级成现代标准要做死人</blockquote>
 
 红迪这个统计也挺有意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古代人皮克  
+##### 94#       发表于 2022-1-6 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54165964&amp;ptid=2045489" target="_blank">ESAKA!!!! 发表于 2022-1-5 00:23</a>
+也没有必要对b4b太严格了，l4d是僵尸游戏不可复制的神作，就好像魂1的地图连宫崎自己也没法超越一样，b4b没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">虽然不是僵尸，但是肥鲨鱼的战锤鼠疫在吸取l4d经验的时候明显处理好得多，他们也不是什么知名的制作组
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

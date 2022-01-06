@@ -17826,3 +17826,14 @@ Joe Biden
 加州这个“健康码”到底靠不靠谱啊，去迪士尼逛了两天，居然没有任何接触新冠患者的警告 ...</blockquote>
 管他呢， 反正mild<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 2975#       发表于 2022-1-6 12:52
+
+话说现在国内治疗方案有加入单抗么？我看fda更新的指南把各种化学药和单抗都加进去了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
