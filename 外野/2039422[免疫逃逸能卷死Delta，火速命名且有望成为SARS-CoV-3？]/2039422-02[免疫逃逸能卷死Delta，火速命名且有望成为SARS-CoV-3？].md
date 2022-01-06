@@ -17506,3 +17506,24 @@ D愤怒了，变成超级D
 基本上不防感染但是防重症，打完三针的都处于躺平状态了</blockquote>
 这个倒是，估计就是指望着节后和omicron双重叠加导致的感染高峰过去同时住院率压住就能苟了
 
+
+
+*****
+
+####  cpuisme  
+##### 2946#       发表于 2022-1-6 10:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 现在只能说期待新药开发了。就算疫苗接种国家免费，耗材的开支可是实实在在的成本。
+
+现在实际上是全社会都在失血，来跟病毒打持久战。
+
+*****
+
+####  秀光  
+##### 2947#       发表于 2022-1-6 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181734&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-6 06:02</a>
+
+昨天听nih 的新冠webinar. 没啥特别的新闻，跟O有关的也就是目前美国O基本胜利了，double time大约2天，目 ...</blockquote>
+这还算实诚，既不想说中国好又不想撒谎，刻意限制了范围把中国撇开……
+
