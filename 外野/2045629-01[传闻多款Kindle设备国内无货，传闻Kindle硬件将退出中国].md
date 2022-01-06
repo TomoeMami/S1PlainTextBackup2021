@@ -2703,3 +2703,14 @@ kindle啥都好
 
 国内kindle要是能不架梯子，通过合法程序登日服买书就好了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  armedangel  
+##### 264#       发表于 2022-1-6 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54159433&amp;ptid=2045629" target="_blank">chm007 发表于 2022-1-4 14:51</a>
+做了你也不一定看得到，现在都已经在走小圈子分享模式了</blockquote>
+求老哥私信带路<img src="https://p.sda1.dev/4/d1df2fbdae9f7a84e15afcc490b86b37/IMG_CMP_252450454.jpeg" referrerpolicy="no-referrer">
+
