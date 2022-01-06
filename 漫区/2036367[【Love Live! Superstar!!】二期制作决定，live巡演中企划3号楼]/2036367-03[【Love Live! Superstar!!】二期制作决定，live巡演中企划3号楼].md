@@ -7298,3 +7298,15 @@ https://youtu.be/vl47eqtERME?t=5719
 这期我之前也听了，这里说的是今年（的除夕）不在宫城过啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 之后会不会回是没有提的
 
+
+
+*****
+
+####  starring  
+##### 3677#       发表于 2022-1-6 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54189674&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-6 18:05</a>
+这期我之前也听了，这里说的是今年（的除夕）不在宫城过啊
+之后会不会回是没有提的 ...</blockquote>
+很有可能没回去，第九期才说十二月份（具体没说时间）回了一次宫崎老家和爷爷奶奶家，新年和宫崎live的时间间隔也不长，可能live结束才回去
+
