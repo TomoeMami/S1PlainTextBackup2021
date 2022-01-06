@@ -17837,3 +17837,32 @@ Joe Biden
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  cpuisme  
+##### 2976#       发表于 2022-1-6 13:46
+
+ 本帖最后由 cpuisme 于 2022-1-6 13:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54185096&amp;ptid=2039422" target="_blank">lyflyflxf 发表于 2022-1-6 12:21</a>
+
+你这说的前言不搭后语的
+
+就算有新药，照样是消耗战</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer"> 大家看的视角不一样。
+
+我说的耗材是核酸管之类的东西，有药后至少扑灭入境案例应该不会太难。
+
+现在高危敏感岗位1或2周就得测一次核酸。
+
+我记得医院内部自查的耗材，是没有医保报销的。
+
+我们医院现在已经是一年白干活了。
+
+据说之后集采会疯狂压核酸管之类的耗材成本，接下来就是厂家不挣钱了。
+
+记得广东集采价格是从17块钱/管干到1.01元/管。
+
+这种轮流吃亏的状态肯定不可持续。
+
