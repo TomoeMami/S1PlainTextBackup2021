@@ -17778,3 +17778,51 @@ Joe Biden
 想想今年美帝大收水，再 ...</blockquote>
 张文宏一开始不是很相信欧美的医疗嘛-_-
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2971#       发表于 2022-1-6 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54183581&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-6 10:43</a>
+现在只能说期待新药开发了。就算疫苗接种国家免费，耗材的开支可是实实在在的成本。
+
+现在实际上是 ...</blockquote>
+你这说的前言不搭后语的
+
+就算有新药，照样是消耗战
+
+*****
+
+####  eveshell  
+##### 2972#       发表于 2022-1-6 12:23
+
+<blockquote>lyflyflxf 发表于 2022-1-6 12:21
+你这说的前言不搭后语的
+
+就算有新药，照样是消耗战</blockquote>
+化药能不能人人像感冒药一样吃？降重症
+
+*****
+
+####  lyflyflxf  
+##### 2973#       发表于 2022-1-6 12:26
+
+ 本帖最后由 lyflyflxf 于 2022-1-6 12:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54185122&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 12:23</a>
+
+化药能不能人人像感冒药一样吃？降重症</blockquote>
+
+不一定不能。但供给必然不足，因为全世界的人都需要，而且反复需要。利好医药股
+
+*****
+
+####  烦死了  
+##### 2974#       发表于 2022-1-6 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184414&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 11:33</a>
+
+加州这个“健康码”到底靠不靠谱啊，去迪士尼逛了两天，居然没有任何接触新冠患者的警告 ...</blockquote>
+管他呢， 反正mild<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
