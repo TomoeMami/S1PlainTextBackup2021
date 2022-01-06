@@ -7040,3 +7040,55 @@ https://youtu.be/vl47eqtERME?t=5719
 
 佩佩和岬应该都是回家了，就剩打铁也是在东京。鲤鱼说约麻将三缺一是不是就是想着她、打铁和青山，然后加菜宝刚好凑到4个人。
 
+
+
+*****
+
+####  stygian  
+##### 3655#       发表于 2022-1-6 10:06
+
+星和虹签的合同就不一样，虹没什么约束特别重要场合该到要到，其他去不去都能协调。星那边前几年基本上就是专属艺人了管的也会多些。
+
+菜宝那事务所声优方面也是小事务所，怕不是经纪人都是和别人一起用的那种，管不到那么多
+
+*****
+
+####  秋月艾莉  
+##### 3656#       发表于 2022-1-6 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54168552&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-5 10:21</a>
+
+快进到唐诱宇宙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至搞到了经纪人那边去<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+りー「さゆも、なこも、なぎも、ペイも皆んな一番好き！」 
+
+りー「だから全部嘘違う！」 
+
+さゆ「……なにそれ、堂々と4股宣言？」 
+
+*****
+
+####  仟音一心  
+##### 3657#       发表于 2022-1-6 10:20
+
+下雪了
+
+837DD98E-80EE-401B-9126-1940359E4135.jpeg
+(182.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 10:20 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/102051f6q2o5245dzsrddj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 3658#       发表于 2022-1-6 10:23
+
+小事务所经纪人是对制作方的，这家他熟，那事务所的人去这家试音都是他带着，这样……虹团一开始签得就是普通手游配音
+

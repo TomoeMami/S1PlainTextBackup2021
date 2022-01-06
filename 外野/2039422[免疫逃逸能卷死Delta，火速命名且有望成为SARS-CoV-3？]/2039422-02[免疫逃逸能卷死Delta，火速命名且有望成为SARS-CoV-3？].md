@@ -17454,3 +17454,55 @@ D愤怒了，变成超级D
 
 —— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  Coronavirus  
+##### 2941#       发表于 2022-1-6 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54183005&amp;ptid=2039422" target="_blank">sk此方 发表于 2022-1-6 09:59</a>
+
+现在属于是没办法了吧 不打疫苗有能咋样呢搞封锁 就他们这两年吹下来搞封锁第二天就大街上一堆人 ...</blockquote>
+学校都没线上，怎么可能封锁<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天国直通车  
+##### 2942#       发表于 2022-1-6 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54183005&amp;ptid=2039422" target="_blank">sk此方 发表于 2022-1-6 09:59</a>
+现在属于是没办法了吧 不打疫苗有能咋样呢搞封锁 就他们这两年吹下来搞封锁第二天就大街上一堆人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白皮的封锁是变相杀人而已，没有街道办之类的机构，民众生存根本得不到保障
+
+*****
+
+####  smy20011  
+##### 2943#       发表于 2022-1-6 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54182937&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-6 09:53</a>
+
+法国目前死磕疫苗，连着几天国民议会吵架要把原来的健康通行证上升成疫苗通行证，然后卫生部长说5%的住院患 ...</blockquote>
+基本上不防感染但是防重症，打完三针的都处于躺平状态了
+
+*****
+
+####  sk此方  
+##### 2944#       发表于 2022-1-6 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54183027&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-6 10:01</a>
+学校都没线上，怎么可能封锁</blockquote>
+对啊 那可不就抱住疫苗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  Coronavirus  
+##### 2945#       发表于 2022-1-6 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54183040&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 10:01</a>
+
+基本上不防感染但是防重症，打完三针的都处于躺平状态了</blockquote>
+这个倒是，估计就是指望着节后和omicron双重叠加导致的感染高峰过去同时住院率压住就能苟了
+
