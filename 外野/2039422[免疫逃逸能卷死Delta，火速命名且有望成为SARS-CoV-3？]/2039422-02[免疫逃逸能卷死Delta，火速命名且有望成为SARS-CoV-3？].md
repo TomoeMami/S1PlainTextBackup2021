@@ -17406,3 +17406,51 @@ Ian Ricksecker为了写小科普翻出了这篇去年8月牛津的论文预印�
 昨天听nih 的新冠webinar. 没啥特别的新闻，跟O有关的也就是目前美国O基本胜利了，double time大约2天，目 ...</blockquote>
 我就是不提那两个政治不正确的国家，就是不提，就是不提<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 2937#       发表于 2022-1-6 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54179180&amp;ptid=2039422" target="_blank">Lozs 发表于 2022-1-5 22:06</a>
+D愤怒了，变成超级D
+就看O能不能变成黄金O了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">流浪D，黄金O子
+
+战力差距很明显嘛
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  smy20011  
+##### 2938#       发表于 2022-1-6 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181915&amp;ptid=2039422" target="_blank">03e7 发表于 2022-1-6 07:40</a>
+
+我就是不提那两个政治不正确的国家，就是不提，就是不提</blockquote>
+中国和朝鲜么？
+
+美国敢跟中国这么封锁，明天大概就有人上街了
+
+*****
+
+####  Coronavirus  
+##### 2939#       发表于 2022-1-6 09:53
+
+法国目前死磕疫苗，连着几天国民议会吵架要把原来的健康通行证上升成疫苗通行证，然后卫生部长说5%的住院患者持有的都是错的健康通行证而且没接种疫苗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">马克龙也在死磕打疫苗
+
+不过说实话，这么个搞法，到最后如果确认了疫苗对omicron的防护力微乎其微的话那岂不是要破大防
+
+*****
+
+####  sk此方  
+##### 2940#       发表于 2022-1-6 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54182937&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-6 09:53</a>
+法国目前死磕疫苗，连着几天国民议会吵架要把原来的健康通行证上升成疫苗通行证，然后卫生部长说5%的住院患 ...</blockquote>
+现在属于是没办法了吧 不打疫苗有能咋样呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">搞封锁 就他们这两年吹下来搞封锁第二天就大街上一堆人抗议吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

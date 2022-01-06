@@ -736,3 +736,14 @@ ame前一段好像也有提到6期想找忍忍
 お披露目リレー配信が2022年1月9日（日）6時より配信決定！
 [https://prtimes.jp/main/html/rd/p/000000600.000030268.html](https://prtimes.jp/main/html/rd/p/000000600.000030268.html)
 
+
+
+*****
+
+####  shimmy1996  
+##### 1573#       发表于 2022-1-6 09:47
+
+Irys 的会迟一些出0 0
+排除法一下左一是kiwawa<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+短发mumei<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

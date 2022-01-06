@@ -9727,3 +9727,15 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 艹，这竹帚牌厕纸怎么又来了</blockquote>
 国内的人菌哥哥才不会管<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86442#       发表于 2022-1-6 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181936&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-1-6 07:48</a>
+国内的人菌哥哥才不会管</blockquote>
+只是嘲讽前几天，有傻子觉得太公望新的语音5是菌鸽鸽改出来的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
