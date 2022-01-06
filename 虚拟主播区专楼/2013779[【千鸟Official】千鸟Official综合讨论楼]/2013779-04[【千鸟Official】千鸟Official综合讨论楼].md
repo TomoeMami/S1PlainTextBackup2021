@@ -4555,3 +4555,22 @@ syl 这哪偷的
 
 静：“哪有，不是说好了我的游戏时间都特别催眠嘛，还能让你们醒啊？你们赶紧睡好啦，不要来发弹幕了，不想看到你们好吧，赶紧睡，睡得死，最好啥弹幕都别发，让我自己一个人播得了，哼！”
 
+
+
+*****
+
+####  rgauss  
+##### 4972#       发表于 2022-1-6 14:04
+
+总感觉今天猪脑过载了
+
+*****
+
+####  rgauss  
+##### 4973#       发表于 2022-1-6 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184789&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-6 11:58</a>
+这两天补了一下其他团员的录播，co宝，白白，王木木的杂谈力都好强啊，完全不输给静静，感觉五个人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实都可以 但王木木和co不能唱歌。
+然后就是因为每月80h,所以有大多数时间会摆烂，尤其是白白
+
