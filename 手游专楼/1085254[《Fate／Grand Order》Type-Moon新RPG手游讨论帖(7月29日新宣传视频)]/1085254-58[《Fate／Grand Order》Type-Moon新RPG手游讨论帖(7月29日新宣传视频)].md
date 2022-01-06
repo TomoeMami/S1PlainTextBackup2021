@@ -9799,3 +9799,15 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 蛾子一炮打不死的话补刀都补不了，当然是越高宝越好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 86449#       发表于 2022-1-6 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54189710&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2022-1-6 18:08</a>
+
+蛾子一炮打不死的话补刀都补不了，当然是越高宝越好了</blockquote>
+暗狐有3T的贯通，可以补<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -7319,3 +7319,37 @@ https://youtu.be/vl47eqtERME?t=5719
 
 我觉得不应该把完全不确定的信息当成确定前提来展开_(:з」∠)_ 
 
+
+
+*****
+
+####  lj205  
+##### 3679#       发表于 2022-1-6 20:24
+
+还没买周末配信票的建议试试PIA，感觉比e+稳定
+
+*****
+
+####  starring  
+##### 3680#       发表于 2022-1-6 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54191453&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-6 20:24</a>
+
+还没买周末配信票的建议试试PIA，感觉比e+稳定</blockquote>
+PIA是哪个？正好还没买票
+
+*****
+
+####  优妮可  
+##### 3681#       发表于 2022-1-6 20:36
+
+<img src="https://img.saraba1st.com/forum/202201/06/203601wu6ovfn8va2ao2o6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220106_203457.jpg</strong> (70.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 20:36 上传
+
+今天的水渚鱼
+
