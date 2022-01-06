@@ -767,3 +767,12 @@ Gura终于要到呆毛了
 
 看到个不错的ame二创
 
+
+
+*****
+
+####  shimmy1996  
+##### 1576#       发表于 2022-1-7 03:35
+
+Ame: 生日礼物想要马赛冠军（半开玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

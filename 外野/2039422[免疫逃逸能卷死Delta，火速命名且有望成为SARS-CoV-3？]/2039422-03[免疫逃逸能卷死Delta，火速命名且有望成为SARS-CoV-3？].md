@@ -132,3 +132,120 @@ OK，好的，你是对的。不争 ...</blockquote>
 
 坏消息：感染依然每天70万
 
+
+
+*****
+
+####  ak123  
+##### 3011#       发表于 2022-1-7 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194088&amp;ptid=2039422" target="_blank">烤烤鱼σ 发表于 2022-1-7 01:10</a>
+我看观网的文章，马丁雅克说他儿子long covid，感染一年了，还每天卧床16小时
+
+ ...</blockquote>
+这不是要老年丧子的节奏么<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烦死了  
+##### 3012#       发表于 2022-1-7 03:10
+
+BNOnewsroom:
+Number of Americans hospitalized with COVID-19 hits 120,000, highest since January 2021
+
+*****
+
+####  wszweill  
+##### 3013#       发表于 2022-1-7 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54193775&amp;ptid=2039422" target="_blank">点点杠 发表于 2022-1-6 11:27</a>
+
+长个脑袋想，也知道不可能死定了，我只想知道针对O的疫苗什么时候能出来</blockquote>
+看你的标准是啥，维持针对D那种不太死人就行的标准，那直接上第三针就大差不差，大力出奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wszweill  
+##### 3014#       发表于 2022-1-7 03:30
+
+按这个趋势我觉得不久后就能看到美帝真正的检测极限了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 3015#       发表于 2022-1-7 03:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194481&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-7 03:23</a>
+
+看你的标准是啥，维持针对D那种不太死人就行的标准，那直接上第三针就大差不差，大力出奇迹 老实 ...</blockquote>
+你见过美国什么时候一天能接种70万人的
+
+*****
+
+####  烦死了  
+##### 3016#       发表于 2022-1-7 04:00
+
+【#苏格兰报纸提出建立“新冠拘留营”# 】周二，苏格兰最大的报纸《每日纪事报》（Daily Record ）在脸书上问其粉丝是否应该效仿澳大利亚的做法，指出“澳大利亚人如果检测结果呈阳性或疑似呈阳性，就会被拘留在新冠拘留营中14天”。该报没有具体说明如何定义“疑似”，以及这是否意味着将那些过度流鼻涕的人或拒绝接种新冠疫苗的公民关起来。
+上个月，该报援引最近的民意调查报告说，35%的英国居民认为未接种疫苗的人应该被强制关起来，“直到疫情结束”。它表示，该调查显示公众强烈支持对未接种疫苗的苏格兰人采取 “更严厉的措施”。
+这一想法在社交媒体上遭到了抨击。反极端主义活动家表示这实际上是在提议“反人类罪”，而其他人则指出，直到最近，“新冠拘留营”的概念在企业媒体报道中还被描述为一种疯狂的阴谋论。
+
+*****
+
+####  wszweill  
+##### 3017#       发表于 2022-1-7 04:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194505&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 14:39</a>
+
+你见过美国什么时候一天能接种70万人的</blockquote>
+。。就上周呀，上周接种750万，每天平均一百万<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 3018#       发表于 2022-1-7 04:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194534&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-7 04:01</a>
+
+。。就上周呀，上周接种750万，每天平均一百万不过肯定比不上O的指数增长的，所以说O疫苗在欧美反 ...</blockquote>
+在等一周，O变种就一周一千万了
+
+*****
+
+####  wszweill  
+##### 3019#       发表于 2022-1-7 04:28
+
+ 本帖最后由 wszweill 于 2022-1-6 16:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194556&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 15:24</a>
+
+在等一周，O变种就一周一千万了</blockquote>
+我在等一天一千万，个人期待是小年-新年这个区间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 就算0.3%的死亡率，都是日死亡3W，场景太美（
+
+*****
+
+####  smy20011  
+##### 3020#       发表于 2022-1-7 04:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194560&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-7 04:28</a>
+
+我在等一天一千万，个人期待是小年-新年这个区间 就算0.3%的死亡率，都是日死亡30W，场景太美（ ...</blockquote>
+要不你再算一遍
+
+*****
+
+####  wrnk  
+##### 3021#       发表于 2022-1-7 04:40
+
+你美这个感染速度真能实现群体免疫了吧，跟印度一样
+
+看数据o变种威力不太大，都感染一波以后就真流感化了？
+
+*****
+
+####  wszweill  
+##### 3022#       发表于 2022-1-7 05:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194562&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 15:32</a>
+
+要不你再算一遍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 脑子糊涂了，手打的0.3想成3了，没关系3W也很美 （
+

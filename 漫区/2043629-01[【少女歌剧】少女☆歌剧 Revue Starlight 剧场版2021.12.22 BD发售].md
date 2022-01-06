@@ -6685,3 +6685,16 @@ BV17L411t7Dd
 光恋这组没看懂啊，立意难道是恋哥哥终于放下小时候的执念从重度姛毕业了? ...</blockquote>
 立意应该是打破约定之后，重新约定。
 
+
+
+*****
+
+####  liyropen  
+##### 514#       发表于 2022-1-7 03:39
+
+<img src="https://p.sda1.dev/4/14a1fb8610efc00f3c88e70ac069903f/IMG_CMP_233706290.png" referrerpolicy="no-referrer">
+不会上色就到这吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该再看一遍剧场版了
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2
+
