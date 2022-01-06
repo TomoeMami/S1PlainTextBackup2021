@@ -18058,3 +18058,14 @@ ICU病床破80%了，比想象的快。
 所有高危工作岗位和宿 ...</blockquote>
 明白你的意思了。你这是增强一线人员的战斗力
 
+
+
+*****
+
+####  烦死了  
+##### 2987#       发表于 2022-1-6 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54188169&amp;ptid=2039422" target="_blank">亚尔迪8424 发表于 2022-1-6 16:24</a>
+这个人鼓吹新冠流感化好长时间了</blockquote>
+我认识的美国医生都很忙，真的没见过有人像这位张叫兽一样高强度刷中文微博的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
