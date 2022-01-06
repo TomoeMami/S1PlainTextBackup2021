@@ -865,3 +865,12 @@ Prey，泰坦陨落2，地铁离去
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54171496&amp;ptid=2044935" target="_blank"> Stellar_Frost 发表于 2022-1-5 13:50</a> 靠，我也忘了特殊行动一线生机 超过十年没 </blockquote>
 没超，但是它也不是fps啊来自: iPhone客户端
 
+
+
+*****
+
+####  Dr.bright  
+##### 84#       发表于 2022-1-6 19:56
+
+战地3的氛围感真的很强，而且也没几个有类似风格战役的FPS游戏，可以说独一档了。
+
