@@ -11227,3 +11227,12 @@ YYGQ起来了
 我再也不会黑这个企划了…
 <img src="https://p.sda1.dev/4/75bc075fcba2579595186b88a009d6ae/IMG_CMP_72229907.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 7292#       发表于 2022-1-6 11:40
+
+草，这企划只能说方向和最开始大家预估的有那么亿点差别
+

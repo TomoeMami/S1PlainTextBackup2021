@@ -17541,3 +17541,121 @@ D愤怒了，变成超级D
 加上这几天 ...</blockquote>
 我发现岸田的水平还是可以的，我原以为他只能当安倍的傀儡
 
+
+
+*****
+
+####  eveshell  
+##### 2949#       发表于 2022-1-6 11:24
+
+lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这个观点直接影响到了多国学界和政要，还有就是今年的防疫安排。所以有国内学者跟风大家也不要感到惊讶。  最终年底结局无非两个可能，要么真的omicron之后再无变种，西方和中国都熬过这一劫。 要么就是西方这次要破大防了。西方恐怕也没有更多资源再去熬一个冬天了。
+
+*****
+
+####  eveshell  
+##### 2950#       发表于 2022-1-6 11:25
+
+很多评论说过去大流行很多三年群死够就停，所以很指望这个，估计后面检测宣传也要压。
+
+*****
+
+####  Coronavirus  
+##### 2951#       发表于 2022-1-6 11:29
+
+髪鸡确诊又又又又刷新记录，332252确诊 ，阳性检出率15.8%
+
+不过说是昨日接种第一针疫苗的人数是去年10月1日来最多的，有6万6，看来疫苗通行证的恐吓和确诊激增还是能推动一些人的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡普空  
+##### 2952#       发表于 2022-1-6 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54182937&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-6 09:53</a>
+
+法国目前死磕疫苗，连着几天国民议会吵架要把原来的健康通行证上升成疫苗通行证，然后卫生部长说5%的住院患 ...</blockquote>
+我觉得证实了也会咬死降低重症来说的，毕竟打疫苗总比不打来得好
+
+*****
+
+####  smy20011  
+##### 2953#       发表于 2022-1-6 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184248&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 11:24</a>
+
+lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这 ...</blockquote>
+还有一种可能就是omicron的后续变种变成季节性新冠= =
+
+*****
+
+####  Kanoya  
+##### 2954#       发表于 2022-1-6 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184248&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 11:24</a>
+lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这 ...</blockquote>
+B.1.640了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66666  
+##### 2955#       发表于 2022-1-6 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184248&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 11:24</a>
+
+lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这 ...</blockquote>
+那张什么的不也说是最后一个寒冬吗，好像没人想过如果不是最后一个寒冬该怎么办
+
+想想今年美帝大收水，再外加新变种病毒攻击全球供应链，那画面真是让人无法想象
+
+估计很多国家真要饿死一大堆人了
+
+*****
+
+####  Coronavirus  
+##### 2956#       发表于 2022-1-6 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184385&amp;ptid=2039422" target="_blank">卡普空 发表于 2022-1-6 11:32</a>
+
+我觉得证实了也会咬死降低重症来说的，毕竟打疫苗总比不打来得好</blockquote>
+看最近几天确诊暴涨情况下的新增住院人数和新增ICU人数来看，要么就是疫苗有用，要么就是omicron不太行，也有可能两者兼有
+
+*****
+
+####  smy20011  
+##### 2957#       发表于 2022-1-6 11:33
+
+加州这个“健康码”到底靠不靠谱啊，去迪士尼逛了两天，居然没有任何接触新冠患者的警告
+
+*****
+
+####  smy20011  
+##### 2958#       发表于 2022-1-6 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184400&amp;ptid=2039422" target="_blank">Kanoya 发表于 2022-1-6 11:33</a>
+
+B.1.640了解一下</blockquote>
+这玩意连delta都打不过
+
+*****
+
+####  Kanoya  
+##### 2959#       发表于 2022-1-6 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184435&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 11:35</a>
+这玩意连delta都打不过</blockquote>
+传播力比Delta强，比Omicron弱
+
+但是只要不lockdown，传播力方向的选择压就不大——而B.1.640的症状可比Omicron大多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 2960#       发表于 2022-1-6 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184480&amp;ptid=2039422" target="_blank">Kanoya 发表于 2022-1-6 11:37</a>
+
+传播力比Delta强，比Omicron弱
+
+但是只要不lockdown，传播力方向的选择压就不大——而B.1.640的症状可比O ...</blockquote>
+同是竞争ace受体的，为什么选择压不大啊？
+

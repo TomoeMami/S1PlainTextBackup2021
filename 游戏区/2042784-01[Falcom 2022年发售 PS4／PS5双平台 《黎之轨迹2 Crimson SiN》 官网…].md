@@ -2666,3 +2666,15 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 黎与红的邂逅，类似闪轨2《灰》和《蒼》的冲突</blockquote>
 再来个红之圣女啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  izayoi39  
+##### 229#       发表于 2022-1-6 11:37
+
+从宣传这句话我猜测至宝应该是被拆了做成了封印五大魔王了的黎装鬼，要取回至宝就需要把五大魔王解封，所以这个套路是不是感觉很熟。
+按照法老控的编剧习惯，轨迹系列做的至宝是第一部就有线索的，比如空轨的福音，零轨的琪雅，闪轨1的骑神，所以我认为跟至宝相关最有可能的就是这层封印魔王的黎装鬼
+
+—— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
