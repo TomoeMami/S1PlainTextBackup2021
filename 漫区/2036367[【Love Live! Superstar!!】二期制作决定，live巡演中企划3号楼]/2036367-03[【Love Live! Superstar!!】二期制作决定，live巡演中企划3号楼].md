@@ -7260,3 +7260,27 @@ https://youtu.be/vl47eqtERME?t=5719
 
 所以说打铁没回老家到底哪里的情报啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎么没看到
 
+
+
+*****
+
+####  仟音一心  
+##### 3674#       发表于 2022-1-6 17:28
+
+5ch太生草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+鲤鱼千万别自搜到啊！！
+
+ “作为对鲤酱脚踏四条船的惩罚 就让她看着我们4个做吧”
+
+*****
+
+####  starring  
+##### 3675#       发表于 2022-1-6 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54188630&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-6 16:55</a>
+所以说打铁没回老家到底哪里的情报啊我怎么没看到</blockquote>
+第十期的打铁匠不简单，1:30左右
+
+【【全熟】 小伊达不是徒有其表！！！第十回-哔哩哔哩】 [https://b23.tv/n8EW3JH](https://b23.tv/n8EW3JH)
+

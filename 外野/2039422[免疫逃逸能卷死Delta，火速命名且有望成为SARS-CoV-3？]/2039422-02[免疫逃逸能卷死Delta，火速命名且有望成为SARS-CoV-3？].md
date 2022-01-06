@@ -17948,3 +17948,20 @@ Some 40% of hospitals are expecting to face critical staff shortages and some ar
 第一步：鼓吹病毒低致死率，表示单看病例新增数字意义不大</blockquote>
 虽然都叫Omicron，但是现在正在流行的是BA.1，BA.2还没发力呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lyflyflxf  
+##### 2982#       发表于 2022-1-6 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54186091&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-6 13:46</a>
+大家看的视角不一样。
+
+我说的耗材是核酸管之类的东西，有药后至少扑灭入境案例应该不会太难。
+
+现 ...</blockquote>
+问题是，中国扑灭入境案例从来都靠的不是医学治疗，而是流调、隔离、居家观察等物理和社会方式啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+除非新药能消除后遗症并基本杜绝传染，否则自查之类的监控措施不可能取消，因为那将导致传染扩大
+
