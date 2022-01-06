@@ -4515,3 +4515,16 @@ syl 这哪偷的
 
 这两天补了一下其他团员的录播，co宝，白白，王木木的杂谈力都好强啊，完全不输给静静，感觉五个人的实力都好强，完了，快成箱推了
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4969#       发表于 2022-1-6 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184789&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-6 11:58</a>
+这两天补了一下其他团员的录播，co宝，白白，王木木的杂谈力都好强啊，完全不输给静静，感觉五个人 ...</blockquote>
+其实都很能聊
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

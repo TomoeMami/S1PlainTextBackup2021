@@ -17742,3 +17742,39 @@ Awesome News: The Feds took posses ...</blockquote>
 Awesome News: The Feds took posses ...</blockquote>
 抢的谁？下面的州还是欧洲？
 
+
+
+*****
+
+####  pushare  
+##### 2968#       发表于 2022-1-6 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184792&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 11:58</a>
+抢的谁？下面的州还是欧洲？</blockquote>
+不分区域，到处征收
+下面的评论说
+Yup. The orders I had from our regular supplier are “no longer in the warehouse” and they have no idea when they will get more. 
+
+*****
+
+####  pushare  
+##### 2969#       发表于 2022-1-6 12:07
+
+新段子有了：
+
+"It's our stockpile."
+  ̶J̶a̶r̶e̶d̶ ̶K̶u̶s̶h̶n̶e̶r̶
+Joe Biden
+
+*****
+
+####  剑鹰  
+##### 2970#       发表于 2022-1-6 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184405&amp;ptid=2039422" target="_blank">66666 发表于 2022-1-6 11:33</a>
+
+那张什么的不也说是最后一个寒冬吗，好像没人想过如果不是最后一个寒冬该怎么办
+
+想想今年美帝大收水，再 ...</blockquote>
+张文宏一开始不是很相信欧美的医疗嘛-_-
+
