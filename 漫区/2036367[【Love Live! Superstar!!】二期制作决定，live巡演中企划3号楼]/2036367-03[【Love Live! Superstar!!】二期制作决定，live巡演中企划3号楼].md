@@ -7600,3 +7600,37 @@ F44619CA-8A1E-4FCF-BD52-1B18C86D5CFD.jpeg
 
 这么看鲤鱼一大早邀菜宝去搓麻应该就是她们三缺一。
 
+
+
+*****
+
+####  蜜梨柑  
+##### 3705#       发表于 2022-1-6 23:47
+
+星团什么时候有麻将企划<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3706#       发表于 2022-1-6 23:56
+
+年上组赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二月十日  
+##### 3707#       发表于 2022-1-7 00:02
+
+补上文字~
+<img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gy4e4bd63fj21400r0gv7.jpg" referrerpolicy="no-referrer">
+
+（新年）冲去nagi家没想到鲤酱居然也在 \死宅突然兴奋.jpg/
+
+慌张之下把带给nagi的烤红薯和红薯干都送给了鲤酱
+
+现在好后悔啊（没带点高级货过去），等下次再见面时我一定给鲤酱献上点高级红薯点心（结果还是红薯啊）
+
+谢谢你，我亲爱的青梅
+
+谢谢你，鲤酱
+

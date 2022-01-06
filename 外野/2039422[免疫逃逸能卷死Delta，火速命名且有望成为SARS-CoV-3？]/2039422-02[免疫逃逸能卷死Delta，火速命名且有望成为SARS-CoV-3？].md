@@ -18087,3 +18087,33 @@ ICU病床破80%了，比想象的快。
 
 美国版本的西安孕妇事件，送到医院没人处理
 
+
+
+*****
+
+####  烤烤鱼σ  
+##### 2990#       发表于 2022-1-6 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54185036&amp;ptid=2039422" target="_blank">剑鹰 发表于 2022-1-6 12:16</a>
+
+张文宏一开始不是很相信欧美的医疗嘛-_-</blockquote>
+最开始的时候有几个人不信的呢？
+
+*****
+
+####  eveshell  
+##### 2991#       发表于 2022-1-6 23:56
+
+<blockquote>烤烤鱼σ 发表于 2022-1-6 23:42
+最开始的时候有几个人不信的呢？</blockquote>
+可他目前每句预言都是美国传声筒
+
+*****
+
+####  smy20011  
+##### 2992#       发表于 2022-1-6 23:58
+
+[https://twitter.com/Craig_A_Spencer/status/1478217081959108614](https://twitter.com/Craig_A_Spencer/status/1478217081959108614)
+
+可以看一下NY急诊室的医生的感受
+

@@ -2712,3 +2712,27 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 现在猜这个红鬼是谁就和闪4前猜金骑是谁开的一样
 
+
+
+*****
+
+####  卢迪克  
+##### 234#       发表于 2022-1-6 23:41
+
+看少年少女说不定不会入队.是陪着红黎的.
+
+<img src="https://img.saraba1st.com/forum/202201/06/234047fhmzelg5b8x87mr7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220106_210808.jpg</strong> (72.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 23:40 上传
+
+*****
+
+####  clover293  
+##### 235#       发表于 2022-1-6 23:45
+
+话说不知道云豹能不能给力点啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
