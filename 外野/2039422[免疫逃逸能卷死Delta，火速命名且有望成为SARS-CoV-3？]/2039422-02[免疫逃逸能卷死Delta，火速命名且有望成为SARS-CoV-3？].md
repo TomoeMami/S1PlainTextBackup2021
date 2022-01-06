@@ -17866,3 +17866,15 @@ Joe Biden
 
 这种轮流吃亏的状态肯定不可持续。
 
+
+
+*****
+
+####  kira1988  
+##### 2977#       发表于 2022-1-6 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184248&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 11:24</a>
+
+lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不就是don't look up吗，只不过病毒不是陨石，说不定他们赌赢了？
+

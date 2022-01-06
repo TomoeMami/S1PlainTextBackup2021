@@ -9770,3 +9770,12 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 这俩的提升更简单粗暴一点
 
+
+
+*****
+
+####  zakki  
+##### 86446#       发表于 2022-1-6 15:02
+
+这几个拐的强度直观排名大概就是：高宝奥伯龙&gt;C呆=低宝奥伯龙&gt;光兔&gt;CBA，其实光兔暗狐揉成一个就是这游戏拐和打手二合一的最终形态了，可惜揉不得<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
