@@ -9715,3 +9715,15 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 第六章后篇电影上映的时候枪呆没趁机强化，感觉近期强化的几率比较低了。 ...</blockquote>
 加的特攻不是因为剧场版而来的强化本吗
 
+
+
+*****
+
+####  yangun22  
+##### 86441#       发表于 2022-1-6 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54181459&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-6 02:10</a>
+
+艹，这竹帚牌厕纸怎么又来了</blockquote>
+国内的人菌哥哥才不会管<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
