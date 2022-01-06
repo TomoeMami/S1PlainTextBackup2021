@@ -7197,3 +7197,46 @@ https://youtu.be/vl47eqtERME?t=5719
 
 可是发哪啊（
 
+
+
+*****
+
+####  lj205  
+##### 3668#       发表于 2022-1-6 16:01
+
+我怎么听下来菜宝只是说🐟刚睡醒啊。
+
+我个人觉得应该是这样：LIVE结束后以为菜宝也在东京，只是问了假期几天菜宝有没空一起打麻将，但是那天其实已经提前约好去NAGI家，于是回家睡到中午接到菜宝电话，可能家里真的乱就说算了，接着出门拿蛋糕，然后去NAGI家吃午饭和晚饭，顺便在旁边听NAGI说得奖感言。
+
+为啥要像侦探那样费劲推理小偶像当天做啥，比起这个，我更好奇鲤鱼知道打铁元旦没回家难道不约出来吗？肯定有吧，只是不告诉我们
+
+*****
+
+####  lj205  
+##### 3669#       发表于 2022-1-6 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54187837&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-1-6 16:00</a>
+
+我打算翻一翻……
+
+可是发哪啊（
+
+讲道理这个东西比唐诱还是不如的</blockquote>
+发唐诱楼如何<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3670#       发表于 2022-1-6 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且打铁没回家一个人过年，鱼你咋不约啊鱼
+
+*****
+
+####  Karin11974  
+##### 3671#       发表于 2022-1-6 16:24
+
+说不定有自己私下的圈子，没必要天天台上台下都腻歪一起
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -958,3 +958,16 @@ https://www.hacg.cat/wp/85647.html
 
 可以说是图穷匕见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  量子大蛇  
+##### 99#       发表于 2022-1-6 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54185451&amp;ptid=2045489" target="_blank">古代人皮克 发表于 2022-1-6 12:51</a>
+虽然不是僵尸，但是肥鲨鱼的战锤鼠疫在吸取l4d经验的时候明显处理好得多，他们也不是什么知名的制 ...</blockquote>
+确实，战锤鼠疫我觉得已经足够有特色，能够和打丧尸区分开来了，无论是题材还是游戏机制都有很明显的区别
+
+—— 来自 OPPO PEGM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

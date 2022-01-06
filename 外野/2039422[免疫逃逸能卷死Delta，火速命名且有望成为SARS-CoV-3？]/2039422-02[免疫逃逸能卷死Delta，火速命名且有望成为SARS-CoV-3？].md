@@ -17908,3 +17908,18 @@ lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难
 由手机上传
 2022-1-6 15:42 上传
 
+
+
+*****
+
+####  pushare  
+##### 2979#       发表于 2022-1-6 16:06
+
+为啥要惊讶呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+LOS ANGELES (AP) — California is struggling to staff hospitals and classrooms as an astonishing spike in coronavirus infections sweeps through the state.
+
+The fast-spreading omicron variant of COVID-19 is sidelining exposed or infected health care workers even as hospital beds fill with patients and “some facilities are going to be strapped,” Health and Human Services Secretary Dr. Mark Ghaly said Wednesday.
+
+Some 40% of hospitals are expecting to face critical staff shortages and some are reporting as much as one quarter of their staff out for virus-related reasons, said Kiyomi Burchill of the California Hospital Association.
+
