@@ -4497,3 +4497,21 @@ syl 这哪偷的
 
 这种狗屎节奏能烂炒这么多天，什么时候排粉丝魔怔力斗虫
 
+
+
+*****
+
+####  rgauss  
+##### 4967#       发表于 2022-1-6 11:54
+
+只有鸟综是纯良唯一的家<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ba娜娜  
+##### 4968#       发表于 2022-1-6 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+这两天补了一下其他团员的录播，co宝，白白，王木木的杂谈力都好强啊，完全不输给静静，感觉五个人的实力都好强，完了，快成箱推了
+

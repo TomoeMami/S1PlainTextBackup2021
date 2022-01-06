@@ -17659,3 +17659,86 @@ B.1.640了解一下</blockquote>
 但是只要不lockdown，传播力方向的选择压就不大——而B.1.640的症状可比O ...</blockquote>
 同是竞争ace受体的，为什么选择压不大啊？
 
+
+
+*****
+
+####  KOGmk2  
+##### 2961#       发表于 2022-1-6 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184248&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-6 11:24</a>
+
+lebonhomme:美国学界现在，几乎清一色的认为这是最后一个艰难的冬天，而且omicron是最后一个变种[求饶]  这 ...</blockquote>
+Omega表示可能不用我上阵,白骑士就要赢麻了~~~上一波全球性大流行的西班牙大流感,最大一波攻势就是最后一个冬天的ADE风暴,之前得过的人个个过death check......这次如果也复制这个方案的话,今年年底怕是得录得死亡人口几千万
+
+*****
+
+####  smy20011  
+##### 2962#       发表于 2022-1-6 11:46
+
+<img src="https://img.saraba1st.com/forum/202201/06/114541iu6un8un595hn7zv.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-05 19.45.34.png</strong> (41.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 11:45 上传
+
+这是640变种面对omicron的战斗力，说是一败涂地也不为过
+
+*****
+
+####  jxwats1  
+##### 2963#       发表于 2022-1-6 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184414&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-6 11:33</a>
+
+加州这个“健康码”到底靠不靠谱啊，去迪士尼逛了两天，居然没有任何接触新冠患者的警告 ...</blockquote>
+我之前也觉得没用，直到上周我去家附近测完后CA Notify告诉我有暴露风险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这取决于得了的人能不能自觉上报。我装了一年半了也就收到过一次
+
+*****
+
+####  wszweill  
+##### 2964#       发表于 2022-1-6 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184412&amp;ptid=2039422" target="_blank">Coronavirus 发表于 2022-1-5 22:33</a>
+
+看最近几天确诊暴涨情况下的新增住院人数和新增ICU人数来看，要么就是疫苗有用，要么就是omicron不太行， ...</blockquote>
+疫苗（3针）和O杀伤力比D低都很有可能，但是O传的太快了，1个月就把D卷没了，就算综合只有D的10%，只要感染人数上去，数量终究能平衡质量的，只要检测跟得上，可能春节美帝日感能破千万（我怀疑再2周小年左右可能就能破）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pushare  
+##### 2965#       发表于 2022-1-6 11:54
+
+喷了，联邦又去抢了付过钱的测试盒。之前抢ppe的事儿又来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Awesome News: The Feds took possession of our pre-paid antigen orders. It's like April 2020 all over again.
+
+*****
+
+####  smy20011  
+##### 2966#       发表于 2022-1-6 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54184734&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-6 11:54</a>
+
+喷了，联邦又去抢了付过钱的测试盒。之前抢ppe的事儿又来一遍
+
+Awesome News: The Feds took posses ...</blockquote>
+我司发了60刀一个的新冠测试盒，号称是在家里也可以做pcr扩增的。
+
+实在买不到抗体测试盒，可以去买这个
+
+*****
+
+####  eveshell  
+##### 2967#       发表于 2022-1-6 11:58
+
+<blockquote>pushare 发表于 2022-1-6 11:54
+喷了，联邦又去抢了付过钱的测试盒。之前抢ppe的事儿又来一遍
+
+Awesome News: The Feds took posses ...</blockquote>
+抢的谁？下面的州还是欧洲？
+

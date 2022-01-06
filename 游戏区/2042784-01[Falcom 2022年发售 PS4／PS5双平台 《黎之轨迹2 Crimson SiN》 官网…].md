@@ -2678,3 +2678,28 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 —— 来自 Xiaomi 21091116UC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  415452356  
+##### 230#       发表于 2022-1-6 11:41
+
+  如果真的是五大假面骑士混战，我开始闪轨ptsd了
+
+*****
+
+####  悠悠你心  
+##### 231#       发表于 2022-1-6 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">如果还是这种去abc地解除封印打甲乙丙丁，我觉得没有新颖的理由我会接受不了。。。。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  宛若青空  
+##### 232#       发表于 2022-1-6 11:49
+
+梵出生也不过二十几年，在那之前时之魔王难道在别人身上封印着？感觉这个至宝和魔装鬼的关系推测不太靠谱。
+
