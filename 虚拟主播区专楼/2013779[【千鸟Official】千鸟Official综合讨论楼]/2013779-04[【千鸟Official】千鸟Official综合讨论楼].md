@@ -4622,3 +4622,19 @@ syl 这哪偷的
 然后就是因为每月80h,所以有大多数时间会摆烂，尤其是白白 ...</blockquote>
 运营的要求吗，80小时其实也还好，不过我看大部分时间确实都是在看电视剧摆烂，她们好像都不爱玩游戏，除了木木<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4979#       发表于 2022-1-6 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54188500&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-6 16:46</a>
+
+运营的要求吗，80小时其实也还好，不过我看大部分时间确实都是在看电视剧摆烂，她们好像都不爱玩游戏，除 ...</blockquote>
+签约了
+
+b站要求，加上团号游戏回是之前反响太烂，都停掉了
+
+直到文静玩影子工厂发觉玩这类游戏+锐评好像还不错才继续了
+
