@@ -17996,3 +17996,33 @@ Some 40% of hospitals are expecting to face critical staff shortages and some ar
 
 所以需要有新办法缓解一下基层的压力。
 
+
+
+*****
+
+####  洞庭湖  
+##### 2984#       发表于 2022-1-6 19:25
+
+ICU病床破80%了，比想象的快。
+
+记得20年纽约州是90%ICU占用就击穿医疗了，因为疫情期间医院没法做到100%负荷运作，医生和护士一样会生病和请假休息，不知道在这次表现会如何。
+[https://intermountainhealthcare. ... -to-be-at-capacity/](https://intermountainhealthcare.org/blogs/topics/covid-19/2020/11/covid-19-what-it-means-for-a-hospital-icu-to-be-at-capacity/)
+
+2022-01-05.JPG
+(119.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/192103u0ugg1j1x52510xx.jpg" referrerpolicy="no-referrer">
+
+2022-01-05.JPG
+(119.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-6 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202201/06/192108fko8qximiigd7w8q.jpg" referrerpolicy="no-referrer">
+
