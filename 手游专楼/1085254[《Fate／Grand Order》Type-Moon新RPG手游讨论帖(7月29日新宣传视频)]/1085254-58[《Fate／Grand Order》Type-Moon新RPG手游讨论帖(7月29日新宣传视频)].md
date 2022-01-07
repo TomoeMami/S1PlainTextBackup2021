@@ -9949,3 +9949,31 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 至少小钟和妖精粉喂一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓啦，金素材我仓库里都是几百几百的
 
+
+
+*****
+
+####  UNISONIA  
+##### 86461#       发表于 2022-1-7 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54198568&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-1-7 13:30</a>
+
+无所谓啦，金素材我仓库里都是几百几百的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我心脏现在是2000+，信了当时心脏保值的邪，从最初的SW一期心脏本开始每个都刷爆了，后期Servant根本就不吃这个
+
+金材料好像就这个刷的特别溢出。上面说的红鬼灯我是照着金蛋和煌星准备的量，但是后面发现吃的角色很少，送的也多，根本不需要那么多
+
+*****
+
+####  khxooo  
+##### 86462#       发表于 2022-1-7 14:42
+
+给我慧，给我灰<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+*****
+
+####  霧谷藤乃  
+##### 86463#       发表于 2022-1-7 15:34
+
+萌新还挺缺材料的，技能点满的就没几个，而且连再临棋子都缺
+
