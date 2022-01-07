@@ -694,3 +694,15 @@ omicron包含ba.1和ba.2两个兄弟株，如果用星座命名的话双子座�
 
 —— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  wszweill  
+##### 3053#       发表于 2022-1-7 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54196812&amp;ptid=2039422" target="_blank">ak123 发表于 2022-1-6 22:14</a>
+
+奶过头了，一天10万就已经很恐怖了</blockquote>
+一天10W怕不是春节就能看到了，前提是美帝给测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得都不用奶。美帝目前就是指望O卷一遍大家群体免疫拉倒（
+

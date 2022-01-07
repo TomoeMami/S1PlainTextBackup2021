@@ -9935,3 +9935,17 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 至少现在小钟和妖精粉喂一圈常规三技能还能看看被动能不能点……可以日常清一下AP
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86460#       发表于 2022-1-7 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54198489&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-7 13:23</a>
+
+一年前感觉最吐血的事情就是刷了很多红鬼灯（线球倒是后面也用上了），现在严重溢出
+
+至少小钟和妖精粉喂一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无所谓啦，金素材我仓库里都是几百几百的
+

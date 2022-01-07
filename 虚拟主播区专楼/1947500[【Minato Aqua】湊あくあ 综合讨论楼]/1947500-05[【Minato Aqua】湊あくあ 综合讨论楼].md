@@ -16838,3 +16838,51 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 
 要被淘汰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 7381#       发表于 2022-1-7 13:31
+
+拉满拉满
+
+*****
+
+####  zpy393  
+##### 7382#       发表于 2022-1-7 13:31
+
+已经被淘汰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7383#       发表于 2022-1-7 13:31
+
+嘴上说着苦呀西，心里计画通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 7384#       发表于 2022-1-7 13:34
+
+其实跑的还行，比我想的好，然而并没有什么卵用
+
+可能这就是命运吧，就像夸宝的事业一样
+
+*****
+
+####  zpy393  
+##### 7385#       发表于 2022-1-7 13:34
+
+ 本帖最后由 zpy393 于 2022-1-7 13:36 编辑 
+
+我觉得她嘴上说着苦呀西心里可能真有一点苦呀西，毕竟最后差一点，当然也就这一点可以苦呀西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 7386#       发表于 2022-1-7 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这比赛都第三年了吧？老本早就吃完了
+
