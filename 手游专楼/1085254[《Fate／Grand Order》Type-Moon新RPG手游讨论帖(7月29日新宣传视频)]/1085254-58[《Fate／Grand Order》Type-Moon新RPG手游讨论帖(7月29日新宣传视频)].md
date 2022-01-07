@@ -9852,3 +9852,21 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 话说其实杀狐也是有群充的 不过是在宝具上 加上暗狐技能2的oc+2就是20群充 前两天刷龙牙就这么用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86454#       发表于 2022-1-7 10:15
+
+ 本帖最后由 exiaexa 于 2022-1-7 10:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54195608&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-1-7 09:38</a>
+
+感觉打拐一体的倾向愈发的明显了 越来越多的群充群buff光炮 以这为方向确实还有上升空间 毕竟纯拐的辅助宝 ...</blockquote>
+现在的问题就是暗兔子二面伤害感人
+
+要是特攻能拉高一点，第二面只要是地属性红卡就能乱杀
+
+两个狐狸点三下不换人就能提供群50+单50合计200np，猛飞了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

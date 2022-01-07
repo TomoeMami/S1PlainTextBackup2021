@@ -4790,3 +4790,24 @@ b站要求，加上团号游戏回是之前反响太烂，都停掉了
 
 眼一闭各种嘶吼脸
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 4995#       发表于 2022-1-7 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54195888&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2022-1-7 10:00</a>
+
+台湾苦情剧，各种咆哮体
+
+眼一闭各种嘶吼脸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以可以
+
+*****
+
+####  ba娜娜  
+##### 4996#       发表于 2022-1-7 10:13
+
+草，俺们闽南人小时候只能看弯弯的电视频道，看了好多哑巴新娘，青青河边草之类的台湾苦情剧，给我童年留下了很大阴影<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -497,3 +497,40 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 
 [http://k.sina.com.cn/article_601 ... lay=0&amp;retcode=0](http://k.sina.com.cn/article_6012500664_1665f7ab8001023sug.html?sudaref=www.baidu.com&amp;display=0&amp;retcode=0)
 
+
+
+*****
+
+####  jy000129  
+##### 3038#       发表于 2022-1-7 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54195716&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-7 09:46</a>
+养,都可以养</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才欧米克戎，别开场快进到欧米茄好吗
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  阿纳金  
+##### 3039#       发表于 2022-1-7 10:11
+
+拍总发了之前英国那个超级人道主义的人体实验的实验结果：<blockquote>总而言之，
+这次试验得到了以下主要结论：
+感染者从暴露第二天开始排毒；
+
+排毒时间早于PCR检测可以检出的时间；
+
+排毒一直持续14天甚至更久；
+
+虽然咽喉排毒更早，但主要的对外排毒渠道是鼻子；
+
+空气中、家具上和手上都能检出活病毒；
+
+感染者之间排毒量差异巨大（超级传播者醒目）；
+
+排毒和症状没有相关性（无症状传播醒目）；
+
+决定排毒量多少的主要因素可能是生理结构……</blockquote>
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
