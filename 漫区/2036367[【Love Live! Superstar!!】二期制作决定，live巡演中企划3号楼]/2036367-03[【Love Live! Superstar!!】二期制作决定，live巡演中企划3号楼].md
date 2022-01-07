@@ -7817,3 +7817,22 @@ eplus和pia的播放测试都挺流畅，最后还是在pia买了票希望到时
 这个あたい真是鲤鱼自称吗？这是个什么来头？还是关西话里的自称？靠，好可爱 ...</blockquote>
 菜宝直播说了对话全是菜宝中译日的
 
+
+
+*****
+
+####  Karin11974  
+##### 3726#       发表于 2022-1-7 13:05
+
+<img src="https://img.saraba1st.com/forum/202201/07/130406jzhebf2ffdrk227f.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4439.PNG</strong> (314.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 13:04 上传
+
+你可以理解为菜宝想要还原鲤鱼用很嗲的语气说话的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

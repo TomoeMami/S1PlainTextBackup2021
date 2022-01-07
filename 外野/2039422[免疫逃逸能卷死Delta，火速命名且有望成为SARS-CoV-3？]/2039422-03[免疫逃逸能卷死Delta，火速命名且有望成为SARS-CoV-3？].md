@@ -646,3 +646,51 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 然后年纪大到一定程度就死掉？</blockquote>
 就新冠现在摧残人的样子，很多年轻人得过几次可能身体机能就和老年人差不多了
 
+
+
+*****
+
+####  最好不说  
+##### 3049#       发表于 2022-1-7 12:43
+
+<blockquote>wrnk 发表于 2022-1-7 04:40
+你美这个感染速度真能实现群体免疫了吧，跟印度一样
+
+看数据o变种威力不太大，都感染一波以后就真流感化了？ ...</blockquote>
+已经是第n次群体免疫了，原始株，alpha，delta，很多国家在omicron爆发前就几乎全民感染过一遍，再加疫苗接种按理说超级免疫者满地都是，照样没挡住omicron席卷全球，就像阿三delta那波献祭了几百万也不影响这一波再创新高，然后下一个血清分型出来以后又能刷一波，从一个胜利走向另一个胜利
+
+*****
+
+####  xzhlj0325  
+##### 3050#       发表于 2022-1-7 12:49
+
+<img src="https://img.saraba1st.com/forum/202201/07/124923njbyq0ztaekr5jby.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1827.JPEG</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 12:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿纳金  
+##### 3051#       发表于 2022-1-7 12:51
+
+omicron包含ba.1和ba.2两个兄弟株，如果用星座命名的话双子座比较合适（ba.3：？）
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  sk此方  
+##### 3052#       发表于 2022-1-7 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54198047&amp;ptid=2039422" target="_blank">xzhlj0325 发表于 2022-1-7 12:49</a>
+—— 来自 S1Fun</blockquote>
+新病毒刚来还不会读空气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
