@@ -16931,3 +16931,14 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 <blockquote>ホロライブ所属アイドルゲーマーメイド</blockquote>
 请推特帐号管理者把gamer和maid去掉，加个onion，谢谢
 
+
+
+*****
+
+####  Scardy  
+##### 7393#       发表于 2022-1-7 14:11
+
+夸终究不是六边形，得舍弃gamer
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
