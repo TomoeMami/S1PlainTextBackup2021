@@ -2837,3 +2837,15 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 2022-1-7 17:50 上传
 
+
+
+*****
+
+####  抽烟的猴  
+##### 242#       发表于 2022-1-7 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54185080&amp;ptid=2042784" target="_blank">冰寒之月 发表于 2022-1-6 12:19</a>
+
+现在猜这个红鬼是谁就和闪4前猜金骑是谁开的一样</blockquote>
+金骑我记得当初都猜黄金罗刹或奥瓜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

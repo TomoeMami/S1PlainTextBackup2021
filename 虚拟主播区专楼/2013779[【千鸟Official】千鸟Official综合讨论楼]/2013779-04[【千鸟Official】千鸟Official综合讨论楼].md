@@ -4811,3 +4811,14 @@ b站要求，加上团号游戏回是之前反响太烂，都停掉了
 
 草，俺们闽南人小时候只能看弯弯的电视频道，看了好多哑巴新娘，青青河边草之类的台湾苦情剧，给我童年留下了很大阴影<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ba娜娜  
+##### 4997#       发表于 2022-1-7 18:19
+
+新参鸟p想问问楼友，文静说的上个月23号的节奏是啥啊？我只记得好像是因为她发动态被敷衍导致被冲了，但是印象里只是很小的节奏啊？看她录播还提到了对sc发脾气啥的我就没印象了，有人能科普一下前因后果吗，谢谢大家<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

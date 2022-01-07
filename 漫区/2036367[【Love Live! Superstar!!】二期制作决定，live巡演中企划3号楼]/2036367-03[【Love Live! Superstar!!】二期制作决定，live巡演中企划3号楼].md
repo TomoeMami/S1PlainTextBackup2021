@@ -7985,3 +7985,15 @@ https://grapee.jp/1053371</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">着实不知道女团感是啥意思 这5个人对我来说都相当有趣就是了
 
+
+
+*****
+
+####  D麦林  
+##### 3740#       发表于 2022-1-7 18:18
+
+也不是团体感…
+要细想我也说不太清楚 就感觉好像有一种别人没有的气息
+但这么说搞不好就是我水看的时间长感情不一样吧
+那没事了（
+
