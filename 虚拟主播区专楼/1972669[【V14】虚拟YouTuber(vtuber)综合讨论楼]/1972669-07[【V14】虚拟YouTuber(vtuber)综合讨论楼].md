@@ -10831,3 +10831,12 @@ FIf2qAraAE41wqK.jpg
 
 新人有这么多粉丝吗 出这么多东西
 
+
+
+*****
+
+####  Paisley  
+##### 9919#       发表于 2022-1-8 00:31
+
+新人资源真多啊……我也想要这种质量比较高的立绘不崩的谷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
