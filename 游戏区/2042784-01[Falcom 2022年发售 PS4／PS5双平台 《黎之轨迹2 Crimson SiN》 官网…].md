@@ -2793,3 +2793,47 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 
 2022-1-7 11:27 上传
 
+
+
+*****
+
+####  卢迪克  
+##### 240#       发表于 2022-1-7 17:41
+
+<blockquote>宛若青空 发表于 2022-1-7 11:26
+你在说什么，黎当然是就是指Van，法老控给“黎”的读法就是“くろ（黑）”
+
+那句话换个说法就是 ...</blockquote>
+曹 黑铁都是说说苍
+
+
+
+*****
+
+####  卢迪克  
+##### 241#       发表于 2022-1-7 17:50
+
+<img src="https://img.saraba1st.com/forum/202201/07/175020ghth00tzuhtb9c49.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220107_110036.jpg</strong> (42.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 17:50 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/175025mmm9ywmm0wpm8jja.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220107_174943.jpg</strong> (25.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 17:50 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/175030tbbvho3vyodczvlh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220107_174952.jpg</strong> (39.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 17:50 上传
+
