@@ -752,3 +752,50 @@ omicron包含ba.1和ba.2两个兄弟株，如果用星座命名的话双子座�
 一天10W怕不是春节就能看到了，前提是美帝给测  O大概2天翻一倍，宽松点假设4天。10W，0.3%死亡率 ...</blockquote>
 一天10w你得一天感染3000w，学一下s型曲线的？南非也没传3000万才停止啊
 
+
+
+*****
+
+####  smy20011  
+##### 3057#       发表于 2022-1-7 14:50
+
+84-year-old Bihar man gets 11 Covid vaccine shots, caught while going for 12th
+
+什么超人
+
+*****
+
+####  wszweill  
+##### 3058#       发表于 2022-1-7 14:50
+
+ 本帖最后由 wszweill 于 2022-1-7 01:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54199345&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-7 01:37</a>
+
+一天10w你得一天感染3000w，学一下s型曲线的？南非也没传3000万才停止啊</blockquote>
+南非一共才6000W人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洞庭湖  
+##### 3059#       发表于 2022-1-7 14:52
+
+ICU突破81.8%了
+
+2022-01-06.JPG
+(115.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 14:51 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/145137vevzfy7s5yol21ee.jpg" referrerpolicy="no-referrer">
+
+2022-01-06.JPG
+(119.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 14:51 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/145142fik2oo2og193r6qx.jpg" referrerpolicy="no-referrer">
+

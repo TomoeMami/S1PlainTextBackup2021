@@ -6783,3 +6783,27 @@ BV17L411t7Dd
 
 剧场版BD第二周Oricon动画BD榜第5、综合BD榜24，604张，累计13274
 
+
+
+*****
+
+####  unnilennium  
+##### 523#       发表于 2022-1-7 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54196946&amp;ptid=2043629" target="_blank">七七見奈波 发表于 2022-1-7 11:24</a>
+
+虽然冷冷的不理人，但和舞台上那个疯婆子好像还是8太一样，当初看到光昼revue的时候差点被笑死 ...</blockquote>
+因为各做各的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">几年看下来就是武士道对少歌IP这些衍生缺少统一协调。
+
+剧场版相关talk只知道早期古川、樋口等动画staff知道要舞台化，设定做了一些考虑。而舞台演出儿玉明子、脚本三浦香是否像中村彼方和一些作曲家那样参与动画（反之亦然），我知道的范围内是没有的。
+
+结果舞台和动画还是在各自范围内创作的多，动画因为后发所以有汲取，比如TV纯那射箭出来的礼花就是取自#1。
+
+当时宣传是舞台为原作、是“二层展开式”少女歌剧，不管二层是平行还是上下关系，#1就只做到了一些设定呼应，比如蕉的“时间啊停下来”。
+
+用我自己朴素的理解就是“表演（お芝居）”、演出的差距，这种氛围的差可能是灯光、配乐、台词的各种区别，我也不太懂。因为舞台先行，所以#1尚且可以理解。
+
+但后面因为动画的反响不错，#2#3、手游都援引动画人设。没要求多平台企划就要严格遵同一套设定，但既然用了动画设定，那自然粉丝就会按照动画的标准来检验。
+
+这种“核”跟动画不一样的感受就更明显了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

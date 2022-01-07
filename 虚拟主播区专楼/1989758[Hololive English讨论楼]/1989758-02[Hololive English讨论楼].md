@@ -785,3 +785,14 @@ Ame: 生日礼物想要马赛冠军（半开玩笑<img src="https://static.sarab
 
 Buffed Ame お願いマッスル cover when<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 1578#         楼主| 发表于 2022-1-7 15:06
+
+鲨鱼这马车没白练，居然晋级了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
