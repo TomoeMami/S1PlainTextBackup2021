@@ -5433,3 +5433,19 @@ x3@贝拉kira 啊哈！<blockquote>
 
 </blockquote>
 
+
+
+*****
+
+####  sanlow666  
+##### 400#         楼主| 发表于 2022-1-7 22:53
+
+乃琳Queen:[欲擒故纵小乃琳【直播剪辑】](https://b23.tv/CrXQv1h)<blockquote>（运营代发）
+
+素材来自2021年12月15日乃琳直播
+出镜：乃琳
+软件：基于Unity自研
+场景：自制
+动作：动作捕捉
+<img src="https://p.sda1.dev/4/71cfa8fa7922ed3e1984b947a83a3935/IMG_CMP_248569543.jpeg" referrerpolicy="no-referrer"></blockquote>
+

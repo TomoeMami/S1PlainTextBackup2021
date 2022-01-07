@@ -17068,3 +17068,20 @@ tc可能不会太多，但以后可能会有更多类似的space。space好像�
 
 分析个jb 我觉得都明摆着觉得无所谓了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7407#       发表于 2022-1-7 22:57
+
+现在的4chan真的有点乐
+
+<img src="https://img.saraba1st.com/forum/202201/07/225554bplzpnlnrbg9guce.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (67.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 22:55 上传
+
