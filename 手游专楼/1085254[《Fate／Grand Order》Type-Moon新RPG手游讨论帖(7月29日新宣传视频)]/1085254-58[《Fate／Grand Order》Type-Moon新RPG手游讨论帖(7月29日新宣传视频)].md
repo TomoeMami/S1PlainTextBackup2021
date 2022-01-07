@@ -9832,3 +9832,12 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 比如我的话能自己解决尽量自己解决，好友只抓礼装不管人，奥伯龙只配当第三面发动机，伤害足够的时候能上别的红拐蹭羁绊就不会上奥伯龙
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 86452#       发表于 2022-1-7 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是杀狐是单充，要是和C呆一样的充能。群30，自20.那就好用多了。
+

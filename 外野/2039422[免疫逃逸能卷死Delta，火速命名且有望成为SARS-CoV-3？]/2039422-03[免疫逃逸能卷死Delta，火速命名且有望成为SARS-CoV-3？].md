@@ -399,3 +399,26 @@ https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-u
 【#苏格兰报纸提出建立“新冠拘留营”# 】周二，苏格兰最大的报纸《每日纪事报》（Daily Record ）在脸书上 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下不民主了
 
+
+
+*****
+
+####  dazzle  
+##### 3033#       发表于 2022-1-7 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194533&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-7 04:00</a>
+
+【#苏格兰报纸提出建立“新冠拘留营”# 】周二，苏格兰最大的报纸《每日纪事报》（Daily Record ）在脸书上 ...</blockquote>
+袋鼠要有那本事至于日增6万吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nanrendu  
+##### 3034#       发表于 2022-1-7 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194725&amp;ptid=2039422" target="_blank">ft5555 发表于 2022-1-7 07:04</a>
+https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chin ...</blockquote>
+不能让民众知道中国人活得好好的，万一知道中国人看他们跟看傻子一样，心里会不平衡的。其实我们也怕外国人偷渡， 这样子挺好的，立场一致。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
