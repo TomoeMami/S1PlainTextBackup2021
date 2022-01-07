@@ -2769,3 +2769,27 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 再来个红之圣女啊</blockquote>
 梵剧情里是苍魔装鬼不是黎魔装鬼
 
+
+
+*****
+
+####  宛若青空  
+##### 239#       发表于 2022-1-7 11:26
+
+ 本帖最后由 宛若青空 于 2022-1-7 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54196822&amp;ptid=2042784" target="_blank">卢迪克 发表于 2022-1-7 11:15</a>
+
+应该有黎魔装鬼和红魔装鬼两只.</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 你在说什么，黎当然是就是指Van，法老控给“黎”的读法就是“くろ（黑）”
+
+那句话换个说法就是“黑与红的相遇”。
+
+<img src="https://img.saraba1st.com/forum/202201/07/112714gw6r5ui7dsw5pxi5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>26349E8F-2215-48E6-82DE-55BA9FFA4D96.jpeg</strong> (199.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 11:27 上传
+

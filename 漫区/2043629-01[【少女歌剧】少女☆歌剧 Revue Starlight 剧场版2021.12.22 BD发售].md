@@ -6762,3 +6762,15 @@ BV17L411t7Dd
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  七七見奈波  
+##### 521#       发表于 2022-1-7 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54196638&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2022-1-7 10:59</a>
+
+没记错的话，舞台剧1是舞台组基于动画组初期的设定，以及当时只完成到第三集的剧本来弄的。只看前三集，阿 ...</blockquote>
+虽然冷冷的不理人，但和舞台上那个疯婆子好像还是8太一样，当初看到光昼revue的时候差点被笑死
+
