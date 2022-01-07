@@ -17047,3 +17047,15 @@ tc可能不会太多，但以后可能会有更多类似的space。space好像�
 
 有什么好分析的，这比赛给不上心程度排个名你夸前三稳稳的，混完苦呀洗下班完事了，本人都在摆就不要找那么多理由了
 
+
+
+*****
+
+####  minatoaqua  
+##### 7405#       发表于 2022-1-7 20:07
+
+开摆没啥好分析的，这种摆法出成绩是完全没道理的，动动嘴皮子不甘心有助心理健康
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">比认真练结果输了又开始玉玉的结局好不少了
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+

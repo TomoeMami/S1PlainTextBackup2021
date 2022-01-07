@@ -8118,3 +8118,44 @@ nagi青梅也穿这身了
 
 所以nonfiction，day1，常夏，小星星几首就显得特别突出
 
+
+
+*****
+
+####  仟音一心  
+##### 3753#       发表于 2022-1-7 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54203500&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-7 20:03</a>
+星团缺少偶像团感我觉得有一个很重要的点是音乐性上
+
+去年我回坑一口气把缪水虹星四团将近四百首三天全部补 ...</blockquote>
+感觉Day1和小星星的副歌互换都没啥违和感。
+
+*****
+
+####  Piano-Forest  
+##### 3754#       发表于 2022-1-7 20:15
+
+💫Blu-ray💫
+
+TVアニメ「ラブライブ！スーパースター!!」第6巻は2/25発売🎊
+
+このたび、ジャケットデザインが完成しました💫
+
+桜の季節、5人が始まりの交差点に集合🌸
+
+1/18までのご予約で、発売日に確実にお届け可能です🎶
+
+お見逃しなく👀✨
+
+☑商品詳細
+[https://lovelive-anime.jp/yuigaoka/bd/#bd06](https://lovelive-anime.jp/yuigaoka/bd/#bd06)
+<img src="https://p.sda1.dev/4/78fb311328d0a8c66134081b2c60a014/20220107_201406.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3755#       发表于 2022-1-7 20:18
+
+居然不开生放宣传
+
