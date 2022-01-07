@@ -590,3 +590,39 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 </blockquote>
 严格来说应该算**的祖先
 
+
+
+*****
+
+####  smy20011  
+##### 3044#       发表于 2022-1-7 12:07
+
+ 本帖最后由 smy20011 于 2022-1-7 12:09 编辑 
+
+南非科学家发现，long covid可能和血液中的微小血栓有关
+[https://thehill.com/changing-ame ... thinks-she-may-have](https://thehill.com/changing-america/well-being/medical-advances/588443-south-african-scientist-thinks-she-may-have)
+
+可能溶栓剂/抗凝血剂对long covid有效
+
+是不是病毒的s蛋白有凝血作用，会引起极微小的血栓，然后阻碍毛细血管造成部分组织氧气不足
+
+*****
+
+####  smy20011  
+##### 3045#       发表于 2022-1-7 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54195544&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-7 09:33</a></blockquote>
+这位有医学学位么？没有叫唤个P
+
+*****
+
+####  zerona  
+##### 3046#       发表于 2022-1-7 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194572&amp;ptid=2039422" target="_blank">wrnk 发表于 2022-1-7 04:40</a>
+
+你美这个感染速度真能实现群体免疫了吧，跟印度一样
+
+看数据o变种威力不太大，都感染一波以后就真流感化了？ ...</blockquote>
+为啥现在叫o不叫a了？你仔细琢磨琢磨。
+
