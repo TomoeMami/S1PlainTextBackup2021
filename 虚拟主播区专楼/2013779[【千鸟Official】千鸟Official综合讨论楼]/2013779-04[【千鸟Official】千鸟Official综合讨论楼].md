@@ -4822,3 +4822,28 @@ b站要求，加上团号游戏回是之前反响太烂，都停掉了
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  tankai  
+##### 4998#       发表于 2022-1-7 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54202237&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-7 18:19</a>
+
+新参鸟p想问问楼友，文静说的上个月23号的节奏是啥啊？我只记得好像是因为她发动态被敷衍导致被冲了，但是 ...</blockquote>
+因为这里面扯得东西太多.一个几千粉小V的爆发式成长之路.一段传奇.太难解释.觉得喜欢无视这些就好.
+
+*****
+
+####  tankai  
+##### 4999#       发表于 2022-1-7 18:37
+
+ 本帖最后由 tankai 于 2022-1-7 18:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53968333&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2021-12-17 08:09</a>
+
+文静前几天杂谈里，弹幕刷的那个文静代餐叫啥名字啊，我记得四个字，听过之后给忘了 ...</blockquote>
+慕芸Muvis
+
+鸟P说声音非常像静姨.
+

@@ -2849,3 +2849,23 @@ FAMI访谈，内容就是上面篝火编辑部那篇
 现在猜这个红鬼是谁就和闪4前猜金骑是谁开的一样</blockquote>
 金骑我记得当初都猜黄金罗刹或奥瓜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宛若青空  
+##### 243#       发表于 2022-1-7 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54201758&amp;ptid=2042784" target="_blank">卢迪克 发表于 2022-1-7 17:41</a>
+曹 黑铁都是说说苍</blockquote>
+……算了，你说是那就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 244#       发表于 2022-1-7 18:32
+
+我记得游戏里是有读成くろ和读成あおぐろ两种读法同时出现
+
+其黎本意应该是黄黑色 法老控为了强行改成蓝黑色也是怪
+
