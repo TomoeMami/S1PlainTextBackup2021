@@ -857,3 +857,12 @@ ICU突破81.8%了</blockquote>
 84-year-old Bihar man gets 11 Covid vaccine shots, caught while going for 12th</blockquote>
 疫苗侠<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 3065#       发表于 2022-1-7 23:10
+
+洛杉矶时报：橙县已有3名5岁以下儿童死于Omicron
+
