@@ -866,3 +866,19 @@ ICU突破81.8%了</blockquote>
 
 洛杉矶时报：橙县已有3名5岁以下儿童死于Omicron
 
+
+
+*****
+
+####  yhaos  
+##### 3066#       发表于 2022-1-7 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">前年胜利大逃亡真是太对了。傻逼白皮自己搞歧视去吧，爷跑路了！
+
+*****
+
+####  天国直通车  
+##### 3067#       发表于 2022-1-7 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Delta做不到的事，omicron做到了。美国穷鬼住不起 icu，意味着住得起icu的美国中产已经能令icu接近满载。
+

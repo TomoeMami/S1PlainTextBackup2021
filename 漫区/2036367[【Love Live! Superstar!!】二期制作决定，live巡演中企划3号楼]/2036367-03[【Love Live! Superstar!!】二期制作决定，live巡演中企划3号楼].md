@@ -8231,3 +8231,24 @@ D1D2EF37-5DFB-4F8C-9542-15027249D173.jpeg
 
 Wxy 是啥
 
+
+
+*****
+
+####  a92063256  
+##### 3761#       发表于 2022-1-7 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205660&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-7 23:14</a>
+
+Wxy 是啥</blockquote>
+卫星源，简单的说就是盗版
+
+*****
+
+####  lj205  
+##### 3762#       发表于 2022-1-7 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205787&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-1-7 23:26</a>
+卫星源，简单的说就是盗版</blockquote>
+b站小鬼没下限不早就是共识了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
