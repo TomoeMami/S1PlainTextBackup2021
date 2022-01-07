@@ -1029,3 +1029,12 @@ https://www.hacg.cat/wp/85647.html
 
 我跟两个朋友玩新兵模式打不过倒数第二关愤而弃坑，幸好是西瓜皮白嫖的
 
+
+
+*****
+
+####  Sakaiyuki  
+##### 106#       发表于 2022-1-7 09:37
+
+我XGP进去之后死活连不上多人，和朋友折腾半天玩不了之后只能去奥林匹滋快乐滋蹦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过因为这件事白嫖了朋友送的一年XGP
+

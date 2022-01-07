@@ -9841,3 +9841,14 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是杀狐是单充，要是和C呆一样的充能。群30，自20.那就好用多了。
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 86453#       发表于 2022-1-7 09:38
+
+感觉打拐一体的倾向愈发的明显了 越来越多的群充群buff光炮 以这为方向确实还有上升空间 毕竟纯拐的辅助宝具在周回几乎无用 不如也做一把输出手 可以预见以后还会有带群充还把技能和光炮宝具副效果都带上群体增伤buff的从者
+
+话说其实杀狐也是有群充的 不过是在宝具上 加上暗狐技能2的oc+2就是20群充 前两天刷龙牙就这么用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
