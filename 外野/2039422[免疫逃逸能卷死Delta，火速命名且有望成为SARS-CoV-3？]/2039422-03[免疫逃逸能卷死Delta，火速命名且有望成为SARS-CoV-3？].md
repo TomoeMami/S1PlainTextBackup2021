@@ -549,3 +549,29 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 看数据o变种威力不太大，都感染一波以后就真流感化了？ ...</blockquote>
 西班牙大流感最强的一波就是第三年秋冬的那一波ADE风暴,之前得过的人个个过death check,按目前欧米鬼畜整天念经的三年结束,要是复刻上世纪最大活动,那今年秋冬就能看到每天上百万级的死亡
 
+
+
+*****
+
+####  ak123  
+##### 3041#       发表于 2022-1-7 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54196311&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2022-1-7 10:35</a>
+
+西班牙大流感最强的一波就是第三年秋冬的那一波ADE风暴,之前得过的人个个过death check,按目前欧米鬼畜整 ...</blockquote>
+奶过头了，一天10万就已经很恐怖了
+
+*****
+
+####  droople  
+##### 3042#       发表于 2022-1-7 11:19
+
+<blockquote>引用第3039楼KOGmk2于2022-01-07 10:35发表的  :
+
+本帖最后由 KOGmk2 于 2022-1-7 10:37 编辑 引用:wrnk 发表于 2022-......</blockquote>
+@KOGmk2
+
+流感都能ade啊😯
+
+----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
+
