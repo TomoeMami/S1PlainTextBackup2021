@@ -706,3 +706,49 @@ omicron包含ba.1和ba.2两个兄弟株，如果用星座命名的话双子座�
 奶过头了，一天10万就已经很恐怖了</blockquote>
 一天10W怕不是春节就能看到了，前提是美帝给测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得都不用奶。美帝目前就是指望O卷一遍大家群体免疫拉倒（
 
+
+
+*****
+
+####  KOGmk2  
+##### 3054#       发表于 2022-1-7 14:28
+
+白骑士胜了又胜......联系前几天五强联合发通告~~~怕不是各国最高层都嗅到了火药味:四骑士准备世纪联动了
+
+*****
+
+####  eveshell  
+##### 3055#       发表于 2022-1-7 14:35
+
+<blockquote>wszweill 发表于 2022-1-7 13:37
+一天10W怕不是春节就能看到了，前提是美帝给测  O大概2天翻一倍，宽松点假设4天。10W，0.3%死亡率 ...</blockquote>
+都这么说
+
+<img src="https://img.saraba1st.com/forum/202201/07/143516j61z2h6a8oaahdoh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20220107_143359_573.jpg</strong> (145.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-7 14:35 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/143516nete718cd9f70gk0.jpg" referrerpolicy="no-referrer">
+
+<strong>4722845643702453.jpg</strong> (145.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-7 14:35 上传
+
+*****
+
+####  smy20011  
+##### 3056#       发表于 2022-1-7 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54198666&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-7 13:37</a>
+
+一天10W怕不是春节就能看到了，前提是美帝给测  O大概2天翻一倍，宽松点假设4天。10W，0.3%死亡率 ...</blockquote>
+一天10w你得一天感染3000w，学一下s型曲线的？南非也没传3000万才停止啊
+
