@@ -575,3 +575,18 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 
 ----发送自 [Xiaomi Redmi K30 Pro,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  克鲁特尼  
+##### 3043#       发表于 2022-1-7 11:55
+
+<blockquote>droople 发表于 2022-1-7 11:19
+@KOGmk2
+
+流感都能ade啊😯
+
+</blockquote>
+严格来说应该算**的祖先
+
