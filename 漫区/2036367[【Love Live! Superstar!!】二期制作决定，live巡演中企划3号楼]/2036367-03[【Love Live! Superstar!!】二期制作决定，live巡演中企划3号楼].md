@@ -7715,3 +7715,15 @@ eplus和pia的播放测试都挺流畅，最后还是在pia买了票希望到时
 最近水渚鱼和岬鱼上大分，pay子和小百合见状也不甘示弱下班就拉鲤鱼去吃甜点 ...</blockquote>
 这什么罪孽深重的女人啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 3717#       发表于 2022-1-7 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194170&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-01-07 01:23:46</a>
+最近水渚鱼和岬鱼上大分，pay子和小百合见状也不甘示弱下班就拉鲤鱼去吃甜点 ...</blockquote>快进到我们四个把她分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

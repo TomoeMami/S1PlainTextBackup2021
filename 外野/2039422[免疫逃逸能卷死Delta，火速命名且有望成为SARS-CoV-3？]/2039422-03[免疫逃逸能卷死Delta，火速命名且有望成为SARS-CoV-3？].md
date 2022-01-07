@@ -368,3 +368,16 @@ Moderna老总说，人们可能需要打第四针Covid，因为第三针的疗�
 英国人，前EUPHA的头自己说的</blockquote>
 其实就是因为不想承认1，所以才说口罩没用。都是联系在一起的。
 
+
+
+*****
+
+####  sk此方  
+##### 3030#       发表于 2022-1-7 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194725&amp;ptid=2039422" target="_blank">ft5555 发表于 2022-1-7 07:04</a>
+https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-underreporting-chin ...</blockquote>
+这数字怕不是随美国疫情感染数字 随时变动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
