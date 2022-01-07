@@ -830,3 +830,30 @@ https://thehill.com/changing-ame ... thinks-she ...</blockquote>
 
 缺氧方仓 熟悉的剧情
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 3062#       发表于 2022-1-7 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54199525&amp;ptid=2039422" target="_blank">洞庭湖 发表于 2022-1-7 14:52</a>
+ICU突破81.8%了</blockquote>
+可以看到美国医疗崩溃？
+
+*****
+
+####  inconolast  
+##### 3063#       发表于 2022-1-7 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当年我朝还是主动出击奶过意大利的
+
+*****
+
+####  Litccc  
+##### 3064#       发表于 2022-1-7 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54199503&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-7 14:50</a>
+84-year-old Bihar man gets 11 Covid vaccine shots, caught while going for 12th</blockquote>
+疫苗侠<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

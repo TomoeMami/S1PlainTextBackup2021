@@ -8017,3 +8017,43 @@ https://grapee.jp/1053371</blockquote>
 
 隔壁好像把fmt鲤鱼的画面找出来了。。。有点像
 
+
+
+*****
+
+####  cat1230  
+##### 3743#       发表于 2022-1-7 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54202438&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-7 18:36</a>
+
+隔壁好像把fmt鲤鱼的画面找出来了。。。有点像</blockquote>
+看到了，太强了，这看片儿得仔细到什么程度才能注意到这个镜头。这绝对是鲤鱼铁粉。
+
+*****
+
+####  sjbssd  
+##### 3744#       发表于 2022-1-7 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54195132&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-7 08:47</a>
+
+我分析了一下感觉应该是没过夜，至少跨年演出后的这夜没有：
+
+鱼说礼物想了好久还咨询了经纪人，说明去Nag ...</blockquote>
+看了后面几楼的分析，已经脑补出一本本子了，不行，不可以脑部三次元<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 3745#       发表于 2022-1-7 18:51
+
+<blockquote>cat1230 发表于 2022-1-7 18:47
+看到了，太强了，这看片儿得仔细到什么程度才能注意到这个镜头。这绝对是鲤鱼铁粉。 ...</blockquote>
+仔细想了想，像反而有点不对了，画面里好像跟现在的差不多，16年应该不是这样的
+
+*****
+
+####  iuhehc  
+##### 3746#       发表于 2022-1-7 18:54
+
+感觉像，但又不完全像
+
