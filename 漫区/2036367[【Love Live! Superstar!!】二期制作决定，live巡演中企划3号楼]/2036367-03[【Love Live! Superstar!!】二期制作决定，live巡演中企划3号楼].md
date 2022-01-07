@@ -7894,3 +7894,25 @@ https://grapee.jp/1053371</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cybernetics31  
+##### 3731#       发表于 2022-1-7 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 3732#       发表于 2022-1-7 17:00
+
+看了微博上的评论有感
+
+话说跨年我看下来还是感觉水水是最有偶像女团感的
+
+虽然确实是疯 但是这种疯反而让我更感觉有女团的味道了
+
+倒是星不知道为什么缺少一种女团气息（？） 我也说不明白
+
