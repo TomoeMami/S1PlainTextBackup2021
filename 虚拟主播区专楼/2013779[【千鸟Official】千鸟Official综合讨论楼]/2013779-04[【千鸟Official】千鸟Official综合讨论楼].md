@@ -4893,3 +4893,12 @@ A：运营组工具人们非常感谢各位鸟P的心意~但是礼物真的不�
 
 捏麻的，过年也看不到新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 5002#       发表于 2022-1-7 21:55
+
+团歌出来就不错了,如果好听可以出去宣传一下.算是一个破圈小起点.
+
