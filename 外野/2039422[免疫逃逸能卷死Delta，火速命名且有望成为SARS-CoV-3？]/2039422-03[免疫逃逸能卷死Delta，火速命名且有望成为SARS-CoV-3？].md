@@ -1069,3 +1069,12 @@ Omicron已经有绕过ACE受体的演化倾向了，别指望……
 【分享英国真实常态生 ...</blockquote>
 又是英国没事派，受不了
 
+
+
+*****
+
+####  境堺の侍  
+##### 3084#       发表于 2022-1-8 01:34
+
+英国这波MILD是吹得真成功。最近已经用 “工作忙，事儿多” 或者 “头疼/不舒服” 为借口推掉了好几个约 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

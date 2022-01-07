@@ -17109,3 +17109,12 @@ tc可能不会太多，但以后可能会有更多类似的space。space好像�
 
 评论区关闭据说是有日本人在吵架，这人还是很在意这种事<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 7410#       发表于 2022-1-8 01:29
+
+还有日本人在吵架，说明crew还是没有被调教好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
