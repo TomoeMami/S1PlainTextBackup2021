@@ -11411,3 +11411,21 @@ YYGQ起来了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  2014720  
+##### 7311#       发表于 2022-1-7 16:33
+
+2020年批站收米统计280w来着？至于去年就彻底寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在这楼里都没人讨论数字了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 7312#       发表于 2022-1-7 16:34
+
+巅峰应该还是有或者比较接近700万这个数字的（也可能就4-500万不到，没算过），现在嘻嘻
+
