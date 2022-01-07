@@ -8159,3 +8159,48 @@ TVアニメ「ラブライブ！スーパースター!!」第6巻は2/25発売�
 
 居然不开生放宣传
 
+
+
+*****
+
+####  仟音一心  
+##### 3756#       发表于 2022-1-7 20:47
+
+<blockquote>#Liyuu[超话]# Audee「Liyuuのはつらじ」✨
+
+个人广播的活动终于！！！！！
+
+1月22日大家快来参加起来！！！！
+
+严肃脸↓ </blockquote>
+
+00D87E20-434B-472E-811B-A96858ED2F63.jpeg
+(658.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/204755a767c4s0sazr9ap1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D1D2EF37-5DFB-4F8C-9542-15027249D173.jpeg
+(310.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/07/204755qhsgu1f1yub1pllp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 3757#       发表于 2022-1-7 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54203500&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-7 20:03</a>
+
+星团缺少偶像团感我觉得有一个很重要的点是音乐性上
+
+去年我回坑一口气把缪水虹星四团将近四百首三天全部补 ...</blockquote>
+确实有点
+

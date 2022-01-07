@@ -17059,3 +17059,12 @@ tc可能不会太多，但以后可能会有更多类似的space。space好像�
 
 —— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  越动天下  
+##### 7406#       发表于 2022-1-7 20:55
+
+分析个jb 我觉得都明摆着觉得无所谓了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

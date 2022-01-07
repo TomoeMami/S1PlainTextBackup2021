@@ -10757,3 +10757,12 @@ hero好可爱啊
 自从看了那个rosemi不知道パイズリ（此处替换成英文）是什么意思的切片之后，我觉得一切皆有可能 ...</blockquote>
 rosemi是真的纯 温室里的花朵
 
+
+
+*****
+
+####  FCCHua  
+##### 9916#       发表于 2022-1-7 20:56
+
+看推上的repo，nrk要参加cr杯？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
