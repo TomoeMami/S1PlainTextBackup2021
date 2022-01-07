@@ -10745,3 +10745,15 @@ hero好可爱啊
 
 草，妹妹 beni和叶三排valo，这组合有点少见
 
+
+
+*****
+
+####  wuzhengkai  
+##### 9915#       发表于 2022-1-7 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54163516&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-1-4 20:56</a>
+
+自从看了那个rosemi不知道パイズリ（此处替换成英文）是什么意思的切片之后，我觉得一切皆有可能 ...</blockquote>
+rosemi是真的纯 温室里的花朵
+

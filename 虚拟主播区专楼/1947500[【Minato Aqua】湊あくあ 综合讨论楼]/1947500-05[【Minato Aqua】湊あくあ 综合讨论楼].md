@@ -16820,3 +16820,21 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 
 等一个看去年夸宝录像勤学苦练的鲨宝亲手淘汰师傅，然后决赛盐水灵魂附体夺冠
 
+
+
+*****
+
+####  面具13  
+##### 7379#       发表于 2022-1-7 13:07
+
+私下偷偷练改名さ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+待机1w，同接1k5，毕竟crew全是うんうん民
+
+*****
+
+####  面具13  
+##### 7380#       发表于 2022-1-7 13:18
+
+要被淘汰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

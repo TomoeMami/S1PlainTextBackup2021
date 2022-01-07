@@ -9899,3 +9899,39 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 刚刚总算清完了最后一场....然后升级了....差点一口老血喷出来
 
+
+
+*****
+
+####  areklose  
+##### 86457#       发表于 2022-1-7 13:07
+
+ 本帖最后由 areklose 于 2022-1-7 13:18 编辑 
+<blockquote>森兰丸 发表于 2022-1-7 11:51
+这AP减半快点结束吧.....满AP要清7次日常....好烦好烦啊
+
+刚刚总算清完了最后一场....然后升级了....差点一 ...</blockquote>
+。。。。。你可以选择不刷等溢出,FGO体力不值钱！。不要让手游绑架自己作息。
+
+*****
+
+####  黑上シグマ  
+##### 86458#       发表于 2022-1-7 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54197311&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-7 11:51</a>
+
+这AP减半快点结束吧.....满AP要清7次日常....好烦好烦啊
+
+刚刚总算清完了最后一场....然后升级了....差点一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弱鸡，我平时就都在卧着刷铃铛和粉的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及钱本不减半，快去刷
+
+*****
+
+####  UNISONIA  
+##### 86459#       发表于 2022-1-7 13:23
+
+一年前感觉最吐血的事情就是刷了很多红鬼灯（线球倒是后面也用上了），现在严重溢出
+
+至少现在小钟和妖精粉喂一圈常规三技能还能看看被动能不能点……可以日常清一下AP
+

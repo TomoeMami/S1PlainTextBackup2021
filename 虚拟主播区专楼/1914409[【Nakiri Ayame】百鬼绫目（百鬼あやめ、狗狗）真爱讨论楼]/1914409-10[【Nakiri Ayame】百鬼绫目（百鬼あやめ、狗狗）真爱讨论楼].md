@@ -3529,3 +3529,19 @@ mio占卜直接暗示要绫总今年继续开摆<img src="https://static.saraba1
 
 绫总跑小粥suba那里练车去了
 
+
+
+*****
+
+####  nian1538  
+##### 13853#       发表于 2022-1-7 13:00
+
+绫总虽然没进下一轮，但是发挥的比想象的还是好一些
+
+*****
+
+####  Fami水  
+##### 13854#       发表于 2022-1-7 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">可以有赛后嗦面环节么
+
