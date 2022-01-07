@@ -7786,3 +7786,34 @@ eplus和pia的播放测试都挺流畅，最后还是在pia买了票希望到时
 
 这个あたい真是鲤鱼自称吗？这是个什么来头？还是关西话里的自称？靠，好可爱
 
+
+
+*****
+
+####  笋狐  
+##### 3723#       发表于 2022-1-7 12:39
+
+ 本帖最后由 笋狐 于 2022-1-7 12:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说是「あたし」的升级版，和「あたし」同级甚至语感上更“嗲”一点的自称，硬要类比大概就像“伦家”的感觉？（印象最深的是以前康2ch安价串那些死宅装女人发嗲用这个词，后面查了查wiki回过味来这个恶心呐...）
+
+*****
+
+####  stygian  
+##### 3724#       发表于 2022-1-7 12:39
+
+ 本帖最后由 stygian 于 2022-1-7 12:41 编辑 
+
+近代江户女子多用
+
+不过我记得菜宝后面有说两人是用中文联系的吧，夹私货<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，而且仔细看前面的どない是关西话
+
+*****
+
+####  後藤正文  
+##### 3725#       发表于 2022-1-7 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54197592&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-7 12:14</a>
+这个あたい真是鲤鱼自称吗？这是个什么来头？还是关西话里的自称？靠，好可爱 ...</blockquote>
+菜宝直播说了对话全是菜宝中译日的
+

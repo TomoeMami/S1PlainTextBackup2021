@@ -1038,3 +1038,21 @@ https://www.hacg.cat/wp/85647.html
 
 我XGP进去之后死活连不上多人，和朋友折腾半天玩不了之后只能去奥林匹滋快乐滋蹦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过因为这件事白嫖了朋友送的一年XGP
 
+
+
+*****
+
+####  寂静桑  
+##### 107#       发表于 2022-1-7 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">时代变了，游戏制作者的心态也变了，资本家也变了。现在对细节严苛到这种地步技术上虽然可以实现但是消耗的人力和财力都不会让抠门资本家愿意多掏钱来实现这个——当然现在的制作者大多也不会去考究这些东西，越来越浮躁，越来越倒退
+
+*****
+
+####  s1娘铁粉  
+##### 108#       发表于 2022-1-7 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54172986&amp;ptid=2045489" target="_blank">congjasd 发表于 2022-1-5 15:33</a>
+倒腾了一点r18mod出来整理了一下回坑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">今天的s1就逛到这里
+

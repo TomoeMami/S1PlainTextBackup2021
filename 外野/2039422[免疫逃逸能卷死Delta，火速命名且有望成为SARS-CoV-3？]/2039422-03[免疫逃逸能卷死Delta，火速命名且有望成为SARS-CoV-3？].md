@@ -626,3 +626,23 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 看数据o变种威力不太大，都感染一波以后就真流感化了？ ...</blockquote>
 为啥现在叫o不叫a了？你仔细琢磨琢磨。
 
+
+
+*****
+
+####  laotoutou  
+##### 3047#       发表于 2022-1-7 12:32
+
+看来中国以外，就是每半年得一次。
+然后年纪大到一定程度就死掉？
+
+*****
+
+####  ak123  
+##### 3048#       发表于 2022-1-7 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54197827&amp;ptid=2039422" target="_blank">laotoutou 发表于 2022-1-7 12:32</a>
+看来中国以外，就是每半年得一次。
+然后年纪大到一定程度就死掉？</blockquote>
+就新冠现在摧残人的样子，很多年轻人得过几次可能身体机能就和老年人差不多了
+
