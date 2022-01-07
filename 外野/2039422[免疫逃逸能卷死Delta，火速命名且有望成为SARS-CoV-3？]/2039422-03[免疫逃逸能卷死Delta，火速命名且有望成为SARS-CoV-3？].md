@@ -799,3 +799,16 @@ ICU突破81.8%了
 
 <img src="https://img.saraba1st.com/forum/202201/07/145142fik2oo2og193r6qx.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朋友  
+##### 3060#       发表于 2022-1-7 15:16
+
+<blockquote>smy20011 发表于 2022-1-7 12:07
+南非科学家发现，long covid可能和血液中的微小血栓有关
+
+https://thehill.com/changing-ame ... thinks-she ...</blockquote>
+那么阿司匹林又要荣登神药宝座了？
+
