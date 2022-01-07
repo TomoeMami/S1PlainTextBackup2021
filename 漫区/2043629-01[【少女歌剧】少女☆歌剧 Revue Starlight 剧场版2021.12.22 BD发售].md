@@ -6818,3 +6818,36 @@ BV17L411t7Dd
 
 艹，剧场版香子露背弹钢琴那一幕太骚了，差点就产生一些河豚失格的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  三葉Mitsuha  
+##### 525#       发表于 2022-1-8 02:30
+
+ 本帖最后由 三葉Mitsuha 于 2022-1-8 02:39 编辑 
+
+本来想着冲着本地观影会把第一次体验留给屏幕的。结果因为疫情估计要泡汤，于是自己一个人在家在电脑面前看完……
+
+如同中了夺魂咒一样，发抖，愉悦，空虚，炫目。被烈火包围一般，剧烈刺痛全身。
+
+被达姆弹打爆头……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  s1娘铁粉  
+##### 526#       发表于 2022-1-8 02:32
+
+本来想今晚把剧场版看了，结果发现明天附近有线下观影会<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">爽到
+
+*****
+
+####  gearbox  
+##### 527#       发表于 2022-1-8 03:11
+
+看了战吧也有几个西安乡党想一起看的，也许有人能组织起来吧？
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

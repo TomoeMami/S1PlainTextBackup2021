@@ -1078,3 +1078,55 @@ Omicron已经有绕过ACE受体的演化倾向了，别指望……
 
 英国这波MILD是吹得真成功。最近已经用 “工作忙，事儿多” 或者 “头疼/不舒服” 为借口推掉了好几个约 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eveshell  
+##### 3085#       发表于 2022-1-8 02:28
+
+BA3已经有了
+
+*****
+
+####  wszweill  
+##### 3086#       发表于 2022-1-8 03:25
+
+ 本帖最后由 wszweill 于 2022-1-7 14:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54206027&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-7 10:52</a>
+
+抗体和免疫力不一样，有细胞免疫的机制存在
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v ...</blockquote>
+细胞免疫和抗体原理是一样的，都是根据抗原roll点，只不过（经典）抗体主要作用是阻止病毒在血液中流通，细胞免疫是清除感染新冠的细胞，另外两者也并不泾渭分明，有crosstalk<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 3087#       发表于 2022-1-8 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207138&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-8 03:25</a>
+
+细胞免疫和抗体原理是一样的，都是根据抗原roll点，只不过（经典）抗体主要作用是阻止病毒在血液中流通， ...</blockquote>
+不是，要是人类免疫系统这么弱鸡，人早就灭亡了不是么
+
+*****
+
+####  wszweill  
+##### 3088#       发表于 2022-1-8 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207167&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-7 14:43</a>
+
+不是，要是人类免疫系统这么弱鸡，人早就灭亡了不是么</blockquote>
+那你给人类设计一个免疫系统<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AtlachNacha  
+##### 3089#       发表于 2022-1-8 03:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205922&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-7 23:40</a>
+
+橙县人口多少，哪个州的？</blockquote>
+橙县是不是懂王弟弟得新冠嗝屁的那个县
+
