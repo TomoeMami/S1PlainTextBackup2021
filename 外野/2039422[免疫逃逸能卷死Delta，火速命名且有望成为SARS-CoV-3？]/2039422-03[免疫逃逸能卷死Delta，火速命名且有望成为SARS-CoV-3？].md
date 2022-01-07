@@ -1014,3 +1014,58 @@ Orange County
 
 —— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  creymorgan  
+##### 3080#       发表于 2022-1-8 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54206361&amp;ptid=2039422" target="_blank">nanrendu 发表于 2022-1-8 00:38</a>
+
+新冠病毒会出现天生的免疫者吗？
+
+能否把这种人筛选出来，然后找到他们免疫的原因呢？
+
+【分享英国真实常态生 ...</blockquote>
+ACE2先天特异呗
+
+只要这部分人是少数，那么病毒也不会朝他们的方向演化，但是其他人杀绝了自然也要轮到的。
+
+*****
+
+####  nanrendu  
+##### 3081#       发表于 2022-1-8 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54206436&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-8 00:48</a>
+ACE2先天特异呗
+
+只要这部分人是少数，那么病毒也不会朝他们的方向演化，但是其他人杀绝了自然也要轮到的 ...</blockquote>
+居然是这样，谢谢解答，学习了。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Kanoya  
+##### 3082#       发表于 2022-1-8 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54206361&amp;ptid=2039422" target="_blank">nanrendu 发表于 2022-1-8 00:38</a>
+新冠病毒会出现天生的免疫者吗？
+能否把这种人筛选出来，然后找到他们免疫的原因呢？
+【分享英国真实常态生 ...</blockquote>
+Omicron已经有绕过ACE受体的演化倾向了，别指望……
+
+*****
+
+####  eveshell  
+##### 3083#       发表于 2022-1-8 00:54
+
+<blockquote>nanrendu 发表于 2022-1-8 00:38
+新冠病毒会出现天生的免疫者吗？
+
+能否把这种人筛选出来，然后找到他们免疫的原因呢？
+
+【分享英国真实常态生 ...</blockquote>
+又是英国没事派，受不了
+
