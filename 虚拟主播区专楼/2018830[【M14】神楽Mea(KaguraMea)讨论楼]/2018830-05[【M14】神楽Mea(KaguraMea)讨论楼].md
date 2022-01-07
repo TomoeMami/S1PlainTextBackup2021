@@ -11726,3 +11726,19 @@ op赶紧似一似<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 牛，一觉睡醒还在播，睡前波比，睡醒了还是波比
 
+
+
+*****
+
+####  Klience  
+##### 7347#       发表于 2022-1-8 07:32
+
+打了通宵就输了两把 不愧是波比人柱力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7348#       发表于 2022-1-8 07:40
+
+喊了一晚上冷
+
