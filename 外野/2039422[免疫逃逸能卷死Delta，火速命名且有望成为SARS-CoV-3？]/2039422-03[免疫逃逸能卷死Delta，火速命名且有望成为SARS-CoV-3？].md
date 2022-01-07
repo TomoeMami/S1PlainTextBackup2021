@@ -304,3 +304,67 @@ The 800-to-1 ratio of US-to-Chinese mortality rates is a statistical, medical, b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">  大家来欢乐一下
 
+
+
+*****
+
+####  烦死了  
+##### 3027#       发表于 2022-1-7 07:51
+
+Moderna老总说，人们可能需要打第四针Covid，因为第三针的疗效可能会随着时间的推移而下降。
+
+药企，赢麻了
+
+[https://www.cnbc.com/2022/01/06/ ... line-over-time.html](https://www.cnbc.com/2022/01/06/moderna-ceo-says-people-may-need-fourth-covid-shot-as-efficacy-of-boosters-likely-to-decline-over-time.html)
+
+*****
+
+####  烦死了  
+##### 3028#       发表于 2022-1-7 07:54
+
+大英调查发现130万人有新冠长期后遗症
+
+英国国家统计局的一项调查表明，英国大约有130万人患有 "长科维德"，即在初次感染后症状持续超过4周。
+
+其中89.2万人（70%）至少在12周前首次感染病毒，50.6万人（40%）至少在一年前感染。
+
+该调查要求近35.2万人记录他们自己的症状。
+
+对长科维德没有一个普遍认同的定义，不同的研究使用不同的定义。
+
+国家统计局的调查，在2021年11月和12月的四个星期里，表明，在那些有长期Covid的人。
+
+51%有疲劳感
+
+37%有嗅觉丧失
+
+36%有呼吸短促
+
+28%的人注意力难以集中
+
+与之前的分析一致，大约20%的人说他们的症状意味着他们做日常活动的能力受到很大限制。
+
+而最有可能出现长科维德的人是
+
+女性
+
+35至69岁的人
+
+有潜在疾病的人
+
+从事卫生、社会护理和教育工作的人
+
+[https://www.bbc.com/news/health-59895598](https://www.bbc.com/news/health-59895598)
+
+*****
+
+####  riczxc  
+##### 3029#         楼主| 发表于 2022-1-7 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194086&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-7 01:09</a>
+
+拿机械通气的数字来糊弄的phe等
+
+英国人，前EUPHA的头自己说的</blockquote>
+其实就是因为不想承认1，所以才说口罩没用。都是联系在一起的。
+
