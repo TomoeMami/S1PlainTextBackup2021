@@ -990,3 +990,29 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没什么必要去诉求萌萌二次元们的认可吧
 
+
+
+*****
+
+####  新的起源  
+##### 3081#       发表于 2022-1-8 00:04
+
+新cg出了
+主题看来是凡人对抗神灵
+
+尤其是潘森细节很多
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  暗黑能乐  
+##### 3082#       发表于 2022-1-8 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54206124&amp;ptid=2002246" target="_blank">新的起源 发表于 2022-1-8 00:04</a>
+
+新cg出了
+
+主题看来是凡人对抗神灵</blockquote>
+卡莎岩雀那个也算吗（
+
