@@ -534,3 +534,18 @@ Smallwood说，她预计这种情况也会在其他欧洲国家上演。
 决定排毒量多少的主要因素可能是生理结构……</blockquote>
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  KOGmk2  
+##### 3040#       发表于 2022-1-7 10:35
+
+ 本帖最后由 KOGmk2 于 2022-1-7 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194572&amp;ptid=2039422" target="_blank">wrnk 发表于 2022-1-7 04:40</a>
+
+你美这个感染速度真能实现群体免疫了吧，跟印度一样
+
+看数据o变种威力不太大，都感染一波以后就真流感化了？ ...</blockquote>
+西班牙大流感最强的一波就是第三年秋冬的那一波ADE风暴,之前得过的人个个过death check,按目前欧米鬼畜整天念经的三年结束,要是复刻上世纪最大活动,那今年秋冬就能看到每天上百万级的死亡
+
