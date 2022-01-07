@@ -16886,3 +16886,48 @@ live完后病遁 live完休息 live后人就消失了 循环几次一年就混�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这比赛都第三年了吧？老本早就吃完了
 
+
+
+*****
+
+####  面具13  
+##### 7387#       发表于 2022-1-7 13:40
+
+今年练只是为了跑起来没那么难看，胜负心真的不怎么看得到。毕竟去年是默认第一是自己的，今年基本上是重在参与，没出线应该都是预想内的，所以没什么情绪起伏，更别提决赛争第一了。
+
+*****
+
+####  TiHaru  
+##### 7388#       发表于 2022-1-7 13:42
+
+今天声线有点凛子的味道
+
+*****
+
+####  kesoi  
+##### 7389#       发表于 2022-1-7 13:44
+
+和她以前比差挺多，菜得我想笑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7390#       发表于 2022-1-7 13:49
+
+以后出去别叫gamer了，太丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7391#       发表于 2022-1-7 13:52
+
+什么gamer 现在要叫idol<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7392#       发表于 2022-1-7 13:57
+
+<blockquote>ホロライブ所属アイドルゲーマーメイド</blockquote>
+请推特帐号管理者把gamer和maid去掉，加个onion，谢谢
+
