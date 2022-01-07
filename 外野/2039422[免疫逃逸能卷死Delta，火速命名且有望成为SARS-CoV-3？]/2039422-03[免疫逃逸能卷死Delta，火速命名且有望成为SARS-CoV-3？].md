@@ -882,3 +882,104 @@ ICU突破81.8%了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Delta做不到的事，omicron做到了。美国穷鬼住不起 icu，意味着住得起icu的美国中产已经能令icu接近满载。
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 3068#       发表于 2022-1-7 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205618&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-7 23:10</a>
+洛杉矶时报：橙县已有3名5岁以下儿童死于Omicron</blockquote>
+橙县人口多少，哪个州的？
+
+*****
+
+####  惊奇记事簿  
+##### 3069#       发表于 2022-1-7 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205747&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-7 23:22</a>
+前年胜利大逃亡真是太对了。傻逼白皮自己搞歧视去吧，爷跑路了！</blockquote>
+恭喜恭喜
+
+*****
+
+####  烦死了  
+##### 3070#       发表于 2022-1-7 23:42
+
+就是La下面的一个三百万常住人口大郡
+死3个根本没感觉的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  pushare  
+##### 3071#       发表于 2022-1-7 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205922&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-7 23:40</a>
+
+橙县人口多少，哪个州的？</blockquote>
+Greater Los Angeles
+
+*****
+
+####  惊奇记事簿  
+##### 3072#       发表于 2022-1-7 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205941&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-7 23:42</a>
+就是La下面的一个三百万常住人口大郡
+死3个根本没感觉的</blockquote>
+5岁下的也挺特殊的了
+
+*****
+
+####  公共知识  
+##### 3073#       发表于 2022-1-7 23:44
+
+mild，都可以mild。
+
+群体免疫，我看行。
+
+我现在比较期待的是，如果3个月后美帝感染人数破1亿，剩余2亿人中保守估计有1亿人第3针的免疫力消失了、第4针没来得及打。
+
+尚有传染能力的几千万人向另1亿没有抵抗能力的人传播O病毒，是怎样的局面。
+
+*****
+
+####  smy20011  
+##### 3074#       发表于 2022-1-7 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205961&amp;ptid=2039422" target="_blank">公共知识 发表于 2022-1-7 23:44</a>
+mild，都可以mild。
+
+群体免疫，我看行。</blockquote>
+抗体和免疫力不一样，有细胞免疫的机制存在
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  江涵  
+##### 3075#       发表于 2022-1-7 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205922&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-7 23:40</a>
+
+橙县人口多少，哪个州的？</blockquote>
+Orange County
+
+加州非常富裕的县
+
+310多万人口
+
+*****
+
+####  惊奇记事簿  
+##### 3076#       发表于 2022-1-7 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54206064&amp;ptid=2039422" target="_blank">江涵 发表于 2022-1-7 23:57</a>
+Orange County
+
+加州非常富裕的县
+
+310多万人口</blockquote>
+死的是中产家的娃的概率有多高。
+
