@@ -10840,3 +10840,12 @@ FIf2qAraAE41wqK.jpg
 
 新人资源真多啊……我也想要这种质量比较高的立绘不崩的谷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 9920#       发表于 2022-1-8 01:07
+
+不知道的还以为是彩虹什么大人气组合了
+
