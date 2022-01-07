@@ -11397,3 +11397,17 @@ YYGQ起来了
 
 像神一样真的好色啊好色啊不知道为什么好色啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 7310#       发表于 2022-1-7 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54197259&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-1-7 11:48</a>
+她巅峰都不可能有这数的一半再一半吧</blockquote>
+她19年全年油管sc1800万日元，算上b站应该有3000了
+纳税3000万啊，那没事了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
