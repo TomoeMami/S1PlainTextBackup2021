@@ -7953,3 +7953,26 @@ https://grapee.jp/1053371</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如先说明一下什么叫偶像女团感
 
+
+
+*****
+
+####  chenflyyy  
+##### 3736#       发表于 2022-1-7 17:28
+
+没有团体感是从动画就开始了，很还原<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 3737#       发表于 2022-1-7 17:32
+
+大概是青山和逢田的区别？
+
+*****
+
+####  lj205  
+##### 3738#       发表于 2022-1-7 17:41
+
+什么是偶像团体感
+
