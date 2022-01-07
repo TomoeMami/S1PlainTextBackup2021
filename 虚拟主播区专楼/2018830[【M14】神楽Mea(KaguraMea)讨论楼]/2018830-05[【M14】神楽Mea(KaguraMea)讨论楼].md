@@ -11704,3 +11704,14 @@ op赶紧似一似<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 杀社畜了
 
+
+
+*****
+
+####  andeloz  
+##### 7345#       发表于 2022-1-8 06:26
+
+小麻好有精神啊<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
