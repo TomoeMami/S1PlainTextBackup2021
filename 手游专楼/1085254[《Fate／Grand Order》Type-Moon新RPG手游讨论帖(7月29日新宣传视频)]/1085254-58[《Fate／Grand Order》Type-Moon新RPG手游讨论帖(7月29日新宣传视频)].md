@@ -9870,3 +9870,19 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 两个狐狸点三下不换人就能提供群50+单50合计200np，猛飞了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 86455#       发表于 2022-1-7 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54196062&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-7 10:15</a>
+
+现在的问题就是暗兔子二面伤害感人
+
+要是特攻能拉高一点，第二面只要是地属性红卡就能乱杀
+
+两个狐狸点三下 ...</blockquote>
+之前暗狐一宝时去刷龙牙 12技能都开了 二面敌人地之力 一个特效毁天灭地的宝具砸下去 屏幕上最后蹦出一个合计五位数的总伤害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
