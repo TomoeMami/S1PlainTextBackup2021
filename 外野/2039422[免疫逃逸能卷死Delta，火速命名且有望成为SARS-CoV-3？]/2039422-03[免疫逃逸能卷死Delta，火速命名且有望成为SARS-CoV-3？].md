@@ -381,3 +381,21 @@ https://www.forbes.com/sites/georgecalhoun/2022/01/02/beijing-is-intentionally-u
 
 —— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  Alexmacau8  
+##### 3031#       发表于 2022-1-7 08:30
+
+12月初就有人在吹了，奥米克隆会终结新冠大流行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“会人传人的疫苗”，你怕了吗？ 黑色幽默即是现实。
+
+*****
+
+####  s1娘铁粉  
+##### 3032#       发表于 2022-1-7 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54194533&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-7 04:00</a>
+【#苏格兰报纸提出建立“新冠拘留营”# 】周二，苏格兰最大的报纸《每日纪事报》（Daily Record ）在脸书上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下不民主了
+
