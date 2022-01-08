@@ -10918,3 +10918,22 @@ FIf2qAraAE41wqK.jpg
 
 Syl，跳绳大赛的切片意外的很均匀的一个个被单人翻译和翻译组烤出来了...
 
+
+
+*****
+
+####  poipanchao  
+##### 9927#       发表于 2022-1-8 19:08
+
+[https://www.youtube.com/watch?v=-PgA7csFydI](https://www.youtube.com/watch?v=-PgA7csFydI)
+
+无意间刷到这个，king这人还蛮不错的
+
+甲子园的时候到这个底边管主（订阅20人）那学习育成，比赛前还去道了个谢
+
+今年跨年杂谈的时候king看到这个管主打的sc马上认出来，提了这事以后
+
+这位才做了这个剪辑
+
+属实底边救星了
+
