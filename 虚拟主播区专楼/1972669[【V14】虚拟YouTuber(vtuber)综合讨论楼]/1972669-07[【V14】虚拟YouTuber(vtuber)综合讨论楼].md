@@ -10884,3 +10884,14 @@ FIf2qAraAE41wqK.jpg
 
 如果有英文版的话我觉得你可以期待一下en女玩
 
+
+
+*****
+
+####  pansherry  
+##### 9924#       发表于 2022-1-8 11:49
+
+放铳大师安啾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
