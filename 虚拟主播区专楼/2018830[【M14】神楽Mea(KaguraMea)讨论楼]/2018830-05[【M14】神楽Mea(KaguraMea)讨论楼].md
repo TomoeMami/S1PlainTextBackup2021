@@ -11941,3 +11941,22 @@ https://m.twitch.tv/videos/1256604843
 
 哪里说的吃711 反正我人刚醒，要死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 7371#       发表于 2022-1-8 18:55
+
+当然是我猜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7372#       发表于 2022-1-8 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54212658&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-1-8 18:55</a>
+
+当然是我猜的</blockquote>
+能不能在你猜的前面加上我猜两个字。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

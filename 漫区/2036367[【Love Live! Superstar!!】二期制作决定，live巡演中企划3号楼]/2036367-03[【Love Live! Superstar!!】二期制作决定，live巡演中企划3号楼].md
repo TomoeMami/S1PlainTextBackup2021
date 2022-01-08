@@ -8957,3 +8957,158 @@ AA2B0219-D883-4A7D-B328-5B1613D62ADF.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼抱着pay还要回头看打铁
 
+
+
+*****
+
+####  仟音一心  
+##### 3807#       发表于 2022-1-8 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54212498&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-1-8 18:41</a>
+
+鱼抱着pay还要回头看打铁</blockquote>
+
+是打铁Nako先抱的，合鲤只是击掌
+
+F4E22767-0E78-4331-896C-E38305C7B662.jpeg
+(259.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184537i9tk7mk7k87gegme.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E608BD69-4D98-4F7C-989F-0F7407CB5255.jpeg
+(27.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184638xjm4w773ucz6jdpu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4DD82CF1-87E8-4742-AFE1-F3E18D1A9E39.jpeg
+(86.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184644z6efrnsyj6nrbnjz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+28691521-C7CC-4EC4-9BE8-794B278E1749.jpeg
+(32.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:46 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184652knpjr6zhzjhkzz11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2A0753D2-0C1F-4D02-971F-CA7CFBADF293.jpeg
+(88.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184701oqjy4q8ki475z516.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7E89C9E2-C8F1-442A-B7B5-11ECAF786AE0.jpeg
+(122.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184701clbbtthg88hgg1hr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+27B7E12A-027D-44AA-B3EA-4743975EE3F0.jpeg
+(90.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/184815footwpoxpdtdeq33.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3808#       发表于 2022-1-8 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54212567&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-8 18:47</a>
+是打铁Nako先抱的，合鲤只是击掌</blockquote>
+都是一开始击掌后来分别抱的
+
+*****
+
+####  stygian  
+##### 3809#       发表于 2022-1-8 18:57
+
+爱知宫城傻傻分不清
+
+*****
+
+####  iuhehc  
+##### 3810#       发表于 2022-1-8 18:57
+
+鲤鱼语言模块检测
+
+
+
+*****
+
+####  cybernetics31  
+##### 3811#       发表于 2022-1-8 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cut！笑死
+
+*****
+
+####  lj205  
+##### 3812#       发表于 2022-1-8 18:58
+
+我靠好冷！<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3813#       发表于 2022-1-8 18:58
+
+“タン食う食う”
+
+どうでもいいよ！！！！！！！！！！！！！！！！！
+
+结果还是你鲤鱼姐先提吃的话题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3814#       发表于 2022-1-8 19:01
+
+唐可可=タン食う食う 
+这个梗极高明但发音不是“烫裤裤”那边能懂的吧？
+
+*****
+
+####  stygian  
+##### 3815#       发表于 2022-1-8 19:02
+
+推上wota先玩的梗，你鲤鱼姐高强度SNS自搜当然懂梗啦
+
+*****
+
+####  lj205  
+##### 3816#       发表于 2022-1-8 19:02
+
+蓝鸟上之前就有了问题不大
+
+*****
+
+####  iuhehc  
+##### 3817#       发表于 2022-1-8 19:03
+
+小百合这眼泪在打转了愣是没掉下来
+
