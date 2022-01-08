@@ -1384,3 +1384,15 @@ LeBonHommedelta从爆发到现在见顶历时八个月。  以此类推的话�
 —— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 是被omicron累坏了的核酸检测团队放了假，倒不是故意的
 
+
+
+*****
+
+####  yhaos  
+##### 3113#       发表于 2022-1-8 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207167&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-8 03:43</a>
+
+不是，要是人类免疫系统这么弱鸡，人早就灭亡了不是么</blockquote>
+？人类平均寿命什么时候拉到40岁以上的来着？
+
