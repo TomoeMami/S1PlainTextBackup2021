@@ -6966,3 +6966,28 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 <img src="https://p.sda1.dev/4/8b2015d01eb6e48e4eeed5f51299c12f/9.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 537#       发表于 2022-1-8 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54214511&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-8 20:42</a>
+
+线下观影repo（？）
+
+从报名线下组织的观影开始到现在都忍着再没点开过剧场版，专楼也没怎么进，现在看看竟 ...</blockquote>
+广州北京上周就开过了，长沙是这周，上海15 杭州16
+
+这些物料什么的都是广州那边设计的 后面全国都在用了
+
+而且说到底这些并不是官方组织的活动，版权风险还挺大的，之前泥潭好像组织过线下观影还被官方点名律师函警告来着，也不好大肆宣传<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 538#       发表于 2022-1-9 00:00
+
+我终於懂扭曲怪了，剧场版这忧郁的恋宝太心疼了，我好想看她破防大哭阿，攒了12年的眼泪一口气崩溃一定很抹布洗吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
