@@ -17146,3 +17146,14 @@ Like &gt;&gt;16025228 said, she ran away from the competition. Want a better com
 syl：Gura发了小粥Discord好友申请，说很喜欢小粥前辈，觉得人非常comfortable
 感觉Gura是真的很想加入夸宝这个小圈子，可惜不会日语
 
+
+
+*****
+
+####  面具13  
+##### 7413#       发表于 2022-1-8 15:48
+
+下午四点的早安推
+
+其实en和jp交流应该直接上语音识别和翻译机，草生也有草生的乐趣，比像个傻子一样用诡异的口音重复单个词强多了。
+
