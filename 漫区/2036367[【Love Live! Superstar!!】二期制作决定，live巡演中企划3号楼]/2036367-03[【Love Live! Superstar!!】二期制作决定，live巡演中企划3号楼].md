@@ -8314,3 +8314,49 @@ b站小鬼没下限不早就是共识了吗？<img src="https://static.saraba1st
 只有卷末啊……我还以为还有内页和采访</blockquote>
 有卷末特集
 
+
+
+*****
+
+####  stygian  
+##### 3770#       发表于 2022-1-8 16:36
+
+打铁上来就破音<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+运营二巡做个人吧，set list好好安排下
+
+*****
+
+####  中野四葉  
+##### 3771#       发表于 2022-1-8 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小百合好激动
+
+*****
+
+####  cybernetics31  
+##### 3772#       发表于 2022-1-8 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">跨年录像看多了又回到小场有点不适应
+
+*****
+
+####  CAserlumos  
+##### 3773#       发表于 2022-1-8 16:43
+
+盲猜今天选妃是打铁，明天其他四个选鲤鱼
+
+*****
+
+####  CAserlumos  
+##### 3774#       发表于 2022-1-8 16:43
+
+盲猜今天选妃是打铁，明天其他四个选鲤鱼
+
+*****
+
+####  stygian  
+##### 3775#       发表于 2022-1-8 16:43
+
+这么多县外，打铁gachi恐怖如斯
+
