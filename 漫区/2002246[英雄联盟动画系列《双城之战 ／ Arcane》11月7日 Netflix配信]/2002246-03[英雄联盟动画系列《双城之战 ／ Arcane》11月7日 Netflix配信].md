@@ -1172,3 +1172,18 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  厄神之息  
+##### 3097#       发表于 2022-1-8 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211602&amp;ptid=2002246" target="_blank">新的起源 发表于 2022-1-8 17:04</a>
+今天老徐新视频算是开团lol宇宙团队了吧
+
+居然还说他提意见不受待见</blockquote>
+真不是我说他，一个看双城之战第七集能喊出艾克开大了，平常做故事梗概梳理视频，连基本阅读理解都做不利索的人，一个彩蛋发掘靠捡贴吧剩饭的人，是不是也太把自己当回事，把自己能力想的太高了。他能提出什么火箭得烧水洗煤式的建议真是脚指头想都想得到，要我是剧情负责人我也不待见他好吗。更别说这只是他一面之词，谁知道真实情况什么样。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
