@@ -9833,3 +9833,20 @@ pay酱肯定是眠了<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  名津流  
+##### 3860#       发表于 2022-1-9 01:42
+
+<img src="https://img.saraba1st.com/forum/202201/09/014151te2ilenogn8lgzg7.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220109014141.jpg</strong> (232.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 01:41 上传
+
+日本阿宅这阵仗，还可以？
+
