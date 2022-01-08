@@ -9497,3 +9497,65 @@ liella!之歌次数统计
 
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 3829#       发表于 2022-1-8 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54215283&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-8 21:29</a>
+
+艹，鲤鱼今天返图前先晒牛舌还行，タン食う食う这梗玩的停不下来了
+
+  -- 来自 有消息提醒的 Stage1 ...</blockquote>
+emi转了
+
+A0D273D8-BEB1-4D01-B00E-E67FF14EA3A3.jpeg
+(326.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 21:48 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/214832b5ppn5z4pjf70pnf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3830#       发表于 2022-1-8 21:50
+
+ 本帖最后由 iuhehc 于 2022-1-8 21:51 编辑 
+
+  、
+
+*****
+
+####  仟音一心  
+##### 3831#       发表于 2022-1-8 21:50
+
+ 本帖最后由 仟音一心 于 2022-1-8 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54213679&amp;ptid=2036367" target="_blank">ykyin09 发表于 2022-1-8 19:55</a>
+
+伊达政宗还行</blockquote>
+
+真有
+
+C5632918-410D-4AB9-BC65-5C5FBEE370EE.jpeg
+(548.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/215016cppcpwadqjbcbadq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+026A8D56-3BC1-46B3-A5DA-5505858747FE.png
+(107.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 21:59 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/215928ru7hsqfq11ht9qjc.png" referrerpolicy="no-referrer">
+
