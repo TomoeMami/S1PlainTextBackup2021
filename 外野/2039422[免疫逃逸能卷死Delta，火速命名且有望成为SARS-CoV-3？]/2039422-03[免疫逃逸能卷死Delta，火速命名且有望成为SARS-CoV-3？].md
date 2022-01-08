@@ -1139,3 +1139,18 @@ BA3已经有了
 
 根据路透社对美国当地媒体的一些公开报道研究，包括马里兰州、弗吉尼亚州和俄亥俄州在内的美国近一半州的医院系统宣布将推迟择期手术，至少三个州政府：纽约州、伊利诺伊州和麻萨诸塞州已经实施或建议在全州范围内推迟择期手术。
 
+
+
+*****
+
+####  烦死了  
+##### 3091#       发表于 2022-1-8 08:17
+
+CDC 主任说了， 欧米克隆来的快去的也快，不用慌
+
+Omicron cases could fall just as quickly as they rose, CDC says
+
+美国又赢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[https://www.nbcnews.com/health/h ... -cdc-says-rcna11356](https://www.nbcnews.com/health/health-news/omicron-cases-fall-just-quickly-rose-cdc-says-rcna11356)
+
