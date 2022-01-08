@@ -11776,3 +11776,35 @@ op赶紧似一似<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 八胜二败青铜一。
 
+
+
+*****
+
+####  Klience  
+##### 7353#       发表于 2022-1-8 09:05
+
+凌晨两点打到现在咯 定级赛打完了 青铜一 波比77的胜率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 7354#       发表于 2022-1-8 09:07
+
+刚起来，她结束了
+
+*****
+
+####  专业划水人员  
+##### 7355#       发表于 2022-1-8 09:08
+
+8胜还青铜啊？
+
+*****
+
+####  Klience  
+##### 7356#       发表于 2022-1-8 09:11
+
+ 本帖最后由 Klience 于 2022-1-8 09:16 编辑 
+
+这个号的排位又不是经常打 段位和分数又不是说特别高 去年在白银4<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
