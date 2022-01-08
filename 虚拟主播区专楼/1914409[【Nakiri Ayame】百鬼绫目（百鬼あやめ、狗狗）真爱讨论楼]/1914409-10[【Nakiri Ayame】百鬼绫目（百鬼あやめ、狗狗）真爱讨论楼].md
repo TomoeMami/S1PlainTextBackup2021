@@ -3572,3 +3572,14 @@ mio占卜直接暗示要绫总今年继续开摆<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13858#       发表于 2022-1-8 22:49
+
+润姨还是没能成功约到绫总吃饭，直播问观众怎么约，现场在Discord发了个消息
+
+这样说起来上次说要约夸夸的也没下文了，可能这就是卍組吧
+
