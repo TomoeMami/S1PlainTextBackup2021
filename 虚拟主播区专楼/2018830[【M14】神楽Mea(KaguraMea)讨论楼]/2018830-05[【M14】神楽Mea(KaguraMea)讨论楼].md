@@ -11817,3 +11817,19 @@ op赶紧似一似<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 家长一走就通宵
 
+
+
+*****
+
+####  2014720  
+##### 7358#       发表于 2022-1-8 10:49
+
+青铜一哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 7359#       发表于 2022-1-8 11:01
+
+打完定级赛估计再打几场排位就不会再打排位了 每年赛季都这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
