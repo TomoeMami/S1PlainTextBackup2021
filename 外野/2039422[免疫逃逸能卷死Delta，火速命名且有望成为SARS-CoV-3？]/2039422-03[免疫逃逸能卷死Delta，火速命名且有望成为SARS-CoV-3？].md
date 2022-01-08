@@ -1179,3 +1179,34 @@ Omicron cases could fall just as quickly as they rose, ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  烦死了  
+##### 3094#       发表于 2022-1-8 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207616&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-8 08:36</a>
+
+那么代价呢。刚刚楼里算了下才发现，美国日感数值/人口已经超过南非的峰值/人口了 ...</blockquote>
+只是统计数字罢了，只要媒体不做个体报道， 没感觉的
+
+*****
+
+####  wszweill  
+##### 3095#       发表于 2022-1-8 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207633&amp;ptid=2039422" target="_blank">neptunehs 发表于 2022-1-7 19:39</a>
+
+据拍老师说南非昨天校正回归死亡暴涨 所以还是米国输吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S ...</blockquote>
+无论怎么说南非对美帝，是六千万对3个亿，我相信美帝实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克鲁特尼  
+##### 3096#       发表于 2022-1-8 08:58
+
+原来南非校正回归是因为整个测序团队双旦休假了？
+

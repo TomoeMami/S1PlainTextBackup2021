@@ -11751,3 +11751,28 @@ op赶紧似一似<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 老子快不行了，希望打完这把赶紧跑
 
+
+
+*****
+
+####  Klience  
+##### 7350#       发表于 2022-1-8 08:50
+
+快打完定级赛了 到时候看看段位到哪里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  aisakahammer  
+##### 7351#       发表于 2022-1-8 08:56
+
+我睡醒了，她还在打啊
+
+*****
+
+####  遗忘回想  
+##### 7352#       发表于 2022-1-8 09:04
+
+八胜二败青铜一。
+
