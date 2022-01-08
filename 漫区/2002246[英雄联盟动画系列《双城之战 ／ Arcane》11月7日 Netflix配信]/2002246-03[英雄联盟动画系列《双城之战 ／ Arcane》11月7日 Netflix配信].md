@@ -1157,3 +1157,18 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  暗黑能乐  
+##### 3096#       发表于 2022-1-8 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211602&amp;ptid=2002246" target="_blank">新的起源 发表于 2022-1-8 17:04</a>
+今天老徐新视频算是开团lol宇宙团队了吧
+
+居然还说他提意见不受待见</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">啊这，他算啥啊
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

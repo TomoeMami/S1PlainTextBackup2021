@@ -8576,3 +8576,223 @@ F1B2BA28-D5CB-4EF6-8B8B-31071D9B6A11.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">pay加青山就是美啊
 
+
+
+*****
+
+####  DarthAka  
+##### 3792#       发表于 2022-1-8 17:42
+
+第二张神似佟掌柜，或者说辉夜？
+
+*****
+
+####  仟音一心  
+##### 3793#       发表于 2022-1-8 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211882&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-8 17:37</a>
+
+干活看不了，今天有什么特别的地方吗</blockquote>
+
+nagi三连
+
+5A74171D-247D-43D2-9C69-6DC25D5ECC05.jpeg
+(233.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174348y8z8t5hk6csrh881.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+73CEF0B0-C7CB-4223-8C9A-847364CE9C3F.jpeg
+(136.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174348m4e9ucdr9xggztth.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+71CA6BE7-B745-4219-8267-47B14C01CD55.jpeg
+(184.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174348h0hvoshki0dwkysw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D2CDB5F3-919F-4306-8F06-460895850E54.jpeg
+(170.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174348xyn8iyziyzymmydl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B4A9A330-B49A-4074-8D55-541B8B8ACC9F.jpeg
+(170.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174348vao2ocr76j37em6u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+00A56011-3D85-4E75-B0F9-0CAD13531182.jpeg
+(186.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174348azq6jdzf6ooatja1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+18607916-AA43-4203-AAAA-334C7D2A25D3.jpeg
+(133.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174349o28wst2gwpf78fuf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+ED3F89D7-3BA5-4E5A-BBBA-58BA4CA1EA7C.jpeg
+(134.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174349yia2be2fklqrcmeq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+DF142CA0-3B5F-43DF-9C25-01A865F70FDC.jpeg
+(130.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174349jlkz7gbuhzl7up3k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+0B0ADDD8-DDCF-4975-B01A-9301DBD95621.jpeg
+(78.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174349besd3pr3dqu3kuch.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C87D8B72-D3ED-4930-B641-AC8BF9B77A17.jpeg
+(87.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174349vs52x520mn5xzvnh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+48356852-8168-41A4-A25F-83A5812905E0.jpeg
+(69.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174350ztuottaz1ubpuuzy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9E45622B-10C0-4B1C-8D1F-B475BF30C34B.png
+(97.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174350d2y2g2laz3myzdqe.png" referrerpolicy="no-referrer">
+
+DE0D2ACD-F4C1-4EC0-8D50-D63E877D7955.jpeg
+(78.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/174349l64kkwt64iczwzkk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 3794#       发表于 2022-1-8 17:53
+
+刘海剪薄了的pay太好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 3795#       发表于 2022-1-8 17:58
+
+<blockquote>仟音一心 发表于 2022-1-8 17:44
+nagi三连</blockquote>
+有点记不住，这也是nagi第一次三连吧？
+
+*****
+
+####  仟音一心  
+##### 3796#       发表于 2022-1-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54212073&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-8 17:58</a>
+
+有点记不住，这也是nagi第一次三连吧？</blockquote>
+
+是的，全团第二次，上次是鱼
+
+*****
+
+####  仟音一心  
+##### 3797#       发表于 2022-1-8 18:03
+
+群里的，笑喷：
+
+-今天唱小星星的时候，台下都是伊达的父老乡亲，鲤鱼姐的家人一个都没有来
+
+-那是因为签证没办下来。
+
+——唐诱梗
+
+E949158B-1588-48D5-815E-480E2FE4DBA5.jpeg
+(191.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/180306abbb54yibr4bib34.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+73A8146D-C8E8-4A9E-86F7-DEC727DCC248.jpeg
+(246.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/180306rt8snna1r8a666oq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C9A18C8D-2666-42BB-923F-392F86B8B084.jpeg
+(220.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 18:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/180306edv9bvj1djbjjp1j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3798#       发表于 2022-1-8 18:03
+
+pay子进步真的大
+
