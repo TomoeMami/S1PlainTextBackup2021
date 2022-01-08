@@ -1187,3 +1187,17 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  powerpyc  
+##### 3098#       发表于 2022-1-9 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211602&amp;ptid=2002246" target="_blank">新的起源 发表于 2022-1-8 17:04</a>
+
+今天老徐新视频算是开团lol宇宙团队了吧
+
+居然还说他提意见不受待见</blockquote>
+老徐是谁
+

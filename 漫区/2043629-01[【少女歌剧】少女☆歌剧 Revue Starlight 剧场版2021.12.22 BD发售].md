@@ -7007,3 +7007,28 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
  ...</blockquote>
 武士道的眼和手还没那么长，主要看大陆版权在哪吧，基本就是会在叔叔手上。但是毕竟现在还没上架，等叔叔删减完过审之后再想有机会粉丝组织那就是真的难了，能搞也就只有这段时间。
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 540#       发表于 2022-1-9 02:55
+
+<img src="https://img.saraba1st.com/forum/202201/09/025519twwwtl3tb8u5p7tu.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220109025238.jpg</strong> (178.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 02:55 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/025519dep26l7lefzbsb7j.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220109025243.jpg</strong> (399.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 02:55 上传
+
+据说是北京搞的
+
