@@ -17128,3 +17128,21 @@ tc可能不会太多，但以后可能会有更多类似的space。space好像�
 不一定是本人关的，可能是马内甲关的，要预防主播玉玉呢。关掉战场也能防止进一步的不良后果。
 去年5月就反复说着类似爱看看不看滚的话了，游戏也明说没时间私下大量练习再直播了，会跑评论区骂的早脱坑了，现在来的基本上能当黑子打。
 
+
+
+*****
+
+####  nian1538  
+##### 7412#       发表于 2022-1-8 13:45
+
+还能怎么摆，最差无非不播，已经品鉴过了
+而且还有三个月就唱衰也太早了，没什么意思
+还不如看4chan发疯，真的有点好笑
+
+https://boards.4chan.org/vt/thread/16008312#p16043095
+
+Like &gt;&gt;16025228 said, she ran away from the competition. Want a better comparison? There's a Dota 2 player called Ame. He was 2nd place during the World of Dota 2 in 2018. He came back in 2019 and placed 3rd. Then in 2021 he finally won. 
+
+syl：Gura发了小粥Discord好友申请，说很喜欢小粥前辈，觉得人非常comfortable
+感觉Gura是真的很想加入夸宝这个小圈子，可惜不会日语
+

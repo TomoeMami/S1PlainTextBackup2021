@@ -1269,3 +1269,18 @@ LeBonHommedelta从爆发到现在见顶历时八个月。  以此类推的话�
 有现成的真实世界的样本，我们只要观察就好。目前看O株毒性没有delta大，但也在坚定的消耗医疗体系。
 不知道会不会击穿，要配套人口多少比例的医疗资源，这都是很好的观察目标<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  飞侠小黑  
+##### 3103#       发表于 2022-1-8 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207633&amp;ptid=2039422" target="_blank">neptunehs 发表于 2022-1-8 08:39</a>
+据拍老师说南非昨天校正回归死亡暴涨 所以还是米国输吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S ...</blockquote>
+南非也玩校正回归了吗？
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
