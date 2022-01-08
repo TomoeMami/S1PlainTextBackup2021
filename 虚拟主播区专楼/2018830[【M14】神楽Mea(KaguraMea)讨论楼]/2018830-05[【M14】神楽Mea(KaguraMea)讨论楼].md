@@ -11905,3 +11905,19 @@ https://m.twitch.tv/videos/1256604843
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 7368#       发表于 2022-1-8 17:30
+
+ 本帖最后由 璃絵和花瑠 于 2022-1-8 17:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211637&amp;ptid=2018830" target="_blank">海风的巴萨诺瓦 发表于 2022-1-8 17:09</a>
+这外面怎么还有个神2 我险些还走错楼。</blockquote>
+你叫神楽Mea会简称神楽么，麻楼请认准唯一指定M综，那个只是展现认知厨丑态的伪物罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+说起来小麻什么时候能来你楼给我加鹅呢<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+哪怕扣个鹅也行<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
