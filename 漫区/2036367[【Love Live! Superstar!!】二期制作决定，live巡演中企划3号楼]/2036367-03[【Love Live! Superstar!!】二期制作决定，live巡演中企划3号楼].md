@@ -8360,3 +8360,171 @@ b站小鬼没下限不早就是共识了吗？<img src="https://static.saraba1st
 
 这么多县外，打铁gachi恐怖如斯
 
+
+
+*****
+
+####  CAserlumos  
+##### 3776#       发表于 2022-1-8 16:47
+
+pay宝越来越美了
+
+*****
+
+####  iuhehc  
+##### 3777#       发表于 2022-1-8 16:47
+
+今天选的是小百合呢
+
+*****
+
+####  cybernetics31  
+##### 3778#       发表于 2022-1-8 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然选了小百合
+
+*****
+
+####  stygian  
+##### 3779#       发表于 2022-1-8 16:51
+
+网络转播这边音乐声太大了，音响师出来挨打
+
+*****
+
+####  player3960  
+##### 3780#       发表于 2022-1-8 16:51
+
+day1基本都是选小百合吧，不过于情于理今天肯定得是她
+
+
+
+*****
+
+####  仟音一心  
+##### 3781#       发表于 2022-1-8 16:55
+
+历次Day1都是小百合
+
+264792AE-8BCF-4735-9F69-247054875B86.jpeg
+(182.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454twjzkwwrj429t9j4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+DA4357D0-3768-4D18-825A-879803FC56A2.jpeg
+(100.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454bv1va363g6abhjva.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1273F9CF-FA67-446D-AAC2-472A127276C1.jpeg
+(126.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454zdzzxu3m86dgtwt6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F66306B8-D2B8-4004-BF80-0950F7212A9A.jpeg
+(270.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454t6hv1z556qa2o4ao.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A5AD020F-6B00-41D3-AAC0-C19749B34E2F.jpeg
+(157.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454whh42hb99h7derfr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+51ED236B-3B4E-43A0-8494-1E47DF53BEBD.jpeg
+(137.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454zfzxtsyty2y2sszp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5C65C4C0-3BE7-4580-A567-30226217BA4F.jpeg
+(134.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454x2emek92xe928o9l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+4415DCD2-5E9D-4A77-B8D8-52D4B3EA9D7C.jpeg
+(196.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454fcbqzbjo5oj0otf0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+86B21EE2-6CBF-4192-A73A-34B8E2896A21.jpeg
+(135.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165454dvqelkael7bxcvzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+F1B2BA28-D5CB-4EF6-8B8B-31071D9B6A11.jpeg
+(290.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/165455iznbaa5skht3a92h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  中野四葉  
+##### 3782#       发表于 2022-1-8 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎这嗓子，心疼
+
+*****
+
+####  CAserlumos  
+##### 3783#       发表于 2022-1-8 16:57
+
+未来预报接独唱还是太离谱了
+
+*****
+
+####  寒风夜  
+##### 3784#       发表于 2022-1-8 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3785#       发表于 2022-1-8 17:01
+
+ 本帖最后由 stygian 于 2022-1-8 17:06 编辑 
+
+还好2nd隔的比较长，赶紧找声乐老师好好练
+
+小星星第一句多半是要崩，难受啊。。。。。。。。。
+
