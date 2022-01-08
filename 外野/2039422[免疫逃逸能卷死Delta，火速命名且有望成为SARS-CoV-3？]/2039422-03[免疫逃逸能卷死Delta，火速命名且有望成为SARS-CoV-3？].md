@@ -1331,3 +1331,34 @@ LeBonHommedelta从爆发到现在见顶历时八个月。  以此类推的话�
 
 —— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  genjimono  
+##### 3108#       发表于 2022-1-8 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207167&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-8 03:43</a>
+
+不是，要是人类免疫系统这么弱鸡，人早就灭亡了不是么</blockquote>
+反了，人类拥有动物界最强的免疫系统
+
+*****
+
+####  金鱼师父  
+##### 3109#       发表于 2022-1-8 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54202547&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-7 18:46</a>
+
+可以看到美国医疗崩溃？</blockquote>
+想多了 私立医院只要把好关卡不让你进去还是很简单的
+
+*****
+
+####  最好不说  
+##### 3110#       发表于 2022-1-8 16:19
+
+<blockquote>金鱼师父 发表于 2022-1-8 16:07
+想多了 私立医院只要把好关卡不让你进去还是很简单的</blockquote>
+公立医院也可以tirage，说白了只要不让人死走廊上（死外面、死家里、死哪都好)医疗就可以一直不崩溃，形式永远稳中向好
+

@@ -1132,3 +1132,15 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  飞升之后  
+##### 3094#       发表于 2022-1-8 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211047&amp;ptid=2002246" target="_blank">暗黑能乐 发表于 2022-1-8 15:56</a>
+
+我看英雄预告整尬笑死，会出一个来自虚空的辅助，搁那尬演说我们的女皇将君临大陆之类的巴拉巴拉一大堆，是 ...</blockquote>
+还能比太痛了还小丑？那可太乐了
+
