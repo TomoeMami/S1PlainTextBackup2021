@@ -1396,3 +1396,25 @@ LeBonHommedelta从爆发到现在见顶历时八个月。  以此类推的话�
 不是，要是人类免疫系统这么弱鸡，人早就灭亡了不是么</blockquote>
 ？人类平均寿命什么时候拉到40岁以上的来着？
 
+
+
+*****
+
+####  烦死了  
+##### 3114#       发表于 2022-1-8 20:22
+
+土澳也日增10w了啊 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 好起来了
+
+*****
+
+####  smy20011  
+##### 3115#       发表于 2022-1-8 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54213809&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-8 20:03</a>
+？人类平均寿命什么时候拉到40岁以上的来着？</blockquote>
+https://zh.wikipedia.org/wiki/%E9%A2%84%E6%9C%9F%E5%AF%BF%E5%91%BD
+
+古代平均寿命低是因为新生儿死亡率极高。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
