@@ -11886,3 +11886,22 @@ https://m.twitch.tv/videos/1256604843
 
 昨晚竟然留档了，打开电脑💻下载，继续睡。
 
+
+
+*****
+
+####  海风的巴萨诺瓦  
+##### 7366#       发表于 2022-1-8 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这外面怎么还有个神2 我险些还走错楼。
+
+*****
+
+####  443421870  
+##### 7367#       发表于 2022-1-8 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54211637&amp;ptid=2018830" target="_blank">海风的巴萨诺瓦 发表于 2022-01-08 17:09:24</a>
+这外面怎么还有个神2 我险些还走错楼。</blockquote>那是vr一个新v瑞娅的s1账号神风探索者的专楼，v本人在里面扣鹅加鹅
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

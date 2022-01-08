@@ -1144,3 +1144,16 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 我看英雄预告整尬笑死，会出一个来自虚空的辅助，搁那尬演说我们的女皇将君临大陆之类的巴拉巴拉一大堆，是 ...</blockquote>
 还能比太痛了还小丑？那可太乐了
 
+
+
+*****
+
+####  新的起源  
+##### 3095#       发表于 2022-1-8 17:04
+
+今天老徐新视频算是开团lol宇宙团队了吧
+
+居然还说他提意见不受待见<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
