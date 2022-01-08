@@ -6991,3 +6991,19 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 我终於懂扭曲怪了，剧场版这忧郁的恋宝太心疼了，我好想看她破防大哭阿，攒了12年的眼泪一口气崩溃一定很抹布洗吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  堆雪若叶  
+##### 539#         楼主| 发表于 2022-1-9 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54216765&amp;ptid=2043629" target="_blank">Mc凉月奏酱 发表于 2022-1-8 23:58</a>
+
+广州北京上周就开过了，长沙是这周，上海15 杭州16
+
+这些物料什么的都是广州那边设计的 后面全国都在用了
+
+ ...</blockquote>
+武士道的眼和手还没那么长，主要看大陆版权在哪吧，基本就是会在叔叔手上。但是毕竟现在还没上架，等叔叔删减完过审之后再想有机会粉丝组织那就是真的难了，能搞也就只有这段时间。
+
