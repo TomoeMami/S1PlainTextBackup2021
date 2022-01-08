@@ -9476,3 +9476,24 @@ liella!之歌次数统计
 
 2022-1-8 20:43 上传
 
+
+
+*****
+
+####  player3960  
+##### 3827#       发表于 2022-1-8 21:29
+
+艹，鲤鱼今天返图前先晒牛舌还行，タン食う食う这梗玩的停不下来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 3828#       发表于 2022-1-8 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54214552&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-8 20:44</a></blockquote>
+印象中lgbt群体都没不会穿这种衣服了，这就是没设计就是最好的设计吗
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

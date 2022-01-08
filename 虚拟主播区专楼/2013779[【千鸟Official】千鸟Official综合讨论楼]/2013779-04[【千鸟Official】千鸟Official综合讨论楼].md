@@ -4920,3 +4920,19 @@ A：运营组工具人们非常感谢各位鸟P的心意~但是礼物真的不�
 
 co宝《等一下，好怪，再看一遍》
 
+
+
+*****
+
+####  伞沢直美  
+##### 5005#       发表于 2022-1-8 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝团号继续哑巴新娘
+
+*****
+
+####  灰色的狐狸  
+##### 5006#       发表于 2022-1-8 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">台剧这真的看不来
+
