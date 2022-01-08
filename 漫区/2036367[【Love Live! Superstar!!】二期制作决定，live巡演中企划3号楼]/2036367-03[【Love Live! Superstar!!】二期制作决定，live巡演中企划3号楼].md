@@ -8934,3 +8934,26 @@ AA2B0219-D883-4A7D-B328-5B1613D62ADF.jpeg
 
 但是今年还是不能换发型<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 3804#       发表于 2022-1-8 18:26
+
+星光序曲最后那句竟然颇完美的唱出来了。。。真不容易
+
+*****
+
+####  lj205  
+##### 3805#       发表于 2022-1-8 18:34
+
+台下还有人带着纱巾来一起摇的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3806#       发表于 2022-1-8 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼抱着pay还要回头看打铁
+
