@@ -5459,3 +5459,58 @@ x3@贝拉kira 啊哈！<blockquote>
 <img src="https://p.sda1.dev/4/2d93eea2e3b4a78d7f95948865991d9c/IMG_CMP_210713274.png" referrerpolicy="no-referrer">
 历史上的今天
 
+
+
+*****
+
+####  sanlow666  
+##### 402#         楼主| 发表于 2022-1-9 00:55
+
+乃琳Queen:[【感谢我的奶淇琳宝们~】50w粉纪念回【完整录播】](https://t.bilibili.com/613218349441080393) <blockquote>节目单：
+
+舞蹈《Sweet Counter》 表演：乃琳
+
+歌曲《海底》演唱：乃琳 贝拉
+
+《互动剧》表演：乃琳 贝拉 奶淇琳
+
+舞蹈《缘起》表演：乃琳
+
+歌曲《迷迭香》表演：乃琳
+
+歌曲《Marry You》演唱：乃琳
+
+舞蹈《国风串烧一》表演：乃琳
+
+荷塘月色 酒醉的蝴蝶 隔岸
+
+舞蹈《国风串烧二》表演：乃琳
+
+故梦 山鬼 红昭愿 醉 花间酒 逍遥
+
+歌曲《爱就一个字》演唱：乃琳
+
+——————————
+
+（运营代发）
+
+素材来自1月2日乃琳50w粉丝纪念直播
+
+表演/出镜：乃琳、向晚、贝拉、珈乐、嘉然
+
+场景：自制
+
+软件：基于Unity自研
+
+动作：动作捕捉</blockquote>
+syl昨天在外面social了一整天，现在才回家转载乃宝这个视频，罪过罪过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 祝贺乃琳首播一周年，昨晚团播也没了，唉，希望五小只都能健健康康的.......
+
+image.png
+(170.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 00:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/005403q145hvvqshlhh8hl.png" referrerpolicy="no-referrer">
+

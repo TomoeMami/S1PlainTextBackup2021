@@ -12002,3 +12002,14 @@ https://m.twitch.tv/videos/1256604843
 
 （笔）杆姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 7377#       发表于 2022-1-9 00:50
+
+没算到还有这一边的姐妹
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

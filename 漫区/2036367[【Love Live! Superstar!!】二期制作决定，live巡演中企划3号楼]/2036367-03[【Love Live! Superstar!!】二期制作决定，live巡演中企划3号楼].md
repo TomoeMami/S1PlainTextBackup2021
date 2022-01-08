@@ -9815,3 +9815,21 @@ pay酱肯定是眠了<img src="https://static.saraba1st.com/image/smiley/face201
 
 鲤鱼生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 3858#       发表于 2022-1-9 00:47
+
+睡醒后还有在live上肯定会祝福~
+
+*****
+
+####  普之舜舜  
+##### 3859#       发表于 2022-1-9 01:01
+
+鲤鱼姐生日快乐
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
