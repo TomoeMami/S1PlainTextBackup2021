@@ -6924,3 +6924,26 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 苏州线下观影浓度太高了
 
+
+
+*****
+
+####  三葉Mitsuha  
+##### 534#       发表于 2022-1-8 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54210414&amp;ptid=2043629" target="_blank">s1娘铁粉 发表于 2022-1-8 14:31</a>
+
+组织者真的很用心
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardito  
+##### 535#       发表于 2022-1-8 20:17
+
+今天复诊了一会，发现花叶revue最后坠落过程中双叶还是把老婆护在前面自己垫在底下，阿香真是赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+不过叶哥哥你倒是翻身翻得很快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
