@@ -1071,3 +1071,18 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 
 他已经抛弃阿特瑞斯的身份成为塔塔开魔怔人了，只要不是凡人就要屠光，这次上巨神峰挑事也是，烈阳教派根本没惹他，他也要上去跟别人闹。
 
+
+
+*****
+
+####  qxs  
+##### 3088#       发表于 2022-1-8 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54208260&amp;ptid=2002246" target="_blank">厄神之息 发表于 2022-1-8 10:16</a>
+不用改，他自己叫自己潘森的。
+
+他已经抛弃阿特瑞斯的身份成为塔塔开魔怔人了，只要不是凡人就要屠光，这 ...</blockquote>
+他想穿过烈阳教派守着的那道门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

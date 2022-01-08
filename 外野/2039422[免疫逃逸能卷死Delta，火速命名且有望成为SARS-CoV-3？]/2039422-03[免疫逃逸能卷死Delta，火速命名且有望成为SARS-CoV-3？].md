@@ -1229,3 +1229,24 @@ Omicron cases could fall just as quickly as they rose, ...</blockquote>
 
 为什么不感谢美国呢，群体免疫政策的实验者，正好3亿人也挺多。
 
+
+
+*****
+
+####  ak123  
+##### 3099#       发表于 2022-1-8 10:29
+
+看了下泥潭阳性贴，前两年可没有那么多测阳的，只能说这病注定要变成米国基础病了
+
+*****
+
+####  公共知识  
+##### 3100#       发表于 2022-1-8 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207167&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-8 03:43</a>
+
+不是，要是人类免疫系统这么弱鸡，人早就灭亡了不是么</blockquote>
+你这真是太可笑了，人类死个10%能灭亡吗？肯定不会啊。但放在美帝，那就是死三千万。
+
+病毒搞不死人类，但是说不定能搞死一个国家。
+
