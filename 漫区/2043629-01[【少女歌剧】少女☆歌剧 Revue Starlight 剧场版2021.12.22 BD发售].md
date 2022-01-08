@@ -6879,3 +6879,28 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 看完了，想不到华恋一直以来也是个被约定束缚的沉重角色。每次片子从光恋小时候的回忆闪回到神色黯然的华恋的时候，都能感到这份沉重的感情。
 
+
+
+*****
+
+####  楠芽吹  
+##### 531#       发表于 2022-1-8 13:31
+
+呜呜呜呜呜呜哇哇哇哇哇哇<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202201/08/133056mke8zg5wse8edwlh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220108130003.png</strong> (76.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 13:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/08/133056r81ep211kx282230.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220108130001.png</strong> (143.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-8 13:30 上传
+
