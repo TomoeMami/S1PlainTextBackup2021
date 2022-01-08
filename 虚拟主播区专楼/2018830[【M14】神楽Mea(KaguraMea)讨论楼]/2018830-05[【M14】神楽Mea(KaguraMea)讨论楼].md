@@ -11833,3 +11833,12 @@ op赶紧似一似<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 打完定级赛估计再打几场排位就不会再打排位了 每年赛季都这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7360#       发表于 2022-1-8 11:17
+
+打上白银就是了。
+
