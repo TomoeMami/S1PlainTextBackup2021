@@ -6915,3 +6915,12 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  MMIno  
+##### 533#       发表于 2022-1-8 14:58
+
+苏州线下观影浓度太高了
+
