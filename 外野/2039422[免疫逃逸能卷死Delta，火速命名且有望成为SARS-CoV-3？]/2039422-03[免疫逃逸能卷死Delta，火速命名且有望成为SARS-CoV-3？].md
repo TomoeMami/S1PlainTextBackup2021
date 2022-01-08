@@ -1154,3 +1154,28 @@ Omicron cases could fall just as quickly as they rose, CDC says
 
 [https://www.nbcnews.com/health/h ... -cdc-says-rcna11356](https://www.nbcnews.com/health/health-news/omicron-cases-fall-just-quickly-rose-cdc-says-rcna11356)
 
+
+
+*****
+
+####  wszweill  
+##### 3092#       发表于 2022-1-8 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207537&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-7 19:17</a>
+
+CDC 主任说了， 欧米克隆来的快去的也快，不用慌
+
+Omicron cases could fall just as quickly as they rose, ...</blockquote>
+那么代价呢。刚刚楼里算了下才发现，美国日感数值/人口已经超过南非的峰值/人口了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  neptunehs  
+##### 3093#       发表于 2022-1-8 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54207616&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-1-8 08:36</a>
+那么代价呢。刚刚楼里算了下才发现，美国日感数值/人口已经超过南非的峰值/人口了 ...</blockquote>
+据拍老师说南非昨天校正回归死亡暴涨 所以还是米国输吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
