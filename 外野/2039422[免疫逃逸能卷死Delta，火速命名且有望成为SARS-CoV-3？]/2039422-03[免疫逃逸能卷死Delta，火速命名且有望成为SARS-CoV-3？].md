@@ -1210,3 +1210,22 @@ Omicron cases could fall just as quickly as they rose, ...</blockquote>
 
 原来南非校正回归是因为整个测序团队双旦休假了？
 
+
+
+*****
+
+####  KOGmk2  
+##### 3097#       发表于 2022-1-8 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54202547&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-7 18:46</a>
+
+可以看到美国医疗崩溃？</blockquote>
+按人员流动估算大概90-92%的时候就击穿了,之后要进ICU的基本都要过death check
+
+*****
+
+####  有点追求  
+##### 3098#       发表于 2022-1-8 10:11
+
+为什么不感谢美国呢，群体免疫政策的实验者，正好3亿人也挺多。
+
