@@ -6904,3 +6904,14 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 2022-1-8 13:30 上传
 
+
+
+*****
+
+####  s1娘铁粉  
+##### 532#       发表于 2022-1-8 14:31
+
+组织者真的很用心<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
