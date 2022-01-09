@@ -12094,3 +12094,19 @@ lol上瘾
 
 开始在奇怪的地方出现了可还行。
 
+
+
+*****
+
+####  Klience  
+##### 7387#       发表于 2022-1-9 13:10
+
+11号的双排排位直播有点看头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7388#       发表于 2022-1-9 13:20
+
+开台就不错，不开就不行
+
