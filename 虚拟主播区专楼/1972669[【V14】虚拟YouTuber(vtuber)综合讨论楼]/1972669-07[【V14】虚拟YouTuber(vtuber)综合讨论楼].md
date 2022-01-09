@@ -11207,3 +11207,12 @@ Syl，/vt/事业民都在骂他秒速下播<img src="https://static.saraba1st.co
 
 4chan已经是EN虹男的形状了（指白皮incel发疯。
 
+
+
+*****
+
+####  dybang  
+##### 9953#       发表于 2022-1-9 23:37
+
+东南亚这么多人看的么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道港澳台占多少
+

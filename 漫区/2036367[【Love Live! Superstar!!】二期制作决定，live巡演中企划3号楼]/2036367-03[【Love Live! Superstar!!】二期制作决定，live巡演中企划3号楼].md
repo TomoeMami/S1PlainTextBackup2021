@@ -11873,3 +11873,38 @@ pay宝呢 pay宝怎么不发 该写不仲小作文了（不是<img src="https://
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 4029#       发表于 2022-1-9 23:26
+
+经纪人又发催泪小长文了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 4030#       发表于 2022-1-9 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226552&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-9 21:54</a>
+
+就之前微博开团那事，就是有人截了三群的聊天记录发出去的。毕竟是在超话宣的群，一些人混进来也正常。 ...</blockquote>
+[https://www.bilibili.com/video/BV1Du411U7PN](https://www.bilibili.com/video/BV1Du411U7PN)
+
+我刚进群没多久又出内鬼事件了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 虽然这次内容没啥问题，但既没打招呼也没打码ID就把群聊截图发B站了
+
+群主说这些情报都是他现场参加完live跟日本朋友喝酒聊天时说的
+
+*****
+
+####  kata魂  
+##### 4031#       发表于 2022-1-9 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54227392&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-9 23:04</a>
+
+bubu!pay酱out！
+
+日本时间已经10号了，没机会了</blockquote>
+pay子她醒了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
