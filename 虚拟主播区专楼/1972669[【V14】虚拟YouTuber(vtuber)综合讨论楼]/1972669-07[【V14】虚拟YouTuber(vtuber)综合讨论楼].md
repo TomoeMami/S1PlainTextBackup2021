@@ -11058,3 +11058,24 @@ en男我是没啥抵触的，游戏力确实高
 Mondo 常闇トワ 橘ひなの
 无论结果如何，hnn应该不用和上次一样坐牢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9940#       发表于 2022-1-9 18:29
+
+烤肉要的是什么，是热情啊，哪有那么多懂游戏的男粉有热情进组<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你赏识en男的游戏力会去看直播，但你会有闲心捡点高光时刻来龙吗？
+
+黑客V最协高光和APEX祭单人战吃鸡组里都说想烤，但是除了偶尔帮忙的编外校对以外从剪辑到翻译没人懂APEX，结果拖到现在也没搞完<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+游戏力出彩的男V说实话除了大会露一手和男粉间口耳相传下真没啥办法宣传……<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+syl
+
+刚看到VOX组都6.3w粉了，国内还需不需要男粉宣传都不好说吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+强调好多次不要打礼物还是有人打搞到最后只能暂时停转播，然后一查光转播收益提现都有1k5rmb，女粉恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

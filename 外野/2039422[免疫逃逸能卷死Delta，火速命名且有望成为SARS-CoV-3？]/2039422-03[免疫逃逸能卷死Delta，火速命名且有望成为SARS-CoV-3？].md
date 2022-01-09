@@ -2136,3 +2136,24 @@ O病毒我觉得够呛
 说真的，就目前我国部分大型城市表现出来的草台现象，真心对防住O病毒有点信心不足 ...</blockquote>
 我也感觉清零政策维持不了多久了
 
+
+
+*****
+
+####  点点杠  
+##### 3178#       发表于 2022-1-9 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223888&amp;ptid=2039422" target="_blank">赛博丁真 发表于 2022-1-9 18:19</a>
+
+我也感觉清零政策维持不了多久了</blockquote>
+还是要防住，我外婆一阵还没打呢，好多老人都没打，放开了，让他们怎么活
+
+*****
+
+####  赛博丁真  
+##### 3179#       发表于 2022-1-9 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223907&amp;ptid=2039422" target="_blank">点点杠 发表于 2022-1-9 18:21</a>
+还是要防住，我外婆一阵还没打呢，好多老人都没打，放开了，让他们怎么活 ...</blockquote>
+防疫能力是有上限的，这波omicron四处开花证明其传播能力已经超过了现在防疫政策的上限，但改变政策后这个上限在哪里，能不能压制得了omicron，我是持悲观态度
+

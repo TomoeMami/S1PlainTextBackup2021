@@ -11352,3 +11352,41 @@ BE8665C5-7746-46A2-9137-5557523E2F36.jpeg
 
 星团下周还有俩追加场呢，带上萨尼趴的
 
+
+
+*****
+
+####  starring  
+##### 3983#       发表于 2022-1-9 18:26
+
+下周追加场结束后应该会开生放送，一巡总结再放点新情报
+
+*****
+
+####  iuhehc  
+##### 3984#       发表于 2022-1-9 18:31
+
+太希望有海外场了可是现在这疫情哎
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3985#       发表于 2022-1-9 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3986#       发表于 2022-1-9 18:43
+
+<img src="https://img.saraba1st.com/forum/202201/09/184337nrio8t8idtygo8dz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (182.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 18:43 上传
+
+草
+

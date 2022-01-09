@@ -10208,3 +10208,32 @@ FAKER！！！
 等等 我填完了怎么没拿到护符</blockquote>
 填完后秒到账，你是不是忘了填id
 
+
+
+*****
+
+####  alucardcz  
+##### 86491#       发表于 2022-1-9 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223950&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-9 18:24</a>
+
+填完后秒到账，你是不是忘了填id</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">填了啊
+
+*****
+
+####  alucardcz  
+##### 86492#       发表于 2022-1-9 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223950&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-9 18:24</a>
+
+填完后秒到账，你是不是忘了填id</blockquote>
+草 漏了一个项目 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86493#       发表于 2022-1-9 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">抽完了 无事发生
+
