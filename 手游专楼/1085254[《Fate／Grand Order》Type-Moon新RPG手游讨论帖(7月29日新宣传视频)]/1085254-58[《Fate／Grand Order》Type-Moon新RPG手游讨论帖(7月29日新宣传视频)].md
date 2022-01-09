@@ -10300,3 +10300,12 @@ FAKER！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好fgo特色的四星立绘
 
+
+
+*****
+
+####  qixinno2  
+##### 86501#       发表于 2022-1-9 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">届不到的暗狐
+

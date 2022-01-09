@@ -11433,3 +11433,54 @@ BE8665C5-7746-46A2-9137-5557523E2F36.jpeg
 
 这打铁要是男的，鲤鱼会不会就沦陷了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 3992#       发表于 2022-1-9 20:24
+
+<blockquote>#Liyuu[超话]# 💫「LoveLive！Superstar!! Liella! First LoveLive! Tour ～Starlines～」in宮城Day2
+
+20场，今天迎来了终演。
+
+在现场也做了一只很想做的生日荧光棒吹蜡烛
+
+所有的一切谢谢你们❤️ </blockquote>
+
+78850247-F36E-4ABE-9BAF-2F8E32B730A3.jpeg
+(636.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 20:24 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/202435edeq3eeqobhdo953.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+627FF43C-43F0-406C-BFC7-1DEA9882EC70.jpeg
+(493.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 20:24 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/202435b7b9xjlucv8f3vjc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3993#       发表于 2022-1-9 20:32
+
+Liyuu3号粉丝群群号松雾大佬公开了，这是个很官方的群了（1、2号人已满的小群，群主是Liyuu本人）。
+
+倒是专楼应该有很多人已经在群里了。
+
+2E0E34B9-C8F3-4EEE-BF16-78A8CE2E8164.jpeg
+(25.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 20:33 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/203316n44nr4xce8ot44co.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
