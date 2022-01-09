@@ -10964,3 +10964,15 @@ Syl，跳绳大赛的切片意外的很均匀的一个个被单人翻译和翻�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">还是好想说...金发小男孩和阴角小女孩的年末24小时断续恋爱大作战直播，看的真的好开心...
 
+
+
+*****
+
+####  poipanchao  
+##### 9931#       发表于 2022-1-9 11:56
+
+giru算是被赶跑了吗，以后是hendy顶上？
+不过hendy确实比giru有趣一点
+
+昨天露娜简直女同救星，继uruca之后，对kmt也重拳出击，坚决打击bg文化
+

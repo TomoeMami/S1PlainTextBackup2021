@@ -1788,3 +1788,54 @@ gsaid自己看呗，还有ny新冠测序数据
 德尔塔下降，还没输。o的抗体可以抑制d是目前的新看法</blockquote>
 其实就是那位自己胡编的，他自己问别人要论文倒是理直气壮
 
+
+
+*****
+
+####  smy20011  
+##### 3151#       发表于 2022-1-9 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219910&amp;ptid=2039422" target="_blank">中二骚年 发表于 2022-1-9 11:43</a>
+哎呀急的covariant都敲错了，另外是GISAID不是gsaid
+
+说白了就是没有论文你自己拍脑袋出来的呗 ...</blockquote>
+是是，变种网站一直没记清楚，上面给你报道了。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  林照人  
+##### 3152#       发表于 2022-1-9 11:52
+
+坐标北美 持续发烧38度-39度 泰诺不退烧 今天测了下 冠了
+
+问医生说发烧没事 啥时候呼吸困难才去医院
+
+目前血氧95上下 精神尚可 肌肉微痛 咳嗽不是很频繁 嗓子痒痒为主
+
+话说医生给我开的药让我觉得离谱
+
+CEFUROXIME 500MG
+
+ALBUTEROL HFA INH 8.5GM
+
+BROMPHEN/PSEUDO/DEXTRO HBR SYRUP
+
+*****
+
+####  smy20011  
+##### 3153#       发表于 2022-1-9 11:55
+
+ 本帖最后由 smy20011 于 2022-1-9 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220011&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-9 11:52</a>
+坐标北美 持续发烧38度-39度 泰诺不退烧 今天测了下 冠了
+
+问医生说发烧没事 啥时候呼吸困难才去医院
+
+目前血 ...</blockquote>
+祝好
+这算是正常操作吧，补锌我记得和新冠蛋白质复制的某步有关。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
