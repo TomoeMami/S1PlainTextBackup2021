@@ -12013,3 +12013,12 @@ https://m.twitch.tv/videos/1256604843
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Klience  
+##### 7378#       发表于 2022-1-9 08:54
+
+这么早起打排位了吗 又上头了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

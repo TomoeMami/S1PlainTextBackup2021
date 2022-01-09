@@ -1485,3 +1485,32 @@ If you don’t have a friend in Covid, you don’t have a friend indeed.
 
 记者1月9日3时30分从市疫情防控指挥部获悉，1月8日24时，天津市疾病预防控制中心完成本市新增2例本土病例新冠病毒全基因组测序。经分析比对，并经中国疾控中心确认，2例本土病例新冠病毒均属于VOC/Omicron变异株（BA.1进化分支），属于同一传播链，与天津市已发现的境外输入病例奥密克戎变异株序列均不能确认为同一传播链。
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 3123#       发表于 2022-1-9 08:42
+
+ 本帖最后由 惊奇记事簿 于 2022-1-9 08:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218502&amp;ptid=2039422" target="_blank">lindley 发表于 2022-1-9 08:39</a>
+记者1月9日3时30分从市疫情防控指挥部获悉，1月8日24时，天津市疾病预防控制中心完成本市新增2例本土病例新 ...</blockquote>
+这算第三次冲击了吧
+或者第三使徒来袭
+
+*****
+
+####  d2loader  
+##### 3124#       发表于 2022-1-9 08:43
+
+精准防疫的流调速度会不会输给omicron的传播速度。。。
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  gambleman  
+##### 3125#       发表于 2022-1-9 08:54
+
+该来的还是会来，这次乐观不起来，O毒株的灭活现在什么阶段了？
+
