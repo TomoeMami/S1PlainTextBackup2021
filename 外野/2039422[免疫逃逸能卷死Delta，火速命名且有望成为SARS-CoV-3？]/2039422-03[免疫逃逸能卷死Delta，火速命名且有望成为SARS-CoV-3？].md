@@ -2088,3 +2088,17 @@ O病毒我觉得够呛
 
 乐了，没想到过了这么多天楼里还在和高中生物哥battle<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yhaos  
+##### 3173#       发表于 2022-1-9 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220695&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 12:54</a>
+
+有意见你给wiki提啊，我只是丢了个wiki的链接就是了
+
+— from Google Pixel 3 XL, Android 12 of S1 Next ...</blockquote>
+哦，你是纯冷酷无情的Ctrl+c/v，不代表任何个人意见是吧
+
