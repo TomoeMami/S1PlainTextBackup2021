@@ -12224,3 +12224,28 @@ lol上瘾
 
 白银2惹
 
+
+
+*****
+
+####  Klience  
+##### 7403#       发表于 2022-1-9 21:26
+
+ 本帖最后由 Klience 于 2022-1-9 21:31 编辑 
+
+这战绩一眼看过去基本都是波比<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 顺带一提 挑的那个野女人现在段位是白银3 今天下午还在图奇直播打了几场排位 全赢了
+
+*****
+
+####  时间在我手中  
+##### 7404#       发表于 2022-1-9 21:31
+
+呃呃，以后翻唱还会有不是v的人一起
+
+*****
+
+####  时雨rain  
+##### 7405#       发表于 2022-1-9 21:35
+
+快进到肉体下海出道<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

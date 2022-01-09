@@ -2281,3 +2281,26 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 家用呼吸机应该没啥用吧</blockquote>
 自救么，有啥用啥了咯
 
+
+
+*****
+
+####  abcbuzhiming  
+##### 3191#       发表于 2022-1-9 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54225788&amp;ptid=2039422" target="_blank">lvcha 发表于 2022-1-9 20:58</a>
+
+家用呼吸机应该没啥用吧</blockquote>
+有用，印度那边的经验，家用呼吸机也能顶血氧，有些患者就通过这个没有发展成重症，抗过去了
+
+*****
+
+####  惊奇记事簿  
+##### 3192#       发表于 2022-1-9 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226242&amp;ptid=2039422" target="_blank">abcbuzhiming 发表于 2022-1-9 21:31</a>
+有用，印度那边的经验，家用呼吸机也能顶血氧，有些患者就通过这个没有发展成重症，抗过去了
+
+ ...</blockquote>
+对于海外党买到哪个档次的性价比最高，印度经验有这方面分析么？
+

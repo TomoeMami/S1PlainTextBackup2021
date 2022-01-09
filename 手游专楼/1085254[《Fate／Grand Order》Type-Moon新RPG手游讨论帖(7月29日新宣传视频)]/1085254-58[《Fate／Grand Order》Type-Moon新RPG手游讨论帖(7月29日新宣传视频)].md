@@ -10331,3 +10331,25 @@ FAKER！！！
 
 Faker这钟临时充数的
 
+
+
+*****
+
+####  khxooo  
+##### 86504#       发表于 2022-1-9 21:26
+
+等Faker了，希望呼符能来个吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86505#       发表于 2022-1-9 21:34
+
+ 本帖最后由 gpx234mqx 于 2022-1-9 21:36 编辑 
+
+等等，为啥期待实装里还有老芥？
+
+都出两个了真不要脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奥罗拉上了真会有人抽吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

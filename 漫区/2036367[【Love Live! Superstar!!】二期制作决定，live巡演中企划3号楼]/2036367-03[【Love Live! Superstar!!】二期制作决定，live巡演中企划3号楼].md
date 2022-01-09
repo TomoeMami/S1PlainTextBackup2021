@@ -11509,3 +11509,46 @@ Liyuu3号粉丝群群号松雾大佬公开了，这是个很官方的群了（1�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  优妮可  
+##### 3997#       发表于 2022-1-9 21:33
+
+聊的，我二三群都在。可惜一二群不加人，三群活跃但毕竟新人多，还有内鬼潜伏。我发言比较少。
+
+*****
+
+####  仟音一心  
+##### 3998#       发表于 2022-1-9 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226119&amp;ptid=2036367" target="_blank">Norkey1 发表于 2022-1-9 21:21</a>
+你们这种群里真聊鲤鱼吗</blockquote>
+真的，不过还是复读刷屏为主。
+然后就有人发表情：你不能做一个复读机.jpg
+于是这个表情也会复读刷屏。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 3999#       发表于 2022-1-9 21:34
+
+气氛和管人粉丝群有点像(非贬义<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4000#       发表于 2022-1-9 21:39
+
+群还是不加了，接受不来这种文化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 4001#       发表于 2022-1-9 21:42
+
+<blockquote>lj205 发表于 2022-1-9 20:18
+这打铁要是男的，鲤鱼会不会就沦陷了</blockquote>
+那不成大车本了吗
+
