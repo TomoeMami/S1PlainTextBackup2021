@@ -1897,3 +1897,16 @@ BROMPHEN/PSEUDO/DEXTRO HBR SYRUP
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  pushare  
+##### 3158#       发表于 2022-1-9 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220180&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 12:07</a>
+没有人比我更懂杭之冯玥  英国要弃疗了。
+
+首先是继PCR渐渐退场之后，免费侧流快筛检测也将很快宣布取消。</blockquote>
+之前英格兰银行意外加息，是真撑不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
