@@ -5174,3 +5174,15 @@ co宝《等一下，好怪，再看一遍》
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">毒唯没有这种烦恼捏
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5035#       发表于 2022-1-9 16:39
+
+很喜欢录音师的一句话：不要唱那么油[脸红]​
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
