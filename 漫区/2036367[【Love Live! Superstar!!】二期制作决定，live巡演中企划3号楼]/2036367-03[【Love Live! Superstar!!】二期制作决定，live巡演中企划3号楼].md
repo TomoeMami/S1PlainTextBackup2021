@@ -11005,3 +11005,233 @@ Nagi真的好坚强，强忍住没落泪
 
 给我来啊!!
 
+
+
+*****
+
+####  仟音一心  
+##### 3955#       发表于 2022-1-9 17:26
+
+吹蜡烛
+
+5BCBAFAB-84A7-4CCE-9F60-465FDD00BDF9.jpeg
+(161.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/172558usiqj6c8d338nysi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+64082E77-200B-4D34-9F24-F4D21CF0C2D0.jpeg
+(138.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/172559gt0kn7ke0ttmkrma.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+80AC9398-14F4-41EA-A782-62F5A046DC36.jpeg
+(135.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/172559ciwf0jl3qir5d9l9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C4BFEEF1-4913-48C3-B7C2-49B80477D1C1.jpeg
+(114.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/172600lecrxaooydxryokw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B5913786-D8AB-401F-8408-CDD6D133173E.jpeg
+(112.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/172600fhvx8fxt8xfxfxxl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B9AD6FC5-6240-4A7B-ADA3-28A029045A8D.jpeg
+(109.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/172600c9cgc9xce3fbyvcg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3956#       发表于 2022-1-9 17:26
+
+我超！！！departure
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3957#       发表于 2022-1-9 17:27
+
+！！！！
+
+*****
+
+####  竹筷  
+##### 3958#       发表于 2022-1-9 17:27
+
+我超！！！
+
+*****
+
+####  cybernetics31  
+##### 3959#       发表于 2022-1-9 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">家人们，来了，departure
+
+*****
+
+####  秋月艾莉  
+##### 3960#       发表于 2022-1-9 17:27
+
+我超，5人版departure丢这了
+
+
+
+*****
+
+####  优妮可  
+##### 3961#       发表于 2022-1-9 17:28
+
+好
+
+*****
+
+####  stygian  
+##### 3962#       发表于 2022-1-9 17:28
+
+depature本来就是出发的意思，不过今天唱的话下周东京要彻底换歌单了吧
+
+*****
+
+####  starring  
+##### 3963#       发表于 2022-1-9 17:29
+
+还以为要唱出道曲，居然是Departure<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 3964#       发表于 2022-1-9 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">departure悲了点啊，再来一首行不行，秋梨膏，别走啊
+
+*****
+
+####  iuhehc  
+##### 3965#       发表于 2022-1-9 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  竹筷  
+##### 3966#       发表于 2022-1-9 17:33
+
+Departure，启程
+
+*****
+
+####  megapikachu  
+##### 3967#       发表于 2022-1-9 17:33
+
+一巡，终于、终于，就剩两场了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 3968#       发表于 2022-1-9 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">Liella！你们是最棒的呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜呜
+
+*****
+
+####  lj205  
+##### 3969#       发表于 2022-1-9 17:38
+
+我靠………………突然好空虚…………………………………………………………………………………………
+
+*****
+
+####  kata魂  
+##### 3970#       发表于 2022-1-9 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">哎，我回来了，大的都错过了
+
+*****
+
+####  iuhehc  
+##### 3971#       发表于 2022-1-9 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223534&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-9 17:38</a>
+
+我靠………………突然好空虚………………………………………………………………………………………… ...</blockquote>
+等一波后台蛋糕图
+
+*****
+
+####  秋月艾莉  
+##### 3972#       发表于 2022-1-9 17:44
+
+什么时候能看见5人版小星星
+
+对我来说小星星就是超级明星的开始冲刺
+
+看到了窝大概要call救护车吸氧（
+
+*****
+
+####  stygian  
+##### 3973#       发表于 2022-1-9 17:44
+
+七点还有虹团生放
+
+*****
+
+####  ads147147  
+##### 3974#       发表于 2022-1-9 17:45
+
+<img src="https://p.sda1.dev/4/3a522114e82298390729b661e1861c96/-7b17fddff99c8d54.jpg" referrerpolicy="no-referrer">
+
+草，虽迟但到
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 3975#       发表于 2022-1-9 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223578&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-9 17:43</a>
+
+等一波后台蛋糕图</blockquote>
+我去吃牛扒给鲤鱼庆生去（借口
+
+*****
+
+####  仟音一心  
+##### 3976#       发表于 2022-1-9 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223595&amp;ptid=2036367" target="_blank">ads147147 发表于 2022-1-9 17:45</a>
+草，虽迟但到
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+当时群里就有了，但太毁气氛了我不想发。
+

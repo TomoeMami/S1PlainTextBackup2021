@@ -10084,3 +10084,26 @@ FAKER！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥伯龙复刻到时候歪一个这玩意多难受
 
+
+
+*****
+
+####  alucardcz  
+##### 86477#       发表于 2022-1-9 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这？
+
+*****
+
+####  zakki  
+##### 86478#       发表于 2022-1-9 17:38
+
+我超，我光速填完问卷后，4个护符出了暗狐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  miro112233  
+##### 86479#       发表于 2022-1-9 17:39
+
+坂本是真的越画越拉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
