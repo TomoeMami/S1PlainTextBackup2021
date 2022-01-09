@@ -2447,3 +2447,75 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 3206#       发表于 2022-1-10 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228336&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-10 00:52</a>
+退烧了 不知道还要不要继续吃连花清瘟啊 一次4粒 一天12粒真的感觉好多 ...</blockquote>
+多喝热水好好休息吧，感觉莲花清瘟也就对症状有用。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  烦死了  
+##### 3207#       发表于 2022-1-10 02:57
+
+好起来了， 罗德岛医院要求无症状的医生护士照常去上班  mild<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+同时reddit群众表示这个就是基操，全美各地都有这样的  mild<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[https://www.nbcnews.com/news/us- ... omatic-st-rcna11376](https://www.nbcnews.com/news/us-news/outbreak-reported-rhode-island-hospital-covid-positive-asymptomatic-st-rcna11376)
+[https://www.reddit.com/r/Coronav ... and_hospital_after/](https://www.reddit.com/r/Coronavirus/comments/ryzbou/outbreak_reported_at_rhode_island_hospital_after/)
+
+*****
+
+####  林照人  
+##### 3208#       发表于 2022-1-10 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228857&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-9 13:57</a>
+
+好起来了， 罗德岛医院要求无症状的医生护士照常去上班  mild
+
+同时reddit群众表示这个就是基操，全 ...</blockquote>
+都坐下 常规操作
+
+*****
+
+####  烦死了  
+##### 3209#       发表于 2022-1-10 05:08
+
+华裔男子染疫无症状 30天后惨痛遭截肢！
+
+奥密克戎来袭，全球再迎疫情高峰，目前全美已累计确诊6085万，病亡85.9万人。
+
+奥密克戎，爆发至今，众说纷纭。目前的主流说法是，“感染了奥密克戎也是轻症”、“奥密克戎不过就是大号流感”……甚至还有几位华人朋友分享自己感染奥密克戎的经历，有人说，“2天我就自痊了。”
+
+看起来，似乎并没有那么可怕，这是真的吗？
+
+据美国世界新闻网8日报道，移民美国多年的华裔男子史振顺在加州感染新冠后，引发严重血栓，因美国疫情高峰期医院人手短缺而耽误病情，最后为保住生命被迫截肢。
+
+020年10月，史振顺因帮助患病亲友，感染新冠。起初史振顺并未身体感觉异常，再次检查时，被告知腿部已出现严重血栓，需要立即住院治疗。
+
+史振顺透露，自己当时住在医院新冠感染加护病房，却几乎见不到医生。住院多日后，一位医生助理告诉史振顺，他的右脚需要截肢。
+
+然而两天后，史振顺又被医院转移到了附近的养老院，没有了医生，手术的事就拖了下来，这导致史振顺右腿膝盖以下部位都需要截肢。
+
+由于养老院的伙食难以满足营养需求，史振顺的体重从180磅（约为163斤）锐减到144磅（约为130斤）。直到2020年12月22日，失去右腿的史振顺才得以回家。但他不得不忍受疼痛和腿部的肌肉萎缩，而且每三年左右就要更换一次假肢。
+
+*****
+
+####  smy20011  
+##### 3210#       发表于 2022-1-10 05:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54229002&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-10 05:08</a>
+
+华裔男子染疫无症状 30天后惨痛遭截肢！
+
+奥密克戎来袭，全球再迎疫情高峰，目前全美已累计确诊6085万，病 ...</blockquote>
+死麻了（
+

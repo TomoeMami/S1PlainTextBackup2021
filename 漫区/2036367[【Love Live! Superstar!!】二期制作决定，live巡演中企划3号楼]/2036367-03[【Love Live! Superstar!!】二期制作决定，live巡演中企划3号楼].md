@@ -12010,3 +12010,60 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  stygian  
+##### 4043#       发表于 2022-1-10 02:05
+
+404做拉拉声优系列的更了鲤鱼篇，不出所料的下面有4v在跳<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  deery  
+##### 4044#       发表于 2022-1-10 02:21
+
+ 本帖最后由 deery 于 2022-1-10 02:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228735&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-10 02:05</a>
+
+404做拉拉声优系列的更了鲤鱼篇，不出所料的下面有4v在跳</blockquote>
+还好了，声研部那里纯度还挺高的，我看他们自己人也在批判
+
+骂的内容也就那老一套，扭转下立场和这边一些建政上脑的魔怔人也差不多，已经没啥破防能力了，比起来还是暗搓搓开盒造谣挖黑料的坏种更恶心
+
+其实鲤鱼台湾粉丝不少的，主要黑她的也不是台湾人，基本都是大陆这边的“那个群体”
+
+*****
+
+####  xxxxx09090  
+##### 4045#       发表于 2022-1-10 02:27
+
+把三个专楼爬完了，我在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 4046#       发表于 2022-1-10 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228778&amp;ptid=2036367" target="_blank">deery 发表于 2022-1-10 02:21</a>
+
+还好了，声研部那里纯度还挺高的，我看他们自己人也在批判
+
+骂的内容也就那老一套，扭转下立场和这边一些建 ...</blockquote>
+那个up主明显和大陆拉拉圈混的不少包括之前的视频都用很多这边的梗和称呼，ptt的拉板我也会逛🐟的确那边风评大部分都蛮好，单纯就觉得键政入脑好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  we89623  
+##### 4047#       发表于 2022-1-10 02:39
+
+ 本帖最后由 we89623 于 2022-1-10 02:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228735&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-10 02:05</a>
+404做拉拉声优系列的更了鲤鱼篇，不出所料的下面有4v在跳</blockquote>
+求下地址
+
+自己找到了
+
