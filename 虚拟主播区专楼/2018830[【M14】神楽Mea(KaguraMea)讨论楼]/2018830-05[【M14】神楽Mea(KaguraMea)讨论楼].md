@@ -12033,3 +12033,21 @@ p家那些人能叫姐妹，这个凭什么不能叫姐妹<img src="https://stat
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  路人庚  
+##### 7380#       发表于 2022-1-9 11:11
+
+lol上瘾
+
+
+
+*****
+
+####  Klience  
+##### 7381#       发表于 2022-1-9 11:23
+
+早上4 5点就开始打了 打到现在还在打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

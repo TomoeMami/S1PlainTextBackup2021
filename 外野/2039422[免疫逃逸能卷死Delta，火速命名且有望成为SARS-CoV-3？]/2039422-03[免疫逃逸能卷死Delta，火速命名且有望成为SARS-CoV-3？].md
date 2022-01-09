@@ -1648,3 +1648,84 @@ BA.1说实话还好，坏的是现在BA.2抬头了……
 如果要靠扫楼进行核酸检测，那需要的人力物力就大了。 ...</blockquote>
 扫楼难，只能加大查到未做的处罚力度
 
+
+
+*****
+
+####  KOGmk2  
+##### 3139#       发表于 2022-1-9 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219327&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 10:45</a>
+
+目前重组蛋白最好</blockquote>
+其实都没大用,大家都不承认按血清分型的情况来说奥米克隆算一种全新的冠状病毒也没啥问题(反正如果没闹起来的时候你发现这么两种病毒绝对是可以分类水两篇论文的),已有针对Alpha到Delta的疫苗基本没有多少防御力
+
+*****
+
+####  eveshell  
+##### 3140#       发表于 2022-1-9 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219476&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2022-1-9 11:03</a>
+
+其实都没大用,大家都不承认按血清分型的情况来说奥米克隆算一种全新的冠状病毒也没啥问题(反正如果没闹起 ...</blockquote>
+重组蛋白剩下的防御最多
+
+*****
+
+####  smy20011  
+##### 3141#       发表于 2022-1-9 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219476&amp;ptid=2039422" target="_blank">KOGmk2 发表于 2022-1-9 11:03</a>
+其实都没大用,大家都不承认按血清分型的情况来说奥米克隆算一种全新的冠状病毒也没啥问题(反正如果没闹起 ...</blockquote>
+如果血清分型，那o为什么把d卷死了？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  smy20011  
+##### 3142#       发表于 2022-1-9 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219533&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 11:09</a>
+重组蛋白剩下的防御最多</blockquote>
+有相关论文么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  9090asd  
+##### 3143#       发表于 2022-1-9 11:13
+
+什么时候可以开放重组蛋白的第三针序贯？我就等这个了
+
+*****
+
+####  eveshell  
+##### 3144#       发表于 2022-1-9 11:13
+
+ 本帖最后由 eveshell 于 2022-1-9 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219547&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 11:10</a>
+
+有相关论文么？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+[https://weibo.com/2875593715/L8Hs2nf64](https://weibo.com/2875593715/L8Hs2nf64)
+
+国内的采用RBD重组最好，论文显示康复者三针BNT对RBD区中和能力下降1.8倍最低
+[https://xueqiu.com/8151549115/180273833](https://xueqiu.com/8151549115/180273833)
+
+对比各种RBD的疫苗
+
+*****
+
+####  中二骚年  
+##### 3145#       发表于 2022-1-9 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219540&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 11:09</a>
+
+如果血清分型，那o为什么把d卷死了？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2- ...</blockquote>
+有相关论文么？
+
