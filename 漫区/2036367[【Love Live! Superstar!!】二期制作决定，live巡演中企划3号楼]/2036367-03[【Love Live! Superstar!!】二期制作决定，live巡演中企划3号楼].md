@@ -11235,3 +11235,89 @@ Departure，启程
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
 当时群里就有了，但太毁气氛了我不想发。
 
+
+
+*****
+
+####  仟音一心  
+##### 3977#       发表于 2022-1-9 17:47
+
+肉眼可见的累坏了
+
+01D05EA7-A1C9-44B8-9279-B2224EBDC2BD.jpeg
+(160.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174721h908d10m9ze9z11p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7D954946-C8ED-4C0B-B699-4A35660B206A.jpeg
+(147.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174721ecc13te39ca3x7y1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+11A39BD2-40B7-4856-9223-516634EF4E24.jpeg
+(147.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174722rgrbwguwhg72hprn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+18A1BC18-F0F4-4649-A370-2AF8C4C813BE.jpeg
+(178.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174731e602hp55nohnft6v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5BEA4C6B-9A15-44A7-BDEE-21CC392BFE0F.jpeg
+(193.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174731x9svz2llzwvzr7hv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+42317399-4F43-4AFD-A30C-B14EB1E583F0.jpeg
+(199.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174732wmsmsx32i28xqw3s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+BE8665C5-7746-46A2-9137-5557523E2F36.jpeg
+(203.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/174732gnqz46yge4geqh4x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3978#       发表于 2022-1-9 17:48
+
+今天是只有pay宝憋住了没落泪
+
+*****
+
+####  太阳寺太守  
+##### 3979#       发表于 2022-1-9 17:49
+
+这场真是值回票价。弹吉他唱小星星的时候给人的感觉就真的和动画里一模一样，能想象出动画里上台前也有过这样的练习，而且一下子就把刚出道新人最纯洁质朴的一面表现出来了。
+

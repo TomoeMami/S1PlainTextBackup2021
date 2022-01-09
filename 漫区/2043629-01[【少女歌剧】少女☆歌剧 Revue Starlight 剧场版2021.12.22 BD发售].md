@@ -7054,3 +7054,38 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 近日火星：2016年参演99.9，2018年加入99组成为99期生的小圆脸Teru酱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  loley  
+##### 543#       发表于 2022-1-9 17:54
+
+话说其实趁现在大伙还在看，我想问几个其实一直都有点在意的问题。wild screen 巴洛克是啥?position zero是什么意思?舞台上那个每次打完都用剑刺下去那个T字又是什么?
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  钱如命  
+##### 544#       发表于 2022-1-9 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223662&amp;ptid=2043629" target="_blank">loley 发表于 2022-1-9 17:54</a>
+
+话说其实趁现在大伙还在看，我想问几个其实一直都有点在意的问题。wild screen 巴洛克是啥?position zero是 ...</blockquote>
+T就是position 0，舞台上用来标记主角站位的记号，这个概念被抽象成你站在那就是主角了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+狂野宽屏巴洛克我也不知道是啥意思，大概就是更大更爽更劲爆之类的？
+
+*****
+
+####  loley  
+##### 545#       发表于 2022-1-9 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223718&amp;ptid=2043629" target="_blank">钱如命 发表于 2022-01-09 18:01:44</a>
+T就是position 0，舞台上用来标记主角站位的记号，这个概念被抽象成你站在那就是主角了
+
+狂野宽屏巴洛克我 ...</blockquote>噢噢，感谢。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

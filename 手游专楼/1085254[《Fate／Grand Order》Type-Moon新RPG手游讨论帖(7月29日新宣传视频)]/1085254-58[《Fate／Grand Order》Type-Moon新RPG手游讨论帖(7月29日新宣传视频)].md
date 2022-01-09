@@ -10107,3 +10107,56 @@ FAKER！！！
 
 坂本是真的越画越拉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 86480#       发表于 2022-1-9 17:54
+
+草 原来老芥算是未实装角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  katun  
+##### 86481#       发表于 2022-1-9 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说你游搞的这个问卷的意见栏他们会看吗？还是说只是提供个发泄的地方
+
+*****
+
+####  khxooo  
+##### 86482#       发表于 2022-1-9 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223702&amp;ptid=1085254" target="_blank">katun 发表于 2022-1-9 17:59</a>
+
+话说你游搞的这个问卷的意见栏他们会看吗？还是说只是提供个发泄的地方 ...</blockquote>
+我估计是会看的。
+
+*****
+
+####  khxooo  
+##### 86483#       发表于 2022-1-9 18:01
+
+徐福啊，希望早点落地吧，还有异星的巫女。
+
+*****
+
+####  qixinno2  
+##### 86484#       发表于 2022-1-9 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223526&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-9 17:38</a>
+
+我超，我光速填完问卷后，4个护符出了暗狐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">羡慕 我就只得到了几个绿方块
+
+*****
+
+####  alucardcz  
+##### 86485#       发表于 2022-1-9 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223526&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-9 17:38</a>
+
+我超，我光速填完问卷后，4个护符出了暗狐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这就是欧皇吗！ 羡慕了
+
