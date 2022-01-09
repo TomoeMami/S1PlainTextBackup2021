@@ -3583,3 +3583,12 @@ mio占卜直接暗示要绫总今年继续开摆<img src="https://static.saraba1
 
 这样说起来上次说要约夸夸的也没下文了，可能这就是卍組吧
 
+
+
+*****
+
+####  Fami水  
+##### 13859#       发表于 2022-1-9 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">约吃饭这种就应该堵家门口，发discord这不就是石沉大海
+
