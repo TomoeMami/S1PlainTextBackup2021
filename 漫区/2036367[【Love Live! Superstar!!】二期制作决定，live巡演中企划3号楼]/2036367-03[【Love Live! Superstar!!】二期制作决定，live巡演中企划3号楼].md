@@ -9983,3 +9983,190 @@ FFAFFDCB-B58D-4FC7-924B-72C9D42B1955.jpeg
 
 刚好回家赶上拍手歌
 
+
+
+*****
+
+####  秋月艾莉  
+##### 3870#       发表于 2022-1-9 14:44
+
+一瞬全浅蓝hhhhhhhhhh
+
+
+
+*****
+
+####  lj205  
+##### 3871#       发表于 2022-1-9 14:45
+
+不吹蜡烛吗
+
+*****
+
+####  仟音一心  
+##### 3872#       发表于 2022-1-9 14:46
+
+寿星
+
+<img src="https://img.saraba1st.com/forum/202201/09/144628vyyjxzhhxhnnhhzn.png" referrerpolicy="no-referrer">
+
+<strong>61CD32EC-B8FA-426C-91DF-C438FBACA413.png</strong> (82.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:46 上传
+
+14D338E4-ADB4-4A1C-9763-260A776E02CE.jpeg
+(148.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:46 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/144628prcxrcgcrxqq9m97.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 3873#       发表于 2022-1-9 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩排惊喜庆祝的时候鲤鱼第一反应是卧槽姐的妆没整好wwwwwwww
+
+*****
+
+####  iuhehc  
+##### 3874#       发表于 2022-1-9 14:47
+
+我也以为会有吹蜡烛（
+
+*****
+
+####  starring  
+##### 3875#       发表于 2022-1-9 14:50
+
+啊选妃选了线上的各位
+
+*****
+
+####  lj205  
+##### 3876#       发表于 2022-1-9 14:52
+
+选配信估计是为了国内的大家吧，她真是太想着家乡人了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3877#       发表于 2022-1-9 14:54
+
+<blockquote>在彩排之前
+
+大家推着蛋糕来了
+
+当时鲤鱼第一反应是:化妆还没化完
+
+sayu还模仿了一下鲤鱼</blockquote>
+
+BF8ED587-9B57-4E2E-8816-7BD8CD056B7B.jpeg
+(123.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145418nz7gkd9k14y64mdr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+814F6C89-E4B2-427B-ADCD-CAFA92F7D24C.jpeg
+(194 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145418jp8rmm11hpgendze.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8205518D-7EBC-4D0D-87BD-94E9ED98A425.jpeg
+(133.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145418upwm7rwq17ir1w15.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2F37E71F-4022-4A2F-91DF-BD22E585C163.jpeg
+(198.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145419y0x3x83168869j11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+89582B0C-3DA2-45BC-BBEC-291C0FD755C3.jpeg
+(376.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145420deewean9upm9mxeu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+3B90E5F3-8299-4230-8166-142037C052BD.jpeg
+(201.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145420enqgq6nsnebbpfvb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+291F9ECB-C24E-43F5-A1D7-6FA96AF09FF4.jpeg
+(141.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145414lkjrszl1kkqaqsm0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3878#       发表于 2022-1-9 14:56
+
+ 本帖最后由 stygian 于 2022-1-9 14:59 编辑 
+
+打铁今天虽然疲劳还是很明显不过嗓子比昨天稳
+
+going up又不行了，加油<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 3879#       发表于 2022-1-9 14:57
+
+打铁今天全力全开啊
+
+*****
+
+####  仟音一心  
+##### 3880#       发表于 2022-1-9 14:58
+
+选妃选了各位
+
+D56CEC71-8275-4879-9B8E-99314774C4F1.jpeg
+(480.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 14:58 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/145821noaambgqbkb89r3b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 3881#       发表于 2022-1-9 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">她选了我们，她心里有我们
+
