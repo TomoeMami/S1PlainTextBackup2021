@@ -11121,3 +11121,36 @@ syl
 [https://youtu.be/qqBnmyG0we4](https://youtu.be/qqBnmyG0we4)
 ui
 
+
+
+*****
+
+####  OldGlory  
+##### 9945#       发表于 2022-1-9 19:50
+
+英文v是国内的新蓝海吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这位一个视频50w播放6w粉了，正在首播
+[https://live.bilibili.com/23594422](https://live.bilibili.com/23594422)
+
+*****
+
+####  IDIDIDID  
+##### 9946#       发表于 2022-1-9 19:52
+
+老伦敦地道姐我很早就在看了👍
+
+*****
+
+####  cheatdeath3  
+##### 9947#       发表于 2022-1-9 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54224901&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-1-9 19:50</a>
+
+英文v是国内的新蓝海吗这位一个视频50w播放6w粉了，正在首播
+
+https://live.bilibili.com/23594422
+
+ ...</blockquote>
+不能解决弹幕字数限制就搞不了英v，不像油管从句随便敲
+
+以前慧萌搞过一次，后面就再也不来了。当然主要还是看钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

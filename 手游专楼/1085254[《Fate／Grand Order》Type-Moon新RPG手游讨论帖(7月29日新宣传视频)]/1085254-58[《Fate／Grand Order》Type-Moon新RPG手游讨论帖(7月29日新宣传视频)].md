@@ -10265,3 +10265,12 @@ FAKER！！！
 
 果断选了阿贵，第六章剧场盘的小圆盘都发卖了，运营怕不是这回为了这问题要回去查看npc的话都把阿贵给忘了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86497#       发表于 2022-1-9 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">羁绊30石 哪吒+1 艹
+
