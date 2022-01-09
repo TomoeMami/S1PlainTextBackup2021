@@ -2304,3 +2304,21 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
  ...</blockquote>
 对于海外党买到哪个档次的性价比最高，印度经验有这方面分析么？
 
+
+
+*****
+
+####  pushare  
+##### 3193#       发表于 2022-1-9 21:47
+
+BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since pandemic began
+
+*****
+
+####  coldhot3  
+##### 3194#       发表于 2022-1-9 21:55
+
+<blockquote>惊奇记事簿 发表于 2022-1-9 21:36
+对于海外党买到哪个档次的性价比最高，印度经验有这方面分析么？</blockquote>
+这个，印度穷人比海外党穷太多，富人比海外党富太多，好像没有太多参考价值吧。
+

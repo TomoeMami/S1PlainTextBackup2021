@@ -10353,3 +10353,14 @@ Faker这钟临时充数的
 
 奥罗拉上了真会有人抽吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86506#       发表于 2022-1-9 21:48
+
+ 本帖最后由 zakki 于 2022-1-9 21:54 编辑 
+
+双暗狐配奥伯龙确实爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然看上去只能打特攻，但特攻伤害是真的高，随便20多万，而且范围广，随便打了几个free都是特攻的
+

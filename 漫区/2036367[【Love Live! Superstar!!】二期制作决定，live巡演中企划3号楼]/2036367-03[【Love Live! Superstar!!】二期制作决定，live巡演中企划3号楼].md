@@ -11552,3 +11552,59 @@ Liyuu3号粉丝群群号松雾大佬公开了，这是个很官方的群了（1�
 这打铁要是男的，鲤鱼会不会就沦陷了</blockquote>
 那不成大车本了吗
 
+
+
+*****
+
+####  a92063256  
+##### 4002#       发表于 2022-1-9 21:48
+
+这群里复读机确实有点多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 4003#       发表于 2022-1-9 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226272&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-9 21:33</a>
+
+聊的，我二三群都在。可惜一二群不加人，三群活跃但毕竟新人多，还有内鬼潜伏。我发言比较少。 ...</blockquote>
+内鬼是指？
+
+*****
+
+####  优妮可  
+##### 4004#       发表于 2022-1-9 21:53
+
+经常复读鲤鱼，liella这些。但好像只要是个q群都会复读的吧，腾讯还整了那个+1功能，复读更方便了
+
+*****
+
+####  lj205  
+##### 4005#       发表于 2022-1-9 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226379&amp;ptid=2036367" target="_blank">DarthAka 发表于 2022-1-9 21:42</a>
+那不成大车本了吗</blockquote>
+今天这场，说不定双方家里亲戚长辈都看了，应该都很满意吧？女的就女的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4006#       发表于 2022-1-9 21:54
+
+<blockquote>名津流 发表于 2022-1-9 21:52
+内鬼是指？</blockquote>
+就之前微博开团那事，就是有人截了三群的聊天记录发出去的。毕竟是在超话宣的群，一些人混进来也正常。
+
+*****
+
+####  名津流  
+##### 4007#       发表于 2022-1-9 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54225417&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-9 20:32</a>
+
+Liyuu3号粉丝群群号松雾大佬公开了，这是个很官方的群了（1、2号人已满的小群，群主是Liyuu本人）。
+
+倒是专 ...</blockquote>
+话说鲤鱼不在3群里吧？要1、2号群开了记得喊我
+
