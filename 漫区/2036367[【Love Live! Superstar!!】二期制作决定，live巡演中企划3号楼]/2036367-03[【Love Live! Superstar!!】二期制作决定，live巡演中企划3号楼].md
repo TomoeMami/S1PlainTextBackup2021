@@ -11697,3 +11697,40 @@ Liyuu3号粉丝群群号松雾大佬公开了，这是个很官方的群了（1�
 
 <img src="https://img.saraba1st.com/forum/202201/09/222541p0ll6ascbnddv6vv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4013#       发表于 2022-1-9 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226587&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-9 21:57</a>
+话说鲤鱼不在3群里吧？要1、2号群开了记得喊我</blockquote>
+肯定不在3号群啊，前两个群也不说话了，上一次发言还是去年3月份。
+
+*****
+
+####  仟音一心  
+##### 4014#       发表于 2022-1-9 22:29
+
+这条写得真好
+
+D10A3D4C-DB10-42C9-A4CB-22597EF39A0C.jpeg
+(93.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/222850la0tbzdr0kpkz0lk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4015#       发表于 2022-1-9 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226957&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-9 22:29</a>
+
+这条写得真好</blockquote>
+草，这位不是楼友吗，因为上一栋楼他跟人吵架所以记得很清楚（吵什么已经忘记了）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
