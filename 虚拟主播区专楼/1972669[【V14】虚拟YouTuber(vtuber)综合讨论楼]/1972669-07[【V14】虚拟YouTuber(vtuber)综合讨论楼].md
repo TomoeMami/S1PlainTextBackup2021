@@ -11017,3 +11017,14 @@ giru算是被赶跑了吗，以后是hendy顶上？
 正常人哪能看完三小时游戏回后还记住哪里说的话有趣。
 而且长档带来的流量压力也<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 9936#       发表于 2022-1-9 15:21
+
+en男我是没啥抵触的，游戏力确实高
+
+唯一的问题是英语全丢了，得认真看才能跟上，没法像日语一样不带脑子就听懂……
+

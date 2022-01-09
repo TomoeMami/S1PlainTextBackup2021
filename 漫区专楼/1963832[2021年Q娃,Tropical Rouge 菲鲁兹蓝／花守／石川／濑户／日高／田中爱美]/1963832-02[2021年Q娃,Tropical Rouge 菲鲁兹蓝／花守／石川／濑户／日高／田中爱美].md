@@ -12590,3 +12590,17 @@ pid95129368
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lydia5989  
+##### 2449#       发表于 2022-1-9 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54221392&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2022-1-9 13:55</a>
+
+按照时间线，几百年前传q就解决了危机，那之后魔女就没再搞事，后来巴特拉才出现。这里有个搞不懂的点，魔 ...</blockquote>
+传q解决危机应该是跟魔女同归于尽的，那时候海马也在
+
+魔女估计就是个人鱼亚种或接触了什么的人鱼
+
