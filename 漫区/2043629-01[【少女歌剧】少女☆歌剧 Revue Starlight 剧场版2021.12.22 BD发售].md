@@ -7101,3 +7101,16 @@ T就是position 0，舞台上用来标记主角站位的记号，这个概念被
 请教一下，第一个总集篇剧场版的字幕去哪能找到哇</blockquote>
 有内封的，外挂的好像没有
 
+
+
+*****
+
+####  千魄万斩  
+##### 547#       发表于 2022-1-9 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54221558&amp;ptid=2043629" target="_blank">s1娘铁粉 发表于 2022-1-9 14:11</a>
+请教一下，第一个总集篇剧场版的字幕去哪能找到哇</blockquote>
+天雪
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
