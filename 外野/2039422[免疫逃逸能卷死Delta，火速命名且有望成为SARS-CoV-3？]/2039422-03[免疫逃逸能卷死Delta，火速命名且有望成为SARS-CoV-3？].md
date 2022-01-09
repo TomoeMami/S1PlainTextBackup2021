@@ -2431,3 +2431,19 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  smy20011  
+##### 3205#       发表于 2022-1-10 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228295&amp;ptid=2039422" target="_blank">3333qwe 发表于 2022-1-10 00:44</a>
+英美同样是诊断数远超上一轮，
+美国住院/icu人数上去了 但英国没上去
+这怎么理解？ ...</blockquote>
+如果死亡没有增加，那么就是死亡滞后还得再等等。
+如果死亡增加了，就复读mild然后加个麻将脸嘲讽欧美。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
