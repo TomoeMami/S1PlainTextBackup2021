@@ -11028,3 +11028,12 @@ en男我是没啥抵触的，游戏力确实高
 
 唯一的问题是英语全丢了，得认真看才能跟上，没法像日语一样不带脑子就听懂……
 
+
+
+*****
+
+####  ヒトニナル  
+##### 9937#       发表于 2022-1-9 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道国内追en男的大多数是谁吗？是es解啊，你懂不懂含金量
+
