@@ -10505,3 +10505,102 @@ C268091D-0B8F-4FE7-9048-DC104150F628.jpeg
 
 我去，pay子这句又进化了
 
+
+
+*****
+
+####  努斯万克  
+##### 3896#       发表于 2022-1-9 16:06
+
+pay子唱功强啊
+
+*****
+
+####  lj205  
+##### 3897#       发表于 2022-1-9 16:07
+
+鲤鱼开始摸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 3898#       发表于 2022-1-9 16:08
+
+可惜才一个月。。。如果能休一个季度左右这五人能有什么进化真的期待
+
+*****
+
+####  starring  
+##### 3899#       发表于 2022-1-9 16:09
+
+今天的Day1更热烈了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 3900#       发表于 2022-1-9 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54222624&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-9 16:07</a>
+
+鲤鱼开始摸鱼了</blockquote>
+群里一片“草”
+
+225585C6-A51E-4AB3-A6D6-AD109D1F3CB3.jpeg
+(33.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 16:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/09/161133lv9ydz19yx1sdevv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  寒风夜  
+##### 3901#       发表于 2022-1-9 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54222638&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-9 16:08</a>
+
+可惜才一个月。。。如果能休一个季度左右这五人能有什么进化真的期待</blockquote>
+好在2nd就2场 。。
+
+*****
+
+####  cybernetics31  
+##### 3902#       发表于 2022-1-9 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎呀 毕竟生日嘛 摸鱼还是得摸的
+
+*****
+
+####  lj205  
+##### 3903#       发表于 2022-1-9 16:20
+
+个人觉得追加可能会变的是唱departure，五人版123 going up 和交响曲
+
+*****
+
+####  stygian  
+##### 3904#       发表于 2022-1-9 16:21
+
+我想听ready steady positive啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+*****
+
+####  iuhehc  
+##### 3905#       发表于 2022-1-9 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54222745&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-9 16:21</a>
+
+我想听ready steady positive啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊 ...</blockquote>
+感觉这个会在二巡啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3906#       发表于 2022-1-9 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画bd曲别想了吧
+
