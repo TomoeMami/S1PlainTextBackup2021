@@ -11799,3 +11799,77 @@ pay子明天起床或许就会感受到世界的邪恶，指别人趁她睡觉�
 
 鲤鱼还回复了我才是姐姐，更乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 4021#       发表于 2022-1-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54227422&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-9 23:05</a>
+
+一直都觉得sayu跟pay不太一样，没什么年下感，各方面都表现得太成熟了，跟鲤鱼在一起的时候更是如此，除了 ...</blockquote>
+鲤鱼还加了个倒了的笑脸，意思是sayu你说反了是吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 4022#       发表于 2022-1-9 23:08
+
+年上系妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 4023#       发表于 2022-1-9 23:12
+
+这韩国人就离谱，鲤鱼刚打情骂俏一分钟，中国人这边都还在群里嘻嘻哈哈磕CP糖呢，人家直接就打印出来了
+
+<img src="https://img.saraba1st.com/forum/202201/09/231232i8bfdfhfyqihfphd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220109231110.png</strong> (82.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-9 23:12 上传
+
+*****
+
+####  CAserlumos  
+##### 4024#       发表于 2022-1-9 23:16
+
+韩国人是这样的，高强度嗑cp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 4025#       发表于 2022-1-9 23:19
+
+pay宝呢 pay宝怎么不发 该写不仲小作文了（不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4026#       发表于 2022-1-9 23:21
+
+鲤鱼跟打铁大概除了青梅外把其他最热cp要素全集齐了吧？
+
+*****
+
+####  A0171050  
+##### 4027#       发表于 2022-1-9 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226348&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-9 21:39</a>
+群还是不加了，接受不来这种文化</blockquote>
+确实<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要不是声优是中国人，应该也不会加群，还有什么生日祝福视频确实搞得跟国内饭圈也太像了，不知道现在是不是都这样
+
+*****
+
+####  player3960  
+##### 4028#       发表于 2022-1-9 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54227588&amp;ptid=2036367" target="_blank">lj205 发表于 2022-01-09 23:21:01</a>
+鲤鱼跟打铁大概除了青梅外把其他最热cp要素全集齐了吧？</blockquote>鲤鱼是天降嘛，天降对标青梅也不是不行啊，虽然也有天降青梅这种要素就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

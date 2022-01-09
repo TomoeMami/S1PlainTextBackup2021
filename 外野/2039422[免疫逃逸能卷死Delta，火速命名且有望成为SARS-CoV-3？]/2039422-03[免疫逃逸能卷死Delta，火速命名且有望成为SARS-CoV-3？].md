@@ -2334,3 +2334,25 @@ BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since 
 对于海外党买到哪个档次的性价比最高，印度经验有这方面分析么？</blockquote>
 印度经验不存在性价比，买到就不错了，b站有个印度人up主当时就是能买啥就买啥
 
+
+
+*****
+
+####  riczxc  
+##### 3196#         楼主| 发表于 2022-1-9 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54224202&amp;ptid=2039422" target="_blank">最好不说 发表于 2022-1-9 18:45</a>
+
+哪个位面的omicron在中国四处开花了？唱衰中国防疫政策也得等天津真绷不住了再说吧 ...</blockquote>
+最近这个冬天也是第一个有delta的冬天。考虑omicron至少也和delta一样强，的确对防疫体系是个压力测试。
+
+*****
+
+####  Redis  
+##### 3197#       发表于 2022-1-9 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54225642&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-9 20:47</a>
+
+是不是可以从中国买点家用呼吸机备着？</blockquote>
+测到血氧低赶紧润医院，家用呼吸机有啥用。。。
+

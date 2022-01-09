@@ -11185,3 +11185,25 @@ Inui开箱
 
 属于体力不行，  银枪蜡烛头
 
+
+
+*****
+
+####  alcoholic1000  
+##### 9951#       发表于 2022-1-9 23:02
+
+ 本帖最后由 alcoholic1000 于 2022-1-9 23:13 编辑 
+
+King都只有7k的情况下Mysta砍下1串成为njEN目前为止最高同接 <blockquote>Well, Mysta said majority of his fans come from Japan and SEA, and his numbers are significantly lower during US / EU hours, so that isn't entirely wrong. He and Vox are basically Niji JP SEA in EN package</blockquote>
+
+Syl，/vt/事业民都在骂他秒速下播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+他不看ccv，可能现在才意识到
+
+*****
+
+####  IDIDIDID  
+##### 9952#       发表于 2022-1-9 23:05
+
+4chan已经是EN虹男的形状了（指白皮incel发疯。
+
