@@ -1434,3 +1434,54 @@ https://zh.wikipedia.org/wiki/%E9%A2%84%E6%9C%9F%E5%AF%BF%E5%91%BD
 
 天津也有了 所以说一直隔岸观火是不现实的
 
+
+
+*****
+
+####  yang1820  
+##### 3118#       发表于 2022-1-9 08:29
+
+ 本帖最后由 yang1820 于 2022-1-8 16:31 编辑 
+
+我的朋友圈子里也开始出现感染链条了，并且还不确定先后顺序，之前还真没有过，O记恐怖如斯。得到消息的时候我才刚打完第三针，虽然疑似源头的那位我已经几个月没见了，但是以防万一，等疫苗副作用完全好了之后，我也去测测看吧= = 我感觉在欧美想要独善其身躲过O记，可能真的要暂时跟周围的朋友物理“绝交”。
+
+*****
+
+####  yhaos  
+##### 3119#       发表于 2022-1-9 08:32
+
+<blockquote>smy20011 发表于 2022-1-8 20:36
+https://zh.wikipedia.org/wiki/%E9%A2%84%E6%9C%9F%E5%AF%BF%E5%91%BD
+
+古代平均寿命低是因为新生儿死亡 ...</blockquote>
+麻烦你用高中数学算算，如果按你的要求影响因素设定为新生儿死亡，当平均寿命40的时候，每有一个新生儿死亡的样本，需要对应几个大于40岁的样本？
+
+*****
+
+####  smy20011  
+##### 3120#       发表于 2022-1-9 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218479&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-9 08:32</a>
+麻烦你用高中数学算算，如果按你的要求影响因素设定为新生儿死亡，当平均寿命40的时候，每有一个新生儿死 ...</blockquote>
+建议您跟wiki打编辑战
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  圈量子  
+##### 3121#       发表于 2022-1-9 08:38
+
+If you don’t have a friend in Covid, you don’t have a friend indeed.
+
+还真没有，毕竟教授学生同学和博士生同事不算朋友<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lindley  
+##### 3122#       发表于 2022-1-9 08:39
+
+记者1月9日3时30分从市疫情防控指挥部获悉，1月8日24时，天津市疾病预防控制中心完成本市新增2例本土病例新冠病毒全基因组测序。经分析比对，并经中国疾控中心确认，2例本土病例新冠病毒均属于VOC/Omicron变异株（BA.1进化分支），属于同一传播链，与天津市已发现的境外输入病例奥密克戎变异株序列均不能确认为同一传播链。
+
