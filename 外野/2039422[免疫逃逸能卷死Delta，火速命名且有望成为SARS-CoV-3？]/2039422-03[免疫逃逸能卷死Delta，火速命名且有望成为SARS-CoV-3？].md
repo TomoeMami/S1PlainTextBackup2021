@@ -2377,3 +2377,28 @@ BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since 
 BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since pandemic began</blockquote>
 美国有1700万active case， 只有13万住院，赢了赢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  3333qwe  
+##### 3200#       发表于 2022-1-10 00:44
+
+英美同样是诊断数远超上一轮，
+美国住院/icu人数上去了 但英国没上去
+这怎么理解？
+
+*****
+
+####  林照人  
+##### 3201#       发表于 2022-1-10 00:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在美国要处方才能买呼吸机的 
+
+*****
+
+####  林照人  
+##### 3202#       发表于 2022-1-10 00:52
+
+退烧了 不知道还要不要继续吃连花清瘟啊 一次4粒 一天12粒真的感觉好多<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

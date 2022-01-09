@@ -11992,3 +11992,21 @@ qq群这种大型回音壁...感觉如果是几个好兄弟或者数量有限的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  CAserlumos  
+##### 4041#       发表于 2022-1-10 01:00
+
+pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 4042#       发表于 2022-1-10 01:00
+
+菜宝都没说话 果然是表面姐妹()
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
