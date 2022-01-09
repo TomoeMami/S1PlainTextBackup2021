@@ -2322,3 +2322,15 @@ BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since 
 对于海外党买到哪个档次的性价比最高，印度经验有这方面分析么？</blockquote>
 这个，印度穷人比海外党穷太多，富人比海外党富太多，好像没有太多参考价值吧。
 
+
+
+*****
+
+####  abcbuzhiming  
+##### 3195#       发表于 2022-1-9 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226312&amp;ptid=2039422" target="_blank">惊奇记事簿 发表于 2022-1-9 21:36</a>
+
+对于海外党买到哪个档次的性价比最高，印度经验有这方面分析么？</blockquote>
+印度经验不存在性价比，买到就不错了，b站有个印度人up主当时就是能买啥就买啥
+
