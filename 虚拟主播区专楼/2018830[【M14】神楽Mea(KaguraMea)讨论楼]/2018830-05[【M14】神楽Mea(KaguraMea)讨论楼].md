@@ -12160,3 +12160,37 @@ lol上瘾
 
 阿咩：我现在不是38岁了，是24岁
 
+
+
+*****
+
+####  时间在我手中  
+##### 7395#       发表于 2022-1-9 20:47
+
+这人是有多无聊，能玩那个连连看五小时<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7396#       发表于 2022-1-9 20:55
+
+ 本帖最后由 T_Hb 于 2022-1-9 20:57 编辑 
+
+衣服比自己干净是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么在谁的频道都要打广告啊
+
+*****
+
+####  古战场亡魂  
+##### 7397#       发表于 2022-1-9 20:58
+
+我看其他两位直播少，但我觉得其他两位不会这么勤奋的打这个广告
+
+*****
+
+####  路人庚  
+##### 7398#       发表于 2022-1-9 21:02
+
+难道不是miru为了强制切断故意放的这段广告让你咩姐收尾的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7114,3 +7114,25 @@ T就是position 0，舞台上用来标记主角站位的记号，这个概念被
 
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  TTAA  
+##### 548#       发表于 2022-1-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54222944&amp;ptid=2043629" target="_blank">七七見奈波 发表于 2022-1-9 16:44</a>
+
+近日火星：2016年参演99.9，2018年加入99组成为99期生的小圆脸Teru酱 ...</blockquote>
+这个时候的teru好青涩啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mldc  
+##### 549#       发表于 2022-1-9 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223662&amp;ptid=2043629" target="_blank">loley 发表于 2022-1-9 17:54</a>
+
+话说其实趁现在大伙还在看，我想问几个其实一直都有点在意的问题。wild screen 巴洛克是啥?position zero是 ...</blockquote>
+wild screen 巴洛克是古川gg留的作业<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
