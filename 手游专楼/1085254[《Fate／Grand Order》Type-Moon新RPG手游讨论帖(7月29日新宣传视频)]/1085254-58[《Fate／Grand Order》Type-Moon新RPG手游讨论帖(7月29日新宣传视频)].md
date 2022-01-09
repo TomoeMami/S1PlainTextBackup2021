@@ -10246,3 +10246,22 @@ FAKER！！！
 
 我问卷也少个项目提交好几次…
 
+
+
+*****
+
+####  exiaexa  
+##### 86495#       发表于 2022-1-9 19:18
+
+看了下，想实装的选了黑玛丽、美神、阿黛尔、提妈、奥菲
+
+今年最喜欢的是通古斯，戏里戏外都太乐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 86496#       发表于 2022-1-9 19:21
+
+果断选了阿贵，第六章剧场盘的小圆盘都发卖了，运营怕不是这回为了这问题要回去查看npc的话都把阿贵给忘了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

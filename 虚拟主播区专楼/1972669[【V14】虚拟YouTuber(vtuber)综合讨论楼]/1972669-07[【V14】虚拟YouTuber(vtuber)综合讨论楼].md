@@ -11079,3 +11079,35 @@ syl
 
 强调好多次不要打礼物还是有人打搞到最后只能暂时停转播，然后一查光转播收益提现都有1k5rmb，女粉恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 9941#       发表于 2022-1-9 19:09
+
+西西这个点数，第二局要怎么打啊，运gamer玩麻都这么厉害...?
+
+*****
+
+####  stedckk  
+##### 9942#       发表于 2022-1-9 19:12
+
+ 本帖最后由 stedckk 于 2022-1-9 19:15 编辑 
+
+这不是就差几千么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三枝第二局也太强了。
+
+*****
+
+####  rzrbtk  
+##### 9943#       发表于 2022-1-9 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54224472&amp;ptid=1972669" target="_blank">stedckk 发表于 2022-1-9 19:12</a>
+
+这不是就差几千么</blockquote>
+第一局西西76700<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">，感觉逆转还是有点难度的...（虽然已经在逆了）
+
+希望阿喵喵赢一把<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
