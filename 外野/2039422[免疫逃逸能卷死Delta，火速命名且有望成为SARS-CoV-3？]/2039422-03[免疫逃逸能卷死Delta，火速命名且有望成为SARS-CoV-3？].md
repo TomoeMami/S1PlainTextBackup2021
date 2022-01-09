@@ -1514,3 +1514,27 @@ If you don’t have a friend in Covid, you don’t have a friend indeed.
 
 该来的还是会来，这次乐观不起来，O毒株的灭活现在什么阶段了？
 
+
+
+*****
+
+####  smy20011  
+##### 3126#       发表于 2022-1-9 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218571&amp;ptid=2039422" target="_blank">gambleman 发表于 2022-1-9 08:54</a>
+该来的还是会来，这次乐观不起来，O毒株的灭活现在什么阶段了？</blockquote>
+最新消息大概是可行性研究之中
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  gambleman  
+##### 3127#       发表于 2022-1-9 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218643&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 09:08</a>
+最新消息大概是可行性研究之中
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+那按照传播速度应该是来不及，等出了，新的变种又来了，没有意义
+
