@@ -12067,3 +12067,15 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 自己找到了
 
+
+
+*****
+
+####  player3960  
+##### 4048#       发表于 2022-1-10 07:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228735&amp;ptid=2036367" target="_blank">stygian 发表于 2022-01-10 02:05:24</a>
+404做拉拉声优系列的更了鲤鱼篇，不出所料的下面有4v在跳</blockquote>这个up关注了很久了，还是比较能放心的，至于评论嘛，实在不行去404点个赞了去b站看搬运吧，他对搬运态度也还蛮开放的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
