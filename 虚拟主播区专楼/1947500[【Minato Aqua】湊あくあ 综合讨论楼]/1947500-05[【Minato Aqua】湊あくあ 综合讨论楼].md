@@ -17166,3 +17166,12 @@ syl：Gura发了小粥Discord好友申请，说很喜欢小粥前辈，觉得人
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以今年她发了多少次烧了？
 
+
+
+*****
+
+####  Yukimi7  
+##### 7415#       发表于 2022-1-9 12:05
+
+开盘，今年会发几次烧
+

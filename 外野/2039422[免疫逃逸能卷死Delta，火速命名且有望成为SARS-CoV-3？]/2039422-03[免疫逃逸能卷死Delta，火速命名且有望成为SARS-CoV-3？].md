@@ -1839,3 +1839,61 @@ BROMPHEN/PSEUDO/DEXTRO HBR SYRUP
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  林照人  
+##### 3154#       发表于 2022-1-9 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220051&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-8 22:55</a>
+
+祝好
+
+这算是正常操作吧，补锌我记得和新冠蛋白质复制的某步有关。</blockquote>
+没给开锌啊。一个抗生素 一个扩张气管的 一个缓解鼻塞的
+
+*****
+
+####  eveshell  
+##### 3155#       发表于 2022-1-9 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220133&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-9 12:03</a>
+
+没给开锌啊。一个抗生素 一个扩张气管的 一个缓解鼻塞的</blockquote>
+生病免疫差，防止炎症开抗生素，其他缓解症状。
+
+*****
+
+####  eveshell  
+##### 3156#       发表于 2022-1-9 12:07
+
+没有人比我更懂杭之冯玥  英国要弃疗了。
+
+首先是继PCR渐渐退场之后，免费侧流快筛检测也将很快宣布取消。
+
+不测了，反正数字也是闹心，入院率和死亡率不上去就没事。
+
+免费检测不是真免费，政府有成本，已经花了60亿英镑了。
+
+很多人测了也不网络上传结果，据统计只有14%的结果上传了。
+
+所以只保留高风险场景（比如养老看护院、医院和学校）和有症状者的免费快筛检测。
+
+密接追踪这些，也全部缩减规模，跟不跟踪的，也没意义了。
+
+反正这个感染情况，被感染是大概率事件，不被感染的反而会是少数。
+
+反正就目前的情况看，他们准备就这么扛过去了。
+
+*****
+
+####  smy20011  
+##### 3157#       发表于 2022-1-9 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220133&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-9 12:03</a>
+没给开锌啊。一个抗生素 一个扩张气管的 一个缓解鼻塞的</blockquote>
+眼拙，看错了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
