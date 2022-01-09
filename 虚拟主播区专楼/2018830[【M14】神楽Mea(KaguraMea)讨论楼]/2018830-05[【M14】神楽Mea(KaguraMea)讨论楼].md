@@ -12022,3 +12022,14 @@ https://m.twitch.tv/videos/1256604843
 
 这么早起打排位了吗 又上头了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 7379#       发表于 2022-1-9 09:54
+
+p家那些人能叫姐妹，这个凭什么不能叫姐妹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
