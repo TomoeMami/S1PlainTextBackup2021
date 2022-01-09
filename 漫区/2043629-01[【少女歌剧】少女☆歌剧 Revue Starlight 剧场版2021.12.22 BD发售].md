@@ -7191,3 +7191,21 @@ wild screen 巴洛克是古川gg留的作业<img src="https://static.saraba1st.c
 
 光恋小时候相处顶多2年多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋哥哥跟隔壁棚的紫薇应该很有共同语言
 
+
+
+*****
+
+####  青龙圣者  
+##### 555#       发表于 2022-1-10 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223662&amp;ptid=2043629" target="_blank">loley 发表于 2022-1-9 17:54</a>
+
+话说其实趁现在大伙还在看，我想问几个其实一直都有点在意的问题。wild screen 巴洛克是啥?position zero是 ...</blockquote>
+Wide screen baroque  狂野银屏巴洛克是科幻小说专用术语
+
+指拥有印象深刻人物、暴力、阴谋、夸张的背景或行动以及快节奏的情节
+
+position zero就是舞台中心，偶像队伍里C位的意思，站在C位的就是主角、胜利者。
+
+T字就是舞台中心，用T来做标记。
+

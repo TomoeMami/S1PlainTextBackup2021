@@ -2402,3 +2402,32 @@ BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since 
 
 退烧了 不知道还要不要继续吃连花清瘟啊 一次4粒 一天12粒真的感觉好多<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jxwats1  
+##### 3203#       发表于 2022-1-10 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228295&amp;ptid=2039422" target="_blank">3333qwe 发表于 2022-1-10 00:44</a>
+
+英美同样是诊断数远超上一轮，
+
+美国住院/icu人数上去了 但英国没上去
+
+这怎么理解？ ...</blockquote>
+英国的疫苗接种比例比美国好一些：英国至少一针/两针/三针的比例是78%，71%，52；美国是74%,62%,22%
+
+顺便，新乡时报今天对比了纽约、波士顿、芝加哥的确诊数和推迟了21天的死亡数趋势，有兴趣的可以[自己去看看](https://www.nytimes.com/interactive/2022/01/09/us/omicron-cities-cases-hospitals.html)（太长不看版：mild！！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  smy20011  
+##### 3204#       发表于 2022-1-10 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54224188&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 18:44</a>
+https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点有限，但国外爆炸还是主要靠免疫逃 ...</blockquote>
+笑死了，到国内了这货反而不敢散播焦虑了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
