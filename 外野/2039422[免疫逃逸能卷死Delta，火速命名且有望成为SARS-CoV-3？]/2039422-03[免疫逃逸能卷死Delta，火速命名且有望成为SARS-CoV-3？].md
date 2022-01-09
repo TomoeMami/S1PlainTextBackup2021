@@ -1615,3 +1615,36 @@ LeBonHommedelta从爆发到现在见顶历时八个月。  以此类推的话�
 
 BA.1说实话还好，坏的是现在BA.2抬头了……
 
+
+
+*****
+
+####  www151007  
+##### 3136#       发表于 2022-1-9 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219028&amp;ptid=2039422" target="_blank">tyfsam 发表于 2022-1-9 10:08</a>
+
+根据香港研究，加强针是不是应该打复必泰，国内应该考虑下了</blockquote>
+复必泰的美国怎么样了 有一点点屌用吗？
+
+*****
+
+####  eveshell  
+##### 3137#       发表于 2022-1-9 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219028&amp;ptid=2039422" target="_blank">tyfsam 发表于 2022-1-9 10:08</a>
+
+根据香港研究，加强针是不是应该打复必泰，国内应该考虑下了</blockquote>
+目前重组蛋白最好
+
+*****
+
+####  titians  
+##### 3138#       发表于 2022-1-9 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218972&amp;ptid=2039422" target="_blank">riczxc 发表于 2022-1-9 10:01</a>
+特别大规模聚集核酸检测...
+
+如果要靠扫楼进行核酸检测，那需要的人力物力就大了。 ...</blockquote>
+扫楼难，只能加大查到未做的处罚力度
+
