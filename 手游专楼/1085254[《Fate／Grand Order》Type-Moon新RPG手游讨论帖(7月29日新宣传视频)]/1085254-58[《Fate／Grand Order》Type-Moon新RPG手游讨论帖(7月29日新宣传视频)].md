@@ -10274,3 +10274,29 @@ FAKER！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">羁绊30石 哪吒+1 艹
 
+
+
+*****
+
+####  v22325  
+##### 86498#       发表于 2022-1-9 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 谢谢问卷 出狐狸了
+
+*****
+
+####  alucardcz  
+##### 86499#       发表于 2022-1-9 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54225202&amp;ptid=1085254" target="_blank">v22325 发表于 2022-1-9 20:17</a>
+
+草 谢谢问卷 出狐狸了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">为什么你们都这么欧呢　萌新毛都没有　合理吗　这一切
+
+*****
+
+####  zore  
+##### 86500#       发表于 2022-1-9 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好fgo特色的四星立绘
+
