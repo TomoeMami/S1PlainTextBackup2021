@@ -1565,3 +1565,53 @@ If you don’t have a friend in Covid, you don’t have a friend indeed.
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  riczxc  
+##### 3131#         楼主| 发表于 2022-1-9 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218782&amp;ptid=2039422" target="_blank">Aegis1213 发表于 2022-1-9 09:30</a>
+
+之后主要精力要对付的肯定是omicron，防疫措施也需要更新了</blockquote>
+特别大规模聚集核酸检测...
+
+如果要靠扫楼进行核酸检测，那需要的人力物力就大了。
+
+*****
+
+####  tyfsam  
+##### 3132#       发表于 2022-1-9 10:08
+
+根据香港研究，加强针是不是应该打复必泰，国内应该考虑下了
+
+*****
+
+####  JJDUB3VQ  
+##### 3133#       发表于 2022-1-9 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54209330&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-01-08 12:13:32</a>
+LeBonHommedelta从爆发到现在见顶历时八个月。  以此类推的话，omicron大概是今年六月份见顶。考虑到omicro ...</blockquote>能认为这是西方集体准备后事了吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  smy20011  
+##### 3134#       发表于 2022-1-9 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219028&amp;ptid=2039422" target="_blank">tyfsam 发表于 2022-1-9 10:08</a>
+根据香港研究，加强针是不是应该打复必泰，国内应该考虑下了</blockquote>
+引入是不可能引入的，这辈子是不可能引入的。
+而且就算打了，对于目标是清零的国内来说也没用啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Kanoya  
+##### 3135#       发表于 2022-1-9 10:20
+
+BA.1说实话还好，坏的是现在BA.2抬头了……
+
