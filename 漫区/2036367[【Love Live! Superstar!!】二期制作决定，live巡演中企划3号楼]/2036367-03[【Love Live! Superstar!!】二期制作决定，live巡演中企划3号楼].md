@@ -11971,3 +11971,24 @@ https://www.bilibili.com/video/BV1Du411U7PN
 我刚进群没多久又出内鬼事件了啊 虽然这次内容没 ...</blockquote>
 这人老惯犯的，之前他在一群的时候没经同意就把群友自购的群文件发b站。被管理踢出去了，这次大概是用小号摸进三群了。他在我们二群里拉黑级别的了，他之前把鲤鱼cos图加个bgm投自制视频发b站，属实离谱。
 
+
+
+*****
+
+####  csolfans  
+##### 4039#       发表于 2022-1-10 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226119&amp;ptid=2036367" target="_blank">Norkey1 发表于 2022-1-9 21:21</a>
+
+你们这种群里真聊鲤鱼吗</blockquote>
+如果平时没啥事的话，啥都聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  deery  
+##### 4040#       发表于 2022-1-10 00:22
+
+qq群这种大型回音壁...感觉如果是几个好兄弟或者数量有限的同好吹吹水也就算了，人一多起来就是小鬼和极端粉丝的温床<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
