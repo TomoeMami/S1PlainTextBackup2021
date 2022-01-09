@@ -17157,3 +17157,12 @@ syl：Gura发了小粥Discord好友申请，说很喜欢小粥前辈，觉得人
 
 其实en和jp交流应该直接上语音识别和翻译机，草生也有草生的乐趣，比像个傻子一样用诡异的口音重复单个词强多了。
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 7414#       发表于 2022-1-9 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以今年她发了多少次烧了？
+

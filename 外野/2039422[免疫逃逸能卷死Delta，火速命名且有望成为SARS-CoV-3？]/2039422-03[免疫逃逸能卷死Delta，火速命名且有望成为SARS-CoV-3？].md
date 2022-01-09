@@ -1729,3 +1729,62 @@ BA.1说实话还好，坏的是现在BA.2抬头了……
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2- ...</blockquote>
 有相关论文么？
 
+
+
+*****
+
+####  smy20011  
+##### 3146#       发表于 2022-1-9 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219593&amp;ptid=2039422" target="_blank">中二骚年 发表于 2022-1-9 11:14</a>
+有相关论文么？</blockquote>
+gsaid自己看呗，还有ny新冠测序数据
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  eveshell  
+##### 3147#       发表于 2022-1-9 11:40
+
+ 本帖最后由 eveshell 于 2022-1-9 11:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219593&amp;ptid=2039422" target="_blank">中二骚年 发表于 2022-1-9 11:14</a>
+
+有相关论文么？</blockquote>
+<img src="http://mmbiz.qpic.cn/mmbiz_png/h93q3xtv3kQ98e7cYtvp4VP8vd1d2TibQNib8iaWVBQVxKXSgDWRtxUl7m4snTAT2G6Tvn2tBicBiceWWkwgXibXxK0A/640?wx_fmt=png&amp;tp=webp&amp;wxfrom=5&amp;wx_lazy=1&amp;wx_co=1" id="aimg_QMXXg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+德尔塔下降，还没输。o的抗体可以抑制d是目前的新看法[https://weibo.com/7547506648/L85AAFBlX](https://weibo.com/7547506648/L85AAFBlX)
+
+*****
+
+####  smy20011  
+##### 3148#       发表于 2022-1-9 11:41
+
+https://www.nbcnewyork.com/news/coronavirus/ny-covid-hospitalizations-top-10000-for-1st-time-in-20-months-new-cdc-data-puts-omicron-at-up-to-99-of-cases/3478747/
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  中二骚年  
+##### 3149#       发表于 2022-1-9 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219842&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 11:38</a>
+
+gsaid自己看呗，还有ny新冠测序数据
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-p ...</blockquote>
+哎呀急的covariant都敲错了，另外是GISAID不是gsaid
+
+说白了就是没有论文你自己拍脑袋出来的呗
+
+*****
+
+####  中二骚年  
+##### 3150#       发表于 2022-1-9 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54219869&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 11:40</a>
+
+德尔塔下降，还没输。o的抗体可以抑制d是目前的新看法</blockquote>
+其实就是那位自己胡编的，他自己问别人要论文倒是理直气壮
+

@@ -12051,3 +12051,19 @@ lol上瘾
 
 早上4 5点就开始打了 打到现在还在打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makourisu-2  
+##### 7382#       发表于 2022-1-9 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以这是打算打完去睡，还是凌晨四五点钟就醒了？
+
+*****
+
+####  Klience  
+##### 7383#       发表于 2022-1-9 11:36
+
+都有可能 不过大概率凌晨就醒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
