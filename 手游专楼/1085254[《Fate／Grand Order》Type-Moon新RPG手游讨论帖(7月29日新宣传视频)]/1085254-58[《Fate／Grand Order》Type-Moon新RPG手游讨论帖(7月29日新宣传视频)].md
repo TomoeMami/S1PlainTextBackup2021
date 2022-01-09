@@ -10160,3 +10160,51 @@ FAKER！！！
 我超，我光速填完问卷后，4个护符出了暗狐</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这就是欧皇吗！ 羡慕了
 
+
+
+*****
+
+####  里村紅葉  
+##### 86486#       发表于 2022-1-9 18:10
+
+2022年内开2.7，没说年内结束是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86487#       发表于 2022-1-9 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223754&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-9 18:05</a>
+这就是欧皇吗！ 羡慕了</blockquote>
+欧啥啊，强化本幕间全打完了，这几天一直刷羁绊，刚才看生放的时候还边看边刷抠出来个十连啥都没有，还为了拿幕间本的石头把一直没动的自选给换了，刚才也是看到生放说有问卷，结束后一直在刷新官网，地址一出来光速填了后，总算才抽到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86488#       发表于 2022-1-9 18:19
+
+ 本帖最后由 zakki 于 2022-1-9 18:23 编辑 
+
+光速金芙芙圣杯技能拉满，可惜金芙芙不够了，拉不到2000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/4/d09e725af62b0ef5442c2d567de8446e/IMG_CMP_195219924.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86489#       发表于 2022-1-9 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223822&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-9 18:13</a>
+
+欧啥啊，强化本幕间全打完了，这几天一直刷羁绊，刚才看生放的时候还边看边刷抠出来个十连啥都没有，还为 ...</blockquote>
+等等 我填完了怎么没拿到护符
+
+*****
+
+####  zakki  
+##### 86490#       发表于 2022-1-9 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223934&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-9 18:23</a>
+等等 我填完了怎么没拿到护符</blockquote>
+填完后秒到账，你是不是忘了填id
+
