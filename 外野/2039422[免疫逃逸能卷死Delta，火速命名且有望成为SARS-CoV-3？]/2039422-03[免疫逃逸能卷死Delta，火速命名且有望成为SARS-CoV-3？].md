@@ -1910,3 +1910,152 @@ BROMPHEN/PSEUDO/DEXTRO HBR SYRUP
 首先是继PCR渐渐退场之后，免费侧流快筛检测也将很快宣布取消。</blockquote>
 之前英格兰银行意外加息，是真撑不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Redis  
+##### 3159#       发表于 2022-1-9 12:42
+
+ 本帖最后由 Redis 于 2022-1-9 12:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220180&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 12:07</a>
+
+没有人比我更懂杭之冯玥  英国要弃疗了。
+
+首先是继PCR渐渐退场之后，免费侧流快筛检测也将很快宣布取消。</blockquote>
+看样子的确是要扛过去了
+
+本地的高峰已经来临，不过住院率还是没有上升，按照目前这个节奏，高峰2个星期就会过去，到时候不胜利也会自动胜利<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">，周围有十几个人冠了，感觉。。。也还好？没有恐慌情绪
+
+*****
+
+####  yhaos  
+##### 3160#       发表于 2022-1-9 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218490&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 08:36</a>
+
+建议您跟wiki打编辑战
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+这时候又不会高中知识啦？
+
+*****
+
+####  Redis  
+##### 3161#       发表于 2022-1-9 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220011&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-9 11:52</a>
+
+坐标北美 持续发烧38度-39度 泰诺不退烧 今天测了下 冠了
+
+问医生说发烧没事 啥时候呼吸困难才去医院
+
+目前血 ...</blockquote>
+booster打了么
+
+*****
+
+####  林照人  
+##### 3162#       发表于 2022-1-9 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220562&amp;ptid=2039422" target="_blank">Redis 发表于 2022-1-8 23:46</a>
+
+booster打了么</blockquote>
+第一针和第二针打了 
+
+都是Moderna
+
+*****
+
+####  smy20011  
+##### 3163#       发表于 2022-1-9 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220548&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-9 12:45</a>
+这时候又不会高中知识啦？</blockquote>
+您要不找找高中历史书，和这wiki冲突么？
+还是说您需要补习高中历史？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Redis  
+##### 3164#       发表于 2022-1-9 12:50
+
+ 本帖最后由 Redis 于 2022-1-9 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220608&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-9 12:48</a>
+
+第一针和第二针打了 
+
+都是Moderna</blockquote>
+嗯， booster其实好像也就是。。。稍微多点儿抗体，防止感染也不没啥用
+
+我周围的同事也不像是那种不仔细的人，很多应该也大了booster，结果也感染了
+
+大多数还在隔离不过也在上班了（远程）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 3165#       发表于 2022-1-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220633&amp;ptid=2039422" target="_blank">Redis 发表于 2022-1-9 12:50</a>
+嗯， booster其实好像也就是。。。稍微多点儿抗体，防止感染也不没啥用
+
+我周围的同事也不像是那种不仔细 ...</blockquote>
+打了booster，难受躺一天，但是对omicron的时候只需要躺半天。
+
+不打booster，不会因为疫苗躺，但是感染了omicron会躺一天半。
+
+躺平守恒定理
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  yhaos  
+##### 3166#       发表于 2022-1-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220623&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-9 12:50</a>
+
+您要不找找高中历史书，和这wiki冲突么？
+
+还是说您需要补习高中历史？</blockquote>
+你不是一直在提高中水平吗，凯，笔给你，算算看呗。
+
+别学书记呀
+
+*****
+
+####  smy20011  
+##### 3167#       发表于 2022-1-9 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220663&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-9 12:52</a>
+你不是一直在提高中水平吗，凯，笔给你，算算看呗。
+
+别学书记呀</blockquote>
+有意见你给wiki提啊，我只是丢了个wiki的链接就是了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  66666  
+##### 3168#       发表于 2022-1-9 12:55
+
+说真的，就目前我国部分大型城市表现出来的草台现象，真心对防住O病毒有点信心不足
+
+*****
+
+####  Redis  
+##### 3169#       发表于 2022-1-9 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220699&amp;ptid=2039422" target="_blank">66666 发表于 2022-1-9 12:55</a>
+
+说真的，就目前我国部分大型城市表现出来的草台现象，真心对防住O病毒有点信心不足 ...</blockquote>
+O病毒我觉得够呛
+
+这玩意儿比我想象的要牛逼很多，感觉不是注不注意的问题，而是不严格禁止接触就会主动找到你的程度。上个冬天都没有这么多集体爆发的，当时还没打疫苗。
+
+所以怎么说呢，欧美现在的防疫政策对他们自己是对的，因为对于这种程度的传染性他们连尝试的必要都没有，躺平才是正确的道路
+

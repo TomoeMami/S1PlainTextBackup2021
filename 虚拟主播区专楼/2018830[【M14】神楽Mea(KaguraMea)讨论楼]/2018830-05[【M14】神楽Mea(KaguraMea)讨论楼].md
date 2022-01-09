@@ -12076,3 +12076,21 @@ lol上瘾
 
 <img src="https://p.sda1.dev/4/68b456bf6cd0b65743ce14a4812b61ff/IMG_CMP_6073067.jpeg" referrerpolicy="no-referrer">11号和野男人双排101
 
+
+
+*****
+
+####  Klience  
+##### 7385#       发表于 2022-1-9 12:55
+
+ 本帖最后由 Klience 于 2022-1-9 13:00 编辑 
+
+查了下这人的战绩 主打ad和蛇女 段位基本在黄金和白银左右 S6开始打排位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 去年年末还拉了点赞哥一起玩了太空狼人
+
+*****
+
+####  时间在我手中  
+##### 7386#       发表于 2022-1-9 13:00
+
+开始在奇怪的地方出现了可还行。
+
