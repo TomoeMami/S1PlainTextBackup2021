@@ -7041,3 +7041,16 @@ bd的三个特典在b站都有熟肉了，感兴趣的可以去看看
 
 请教一下，第一个总集篇剧场版的字幕去哪能找到哇
 
+
+
+*****
+
+####  七七見奈波  
+##### 542#       发表于 2022-1-9 16:44
+
+<[img src="https://s2.loli.net/2022/01/09/qBSiuLWcHYvg8XA.png" referrerpolicy="no-referrer">
+
+<[img src="https://s2.loli.net/2022/01/09/YAJWBXGuEz32hDr.png" referrerpolicy="no-referrer">
+
+近日火星：2016年参演99.9，2018年加入99组成为99期生的小圆脸Teru酱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
