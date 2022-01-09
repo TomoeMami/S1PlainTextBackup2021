@@ -10018,3 +10018,69 @@ B6/R的“残香”根据泳装尼禄的线索看应该是指向harlot的，我�
 
 石仓现场奥伯龙草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 86468#       发表于 2022-1-9 17:07
+
+复刻加料了，faker终于落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86469#       发表于 2022-1-9 17:07
+
+FAKER！！！
+
+*****
+
+####  exiaexa  
+##### 86470#       发表于 2022-1-9 17:08
+
+公瑾惨遭奶死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86471#       发表于 2022-1-9 17:09
+
+四星伪阶，抽抽抽！
+
+*****
+
+####  仰望神的括约肌  
+##### 86472#       发表于 2022-1-9 17:09
+
+又是常驻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 86473#       发表于 2022-1-9 17:09
+
+果然事件簿迟迟不复刻是在等伪装者实装啊
+
+*****
+
+####  khxooo  
+##### 86474#       发表于 2022-1-9 17:12
+
+常驻啊，希望以后可以歪倒吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 86475#       发表于 2022-1-9 17:13
+
+常驻就等歪，司马懿二宝毫无意义
+
+*****
+
+####  qixinno2  
+##### 86476#       发表于 2022-1-9 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥伯龙复刻到时候歪一个这玩意多难受
+

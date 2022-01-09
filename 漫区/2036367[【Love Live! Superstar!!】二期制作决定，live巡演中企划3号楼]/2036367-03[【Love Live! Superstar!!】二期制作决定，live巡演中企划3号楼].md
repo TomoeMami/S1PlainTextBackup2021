@@ -10882,3 +10882,126 @@ DAE095D6-5C31-4CC7-802F-BE151D45D57E.jpeg
 
 无论是青山还是叶月，多依赖一点大家也无妨的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CAserlumos  
+##### 3939#       发表于 2022-1-9 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 3940#       发表于 2022-1-9 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 3941#       发表于 2022-1-9 17:07
+
+鲤鱼那个表情眼泪绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 3942#       发表于 2022-1-9 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">导播很懂最后握手应该拍谁w
+
+*****
+
+####  秋月艾莉  
+##### 3943#       发表于 2022-1-9 17:10
+
+阿pay致谢真tm专业
+
+就像混熟了演艺圈的阿堇一样专业
+
+*****
+
+####  lj205  
+##### 3944#       发表于 2022-1-9 17:10
+
+还20分钟
+
+*****
+
+####  starring  
+##### 3945#       发表于 2022-1-9 17:11
+
+拍照歌那里鲤鱼一直眼泪汪汪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+Nagi真的好坚强，强忍住没落泪
+
+*****
+
+####  player3960  
+##### 3946#       发表于 2022-1-9 17:11
+
+鲤鱼和可可，我要语无伦次了，简直了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3947#       发表于 2022-1-9 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">pay子成长了好多
+
+*****
+
+####  cybernetics31  
+##### 3948#       发表于 2022-1-9 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">鱼
+
+*****
+
+####  iuhehc  
+##### 3949#       发表于 2022-1-9 17:15
+
+吹蜡烛来了
+
+*****
+
+####  lj205  
+##### 3950#       发表于 2022-1-9 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">生日快乐，鲤鱼
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3951#       发表于 2022-1-9 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">真好啊
+
+*****
+
+####  stygian  
+##### 3952#       发表于 2022-1-9 17:16
+
+🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟
+
+*****
+
+####  player3960  
+##### 3953#       发表于 2022-1-9 17:18
+
+观众们真是温柔啊，鲤鱼真是幸福！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  秋月艾莉  
+##### 3954#       发表于 2022-1-9 17:18
+
+这致辞致这么久了，再来一首收尾不过分吧
+
+给我来啊!!
+

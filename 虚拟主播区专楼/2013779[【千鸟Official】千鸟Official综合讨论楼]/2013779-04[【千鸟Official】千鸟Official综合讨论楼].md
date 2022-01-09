@@ -5186,3 +5186,12 @@ co宝《等一下，好怪，再看一遍》
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  rgauss  
+##### 5036#       发表于 2022-1-9 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">心痛木木的调音师
+
