@@ -7136,3 +7136,12 @@ T就是position 0，舞台上用来标记主角站位的记号，这个概念被
 话说其实趁现在大伙还在看，我想问几个其实一直都有点在意的问题。wild screen 巴洛克是啥?position zero是 ...</blockquote>
 wild screen 巴洛克是古川gg留的作业<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiaocheng  
+##### 550#       发表于 2022-1-9 21:13
+
+我猜狂野宽屏巴洛克的狂野应该就是光和蕉念叨的舞台少女的野性，宽屏就是剧场版，巴洛克就是巴洛克（
+

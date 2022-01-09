@@ -12194,3 +12194,33 @@ lol上瘾
 
 难道不是miru为了强制切断故意放的这段广告让你咩姐收尾的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 7399#       发表于 2022-1-9 21:06
+
+因为人家问了肥婆有没有什么要宣传的啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 7400#       发表于 2022-1-9 21:12
+
+手机推限
+
+*****
+
+####  时间在我手中  
+##### 7401#       发表于 2022-1-9 21:19
+
+什么游戏废人，打到白银二了
+
+*****
+
+####  T_Hb  
+##### 7402#       发表于 2022-1-9 21:19
+
+白银2惹
+

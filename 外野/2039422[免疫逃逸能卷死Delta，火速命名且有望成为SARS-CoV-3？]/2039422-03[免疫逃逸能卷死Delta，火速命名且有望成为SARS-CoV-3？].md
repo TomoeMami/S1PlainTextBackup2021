@@ -2262,3 +2262,22 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 防疫能力是有上限的，这波omicron四处开花证明其传播能力已经超过了现在防疫政策的上限，但改变政策后这 ...</blockquote>
 你可以建议**政府多向中国取经学习
 
+
+
+*****
+
+####  eveshell  
+##### 3189#       发表于 2022-1-9 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54225307&amp;ptid=2039422" target="_blank">phyc 发表于 2022-1-9 20:26</a></blockquote>
+可能是污染
+
+*****
+
+####  惊奇记事簿  
+##### 3190#       发表于 2022-1-9 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54225788&amp;ptid=2039422" target="_blank">lvcha 发表于 2022-1-9 20:58</a>
+家用呼吸机应该没啥用吧</blockquote>
+自救么，有啥用啥了咯
+
