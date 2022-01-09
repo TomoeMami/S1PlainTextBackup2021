@@ -5120,3 +5120,41 @@ co宝《等一下，好怪，再看一遍》
 
 今天这一场真好啊，希望她能一直像这样开心
 
+
+
+*****
+
+####  ba娜娜  
+##### 5029#       发表于 2022-1-9 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">问下楼友，鸟团五个人每个人直播时长这么多你们直播看得完吗，我现在补录播已经补的要死了，这五个人太能播了
+
+*****
+
+####  rgauss  
+##### 5030#       发表于 2022-1-9 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218774&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-9 09:29</a>
+问下楼友，鸟团五个人每个人直播时长这么多你们直播看得完吗，我现在补录播已经补的要死了，这五个 ...</blockquote>
+摆烂回不看 团号不看
+
+*****
+
+####  ba娜娜  
+##### 5031#       发表于 2022-1-9 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218789&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-1-9 09:31</a>
+
+摆烂回不看 团号不看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">就算剔除看电视剧或者摆烂，只看电台和杂谈和歌回，感觉也看不完orz
+
+*****
+
+####  rgauss  
+##### 5032#       发表于 2022-1-9 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218807&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-9 09:34</a>
+就算剔除看电视剧或者摆烂，只看电台和杂谈和歌回，感觉也看不完orz ...</blockquote>
+真要补的话，王木木可以就补一下配音回。艾白补一下切片就行，co不经常看。
+艾瑞思补歌回切片以及和文静中秋联动回就行。
+

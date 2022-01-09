@@ -1538,3 +1538,30 @@ If you don’t have a friend in Covid, you don’t have a friend indeed.
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
 那按照传播速度应该是来不及，等出了，新的变种又来了，没有意义
 
+
+
+*****
+
+####  yario  
+##### 3128#       发表于 2022-1-9 09:21
+
+别精准流调了，天津已经决定全员核酸
+
+*****
+
+####  Aegis1213  
+##### 3129#       发表于 2022-1-9 09:30
+
+之后主要精力要对付的肯定是omicron，防疫措施也需要更新了
+
+*****
+
+####  smy20011  
+##### 3130#       发表于 2022-1-9 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54218700&amp;ptid=2039422" target="_blank">gambleman 发表于 2022-1-9 09:17</a>
+那按照传播速度应该是来不及，等出了，新的变种又来了，没有意义</blockquote>
+只能指望防控速度能让疫苗赶上了，乐观估计三个月左右？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
