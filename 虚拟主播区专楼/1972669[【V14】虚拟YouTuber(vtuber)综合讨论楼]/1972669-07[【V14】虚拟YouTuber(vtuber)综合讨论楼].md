@@ -11216,3 +11216,21 @@ Syl，/vt/事业民都在骂他秒速下播<img src="https://static.saraba1st.co
 
 东南亚这么多人看的么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道港澳台占多少
 
+
+
+*****
+
+####  OldGlory  
+##### 9954#       发表于 2022-1-9 23:42
+
+这下GURA KILLER了
+
+*****
+
+####  鹬清风月  
+##### 9955#       发表于 2022-1-9 23:47
+
+ 本帖最后由 鹬清风月 于 2022-1-9 23:48 编辑 
+
+不一定都是es解，反正我看我好几个号首页都有人搞en新人，只能说大部分拆那同人女都被引过来了，毕竟我不搞es，好几个号首页es浓度约等于没有，应该能说明一些事情（）
+

@@ -2356,3 +2356,24 @@ BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since 
 是不是可以从中国买点家用呼吸机备着？</blockquote>
 测到血氧低赶紧润医院，家用呼吸机有啥用。。。
 
+
+
+*****
+
+####  惊奇记事簿  
+##### 3198#       发表于 2022-1-9 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54227456&amp;ptid=2039422" target="_blank">Redis 发表于 2022-1-9 23:08</a>
+测到血氧低赶紧润医院，家用呼吸机有啥用。。。</blockquote>
+如果类似印度那种医院满了呢？类似日本那种医院不收呢
+
+*****
+
+####  烦死了  
+##### 3199#       发表于 2022-1-10 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226452&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-9 21:47</a>
+
+BNO: Number of Americans hospitalized with COVID-19 hits 133,000, highest since pandemic began</blockquote>
+美国有1700万active case， 只有13万住院，赢了赢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

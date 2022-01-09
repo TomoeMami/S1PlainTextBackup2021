@@ -11908,3 +11908,66 @@ bubu!pay酱out！
 日本时间已经10号了，没机会了</blockquote>
 pay子她醒了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 4032#       发表于 2022-1-9 23:45
+
+中国时间还没过，鲤鱼是中国人所以没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chenflyyy  
+##### 4033#       发表于 2022-1-9 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226293&amp;ptid=2036367" target="_blank">绯想alter2nd 发表于 2022-1-9 21:34</a>
+
+气氛和管人粉丝群有点像(非贬义</blockquote>
+对，各方面是挺像的，之前管人一堆破事都是从群里出来，希望别这样吧，上次被开团的鲤鱼群主就挺危险的，好在对面店长属实理亏，认识他的最好让他说话注意点吧，不然风评被害的只会是正主
+
+*****
+
+####  优妮可  
+##### 4034#       发表于 2022-1-9 23:47
+
+可以
+
+*****
+
+####  lj205  
+##### 4035#       发表于 2022-1-9 23:48
+
+连佩佩都不喊鲤鱼姐姐了，鲤鱼啊，你真就是团宠了，双n的祝福还都是跟吃有关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 4036#       发表于 2022-1-9 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54227778&amp;ptid=2036367" target="_blank">kata魂 发表于 2022-01-09 23:41:41</a>
+pay子她醒了</blockquote>giligili safe，pay酱又熬夜祝福，感动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 4037#       发表于 2022-1-9 23:49
+
+看来只有菜宝会喊鲤鱼姐姐了，这是一种瑞思拜
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 4038#       发表于 2022-1-10 00:05
+
+<blockquote>名津流 发表于 2022-1-9 23:29
+https://www.bilibili.com/video/BV1Du411U7PN
+
+我刚进群没多久又出内鬼事件了啊 虽然这次内容没 ...</blockquote>
+这人老惯犯的，之前他在一群的时候没经同意就把群友自购的群文件发b站。被管理踢出去了，这次大概是用小号摸进三群了。他在我们二群里拉黑级别的了，他之前把鲤鱼cos图加个bgm投自制视频发b站，属实离谱。
+
