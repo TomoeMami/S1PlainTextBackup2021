@@ -2068,3 +2068,23 @@ O病毒我觉得够呛
 
 国内自研重组疫苗不少只是nmpa一直没批，奥密克戎持续下去应该会批了吧…
 
+
+
+*****
+
+####  smy20011  
+##### 3171#       发表于 2022-1-9 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54220891&amp;ptid=2039422" target="_blank">Akakaka 发表于 2022-1-9 13:12</a>
+国内自研重组疫苗不少只是nmpa一直没批，奥密克戎持续下去应该会批了吧…</blockquote>
+三叶草的三针不也批了？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Dreki  
+##### 3172#       发表于 2022-1-9 13:50
+
+乐了，没想到过了这么多天楼里还在和高中生物哥battle<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
