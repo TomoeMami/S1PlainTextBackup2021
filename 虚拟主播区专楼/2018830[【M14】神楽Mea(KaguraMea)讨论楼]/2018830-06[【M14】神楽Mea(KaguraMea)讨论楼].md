@@ -328,3 +328,19 @@ saya复活了？之前直播中晕过去了人事不省，苔苔第二天才联�
 
 反正和你麻没关系，管它干啥，人是独立的个体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 7538#       发表于 2022-1-10 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54238213&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2022-1-10 20:08</a>
+有无懂哥介绍一下saya是咋了？
+按这公告的四条理由，有点吓人啊</blockquote>
+四 倍 役 满
+
+又到了抉择的时候了，是选择小姐妹还是选择苔总
+
+估计要和苔总火拼了
+
