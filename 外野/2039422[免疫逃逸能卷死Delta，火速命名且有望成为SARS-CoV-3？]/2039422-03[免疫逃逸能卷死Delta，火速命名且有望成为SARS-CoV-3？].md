@@ -2519,3 +2519,16 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 奥密克戎来袭，全球再迎疫情高峰，目前全美已累计确诊6085万，病 ...</blockquote>
 死麻了（
 
+
+
+*****
+
+####  Kanoya  
+##### 3211#       发表于 2022-1-10 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228498&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-10 01:19</a>
+笑死了，到国内了这货反而不敢散播焦虑了
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
+装啥外宾呢……他作为一手焦虑源，号还要的
+
