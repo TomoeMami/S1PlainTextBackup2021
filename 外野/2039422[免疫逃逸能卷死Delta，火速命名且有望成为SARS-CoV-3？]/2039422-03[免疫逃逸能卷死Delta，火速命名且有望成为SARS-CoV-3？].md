@@ -2532,3 +2532,26 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
 装啥外宾呢……他作为一手焦虑源，号还要的
 
+
+
+*****
+
+####  罗莉控  
+##### 3212#       发表于 2022-1-10 09:04
+
+安啦，今天美国死的还没到250<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  bingpou  
+##### 3213#       发表于 2022-1-10 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228857&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-10 02:57</a>
+
+好起来了， 罗德岛医院要求无症状的医生护士照常去上班  mild
+
+同时reddit群众表示这个就是基操，全 ...</blockquote>
+至少一周前我听到的消息就是愿意上班的（能上班的）医护有症状也可以照常上班。另，除非特定情况（雇主要求），不然不管是五天的，十天的，还是二十天的自我隔离，返工前都不需要再做检测。
+
+海外党、能翻墙的我推荐一个播主Dr. Glaucomflecken，就... 很真实...<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

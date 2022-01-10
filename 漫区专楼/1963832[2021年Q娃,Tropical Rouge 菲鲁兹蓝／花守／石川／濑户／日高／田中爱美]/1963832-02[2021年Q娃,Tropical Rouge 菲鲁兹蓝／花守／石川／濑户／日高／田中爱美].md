@@ -12670,3 +12670,18 @@ pid95129368
 真夏算是mana之后人间体身体素质最强的吧什么大力王</blockquote>
 还记得第一集的背着大箱翻身上船顶么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2456#       发表于 2022-1-10 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54222324&amp;ptid=1963832" target="_blank">lydia5989 发表于 2022-1-9 15:29</a>
+传q解决危机应该是跟魔女同归于尽的，那时候海马也在
+
+魔女估计就是个人鱼亚种或接触了什么的人鱼 ...</blockquote>
+哪有，女王明明说了后来自己和歹徒对峙，那个才是海马吧
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
