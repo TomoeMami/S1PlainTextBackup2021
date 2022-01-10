@@ -11394,3 +11394,19 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 逼真形式主义观众<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 9968#       发表于 2022-1-10 18:45
+
+虽然大体没什么问题，但VOMS王牌一直是Pikamee啊
+
+*****
+
+####  ヒトニナル  
+##### 9969#       发表于 2022-1-10 18:54
+
+草，GYARI那箱订阅最高的一直是pikamee啊，人家会说英语是白皮特攻
+

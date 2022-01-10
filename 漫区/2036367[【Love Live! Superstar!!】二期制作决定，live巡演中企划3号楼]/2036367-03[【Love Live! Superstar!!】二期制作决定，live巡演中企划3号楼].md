@@ -12428,3 +12428,53 @@ pay打出这些话，自己应该都脸红了吧
 我靠，傻逼台湾人，乱说个什么</blockquote>
 有一说一他之前做的系列都是本名开示的
 
+
+
+*****
+
+####  lj205  
+##### 4079#       发表于 2022-1-10 18:47
+
+ 本帖最后由 lj205 于 2022-1-10 18:49 编辑 
+
+这FC生放的死亡打光和化妆<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+背景气球各种掉，今年也是吃三个蛋糕，人太多留言卡死到掉线
+
+今天还是安静看生放不说话了May'N录了祝福视频
+
+*****
+
+####  chenflyyy  
+##### 4080#       发表于 2022-1-10 18:51
+
+他做nagi视频的时候也是说了本名的，还把人有过男友的事直接说出来，其实我觉得没什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+会去看这视频的人也基本知道鲤鱼本名吧
+
+
+
+*****
+
+####  cybernetics31  
+##### 4081#       发表于 2022-1-10 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">鱼的长发，果然还是长发好看
+
+*****
+
+####  优妮可  
+##### 4082#       发表于 2022-1-10 18:53
+
+他在外面说没啥，搬运进来遇到小鬼们就难说
+
+*****
+
+####  lj205  
+##### 4083#       发表于 2022-1-10 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54237460&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-1-10 18:53</a>
+
+鱼的长发，果然还是长发好看</blockquote>
+一眼看上有点像三森，我是不是该去看眼科了？
+

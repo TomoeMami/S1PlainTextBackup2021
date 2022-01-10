@@ -4469,3 +4469,29 @@ https://wiki.mbalib.com/wiki/%E7%BE%8E%E8%81%94%E5%82%A8%E5%8A%A0%E6%81%AF
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  creymorgan  
+##### 3353#       发表于 2022-1-10 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236545&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 17:42</a>
+
+因为这俩在海岛上啊。。没有外源的输入，控制住飞机就好了。即使是这样delta的时候也抗不住了。
+
+再封锁 ...</blockquote>
+新西兰和澳大利亚不是被德尔塔击溃时候放弃清零的
+
+是接种率高了时候放弃的。
+
+说到接种率，现在全世界各处还能出现根据R0约等于4时候的原始病毒换算的70%的接种率即可群体免疫呢，无视毒株传播性变化、抗体逃逸和抗体消退的刻舟求剑。
+
+至于说封锁的生计问题，在Rt已经小于1的时候去清零恰恰是最轻松的，最没必要封锁的。
+
+因为保持了较好的日常防护，即使进来几例输入病例其传播也是衰退的。
+
+然后呢？疫情扩散又不得不封锁了。
+
+说到底什么才是保生计？难道不是没有本地流行最能保生计么？
+
