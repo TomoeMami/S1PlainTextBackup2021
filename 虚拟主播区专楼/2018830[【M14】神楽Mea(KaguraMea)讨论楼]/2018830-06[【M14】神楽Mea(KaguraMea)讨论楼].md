@@ -364,3 +364,26 @@ saya复活了？之前直播中晕过去了人事不省，苔苔第二天才联�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  T_Hb  
+##### 7541#       发表于 2022-1-10 21:45
+
+低情商？，低智商！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 7542#       发表于 2022-1-10 21:58
+
+傻女人不要在这种事情上犯糊涂啊……可千万别和苔苔闹掰了啊……
+
+*****
+
+####  古战场亡魂  
+##### 7543#       发表于 2022-1-10 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
