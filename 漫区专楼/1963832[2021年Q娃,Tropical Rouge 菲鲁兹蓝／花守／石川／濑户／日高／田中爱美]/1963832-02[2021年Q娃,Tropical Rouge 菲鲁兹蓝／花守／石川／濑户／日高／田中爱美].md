@@ -12701,3 +12701,18 @@ pid95129368
 
 女王对峙的应该是另一个啥玩意，那时候女王估计也就是萝拉那年纪，拿着祖传的正版玩具试图变身，而且从37的发言看，认识传q的女王不像是jk女王，是成年版
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2458#       发表于 2022-1-10 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230942&amp;ptid=1963832" target="_blank">lydia5989 发表于 2022-1-10 10:41</a>
+“被称为破坏魔女那时候”---那时候海马就在（42集？）
+
+女王对峙的应该是另一个啥玩意，那时候女王估计也 ...</blockquote>
+海马知道历史，也不代表他当时就在啊。女王在这里也没有什么关系，不太理解你说她是什么意思
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

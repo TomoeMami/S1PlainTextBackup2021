@@ -11273,3 +11273,21 @@ syl，还是补充一下，其实黑黑fps配合那个鬼样我觉得主要是�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  wuzhengkai  
+##### 9959#       发表于 2022-1-10 12:17
+
+mysta还要发个推说自己rta同接是吧 反正我是取关了 主播自己numberfag真受不了 反正也不缺我一个关注
+
+*****
+
+####  Mr.shelter  
+##### 9960#       发表于 2022-1-10 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">咋没人发捏
+
+<img src="https://p.sda1.dev/4/4248d1d1d88d994e6907d8d18b70bf3b/IMG_CMP_181010353.jpeg" referrerpolicy="no-referrer">
+

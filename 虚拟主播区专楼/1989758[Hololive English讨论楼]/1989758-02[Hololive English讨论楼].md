@@ -805,3 +805,12 @@ Buffed Ame お願いマッスル cover when<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">twin tail ame
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1580#       发表于 2022-1-10 12:19
+
+感觉buff ame没太大反响呢 我个人感觉是比圣诞搞的要有意思多了
+
