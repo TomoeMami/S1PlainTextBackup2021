@@ -4157,3 +4157,47 @@ long covid实际上就是没有痊愈，蹲神经系统潜伏了
 
 ----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3333#       发表于 2022-1-10 17:02
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 17:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235960&amp;ptid=2039422" target="_blank">crysannia 发表于 2022-1-10 16:53</a>
+接受鸡尾酒疗法的艾滋病患传染其他人的概率仍然有8%左右！！！外行人不要信口开河！你这样反串很有可能误导 ...</blockquote>
+应该说接受了鸡尾酒疗法，并测不到血液中病毒的人，是不可能传播艾滋病毒的。
+
+https://cdc.fuzhou.gov.cn/zz/crbkz/azb/202012/t20201224_3897987.htm
+
+U=U的结论是基于医学实证经验并受到多个医学学术研究所支持，包括PARTNER、HPTN 052、Opposites Attract、以及瑞士声明 (Swiss Statement) 。举例来说，在PARTNER研究里，总计76088次的无套性行为中，达到“病毒量测不到”的HIV感染者们，将艾滋病毒经性行为方式传染给其健康**的发生次数是零。在Opposites Attract研究发现，在17,000次男男同性无套性行为中，亦无艾滋传染的情况发生。自从鸡尾酒疗法出现至今，尚无任何“病毒量测不到”的感染者借由性行为传播艾滋病毒的确定案例。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3334#       发表于 2022-1-10 17:12
+
+<blockquote>vimisbesteditor 发表于 2022-1-10 16:48
+如果rt小于1了，放着不管不就清零了？
+
+如果让rt在1左右，那才需要封锁或者更严格的措施，让rt低于1。</blockquote>
+欧美在下行阶段是维持疫情高峰的防疫措施么？是重新开放呀，可以随便聚集，不要求口罩，给快要饿死的新冠续上救急粮。
+
+*****
+
+####  crysannia  
+##### 3335#       发表于 2022-1-10 17:14
+
+<blockquote>vimisbesteditor 发表于 2022-1-10 17:02
+应该说接受了鸡尾酒疗法，并测不到血液中病毒的人，是不可能传播艾滋病毒的。
+
+https://cdc.fuzhou.gov.c ...</blockquote>
+最他妈的烦你们这些会用百度然后一知半解脑补的。你最好自己去看下你引用的《瑞士共识》的具体内容。
+
+只有达到u2级别的抗逆转录检出才能达到“不传染”的效果，但是抗逆转录药的效果是有波动的！！有时候一线用药控制不住还要换二线，病毒载量本身是波动的，停药和换药导致载量突破的案例很多。所以哪怕who的也不建议患者进行无防护性生活
+
+手机打字太费劲，不回复了。
+

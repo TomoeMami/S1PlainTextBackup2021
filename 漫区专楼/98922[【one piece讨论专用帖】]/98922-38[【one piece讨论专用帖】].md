@@ -10085,3 +10085,21 @@ GOD说的话倒是很有讽刺效果啊
 
 成龙这是养活了多少日本漫画家啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hagane  
+##### 56296#       发表于 2022-1-10 17:11
+
+象主吃了果实？天王？
+
+*****
+
+####  仟音一心  
+##### 56297#       发表于 2022-1-10 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236158&amp;ptid=98922" target="_blank">hagane 发表于 2022-1-10 17:11</a>
+象主吃了果实？天王？</blockquote>
+哪来的情报？
+

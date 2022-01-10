@@ -10495,3 +10495,12 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 抽到拉满 图鉴+1 然后不就不存在了!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">渣男
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 86519#       发表于 2022-1-10 17:08
+
+杀狐复刻 卡池开3天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
