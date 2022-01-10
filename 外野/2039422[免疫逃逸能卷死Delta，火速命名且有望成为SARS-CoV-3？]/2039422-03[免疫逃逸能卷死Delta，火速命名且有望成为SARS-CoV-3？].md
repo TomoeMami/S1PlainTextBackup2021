@@ -3081,3 +3081,41 @@ Rt可能影响工作量但不影响基本方法。
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  creymorgan  
+##### 3254#       发表于 2022-1-10 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232999&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 13:19</a>
+
+这我同意，但是更需要解决的是经济不平等。
+
+南非20%艾滋病人，决定了这些人是病毒变异的温床。
+
+但是解决 ...</blockquote><blockquote>庄周家贫，故往贷粟于监河侯。监河侯曰：“诺！我将得邑金，将贷子三百金，可乎？”庄周忿然作色，曰：“周昨来，有中道而呼者，周顾视车辙，中有鲋鱼焉。周问之曰：‘鲋鱼来，子何为者邪？’对曰：‘我，东海之波臣也。君岂有斗升之水而活我哉？’周曰：‘诺，我且南游吴越之王，激西江之水而迎子，可乎？’鲋鱼忿然作色曰：‘吾失吾常与，我无所处。吾得斗升之水然活耳。君乃言此，曾不如早索我于枯鱼之肆！’</blockquote>
+
+终极解决方案之前有很多效果不彻底，但仍旧有效的事情可以做的。
+
+比如给第三世界提供疫苗，减少病例数
+
+比如在自家由于大量感染后Rt减少，疫情衰退的时候，不是立刻解除隔离，而是趁着抗体活力大，一口气努力坚持到清零，减少病例数，尤其是减少在环境有强抗体选择情况下的病例数。
+
+*****
+
+####  vimisbesteditor  
+##### 3255#       发表于 2022-1-10 13:37
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 13:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233115&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 13:31</a>
+终极解决方案之前有很多效果不彻底，但仍旧有效的事情可以做的。
+
+比如给第三世界提供疫苗，减少病例数
+
+ ...</blockquote>
+现在南非不缺疫苗，缺的是打疫苗的医务工作者和愿意接种的人。
+想要清零只能靠大规模封锁，但是让穷国隔离跟杀人没什么两样了。
+你要知道，有些地方是没有自来水和下水道的。。
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

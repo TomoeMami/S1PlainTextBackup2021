@@ -7219,3 +7219,30 @@ T字就是舞台中心，用T来做标记。
 找到一篇在剧场版出来前就用酒神和日神解释少歌的文章，歌学家真是太强了
 [https://weibo.com/ttarticle/p/sh ... daref=www.baidu.com](https://weibo.com/ttarticle/p/show?id=2309404613361919983642&amp;sudaref=www.baidu.com)
 
+
+
+*****
+
+####  牙狼GARO  
+##### 557#       发表于 2022-1-10 13:34
+
+一直忍着没看，周六南京线下大屏幕直接看了
+
+感想就是：李安.jpg
+我觉得没必要细想了，感受舞台少女的魅力，安心做长颈鹿🦒就可以了，这可能就是不求甚解（自我逃避）吧
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  牙狼GARO  
+##### 558#       发表于 2022-1-10 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54214511&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-8 20:42</a>
+线下观影repo（？）
+
+从报名线下组织的观影开始到现在都忍着再没点开过剧场版，专楼也没怎么进，现在看看竟 ...</blockquote>
+你小看了我们南京lsp的领悟能力，稍有联想能力的看到恋哥哥被黑丝破功都会笑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

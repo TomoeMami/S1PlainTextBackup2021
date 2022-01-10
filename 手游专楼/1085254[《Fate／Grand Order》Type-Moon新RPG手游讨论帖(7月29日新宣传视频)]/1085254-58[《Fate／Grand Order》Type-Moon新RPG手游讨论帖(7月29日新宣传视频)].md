@@ -10389,3 +10389,22 @@ Faker这钟临时充数的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">最后16石也没届到 狐狸他没了!
 
+
+
+*****
+
+####  qixinno2  
+##### 86509#       发表于 2022-1-10 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233025&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-10 13:22</a>
+
+最后16石也没届到 狐狸他没了!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">难得萌新和我一样非
+
+*****
+
+####  zore  
+##### 86510#       发表于 2022-1-10 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次其他楼友都非的时候就悄悄欧了
+
