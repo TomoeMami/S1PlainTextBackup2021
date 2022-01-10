@@ -2674,3 +2674,32 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 伊利诺斯动物园一只雪豹死于新冠，去年底内布拉斯加动物园也有三只雪豹死于新冠。 百分百被人传染，也是飞 ...</blockquote>
 雪豹！是那个雪豹吗？
 
+
+
+*****
+
+####  yhaos  
+##### 3223#       发表于 2022-1-10 10:28
+
+<img src="https://img.saraba1st.com/forum/202201/10/102816j1nbtozq4nn1qoun.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (105.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 10:28 上传
+
+是 的，就是那只可爱的大猫。
+
+同期感染的还有老虎，目前已经康复
+
+*****
+
+####  smy20011  
+##### 3224#       发表于 2022-1-10 10:35
+
+在焦帮主的嘴里，omicron成了一个症状比delta轻，传播能力和delta差不多的病种。
+看来焦帮主大概是躺平派的内奸，要不然这种弱鸡病毒为什么需要严防死守呢/s
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

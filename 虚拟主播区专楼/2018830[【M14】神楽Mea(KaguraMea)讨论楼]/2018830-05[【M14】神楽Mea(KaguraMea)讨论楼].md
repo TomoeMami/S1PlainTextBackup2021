@@ -12460,3 +12460,19 @@ lol上瘾
 
 奎因对不起 肉身勾引对面犯罪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 7433#       发表于 2022-1-10 10:39
+
+一血波比反杀狗熊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7434#       发表于 2022-1-10 10:47
+
+队友都是脑溢血吗？？？？
+

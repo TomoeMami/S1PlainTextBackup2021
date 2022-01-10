@@ -12205,3 +12205,12 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼这个一群二群都老早建的，加到500现在也不会开加人了，其实也没啥好入的，除了古早老粉丝就是一水的00后，之前群里看到一个初三的娃……………………
 
+
+
+*****
+
+####  cat1230  
+##### 4057#       发表于 2022-1-10 10:44
+
+感觉国内一部分宅宅真的是第一次追偶像。昨天看B站好几个给liyuu过生日的，不过我有点想不通，为啥你们都挑海底捞啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

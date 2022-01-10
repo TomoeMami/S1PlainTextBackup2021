@@ -12685,3 +12685,19 @@ pid95129368
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lydia5989  
+##### 2457#       发表于 2022-1-10 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54229908&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2022-1-10 09:18</a>
+
+哪有，女王明明说了后来自己和歹徒对峙，那个才是海马吧
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1 ...</blockquote>
+“被称为破坏魔女那时候”---那时候海马就在（42集？）
+
+女王对峙的应该是另一个啥玩意，那时候女王估计也就是萝拉那年纪，拿着祖传的正版玩具试图变身，而且从37的发言看，认识传q的女王不像是jk女王，是成年版
+
