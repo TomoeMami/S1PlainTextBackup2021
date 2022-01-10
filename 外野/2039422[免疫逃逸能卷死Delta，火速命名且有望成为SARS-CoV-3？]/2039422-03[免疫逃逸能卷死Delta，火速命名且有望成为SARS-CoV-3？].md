@@ -2571,3 +2571,17 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 
 要砍头的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  genjimono  
+##### 3215#       发表于 2022-1-10 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228295&amp;ptid=2039422" target="_blank">3333qwe 发表于 2022-01-10 00:44:22</a>
+英美同样是诊断数远超上一轮，
+美国住院/icu人数上去了 但英国没上去
+这怎么理解？ ...</blockquote>nhs要排队
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
