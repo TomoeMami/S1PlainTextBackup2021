@@ -7321,3 +7321,14 @@ BV1sZ4y1S77J该来的还是要来<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  尚风悦  
+##### 566#       发表于 2022-1-10 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54237715&amp;ptid=2043629" target="_blank">TTAA 发表于 2022-1-10 19:15</a>
+放送科要删掉所有的投稿</blockquote>
+我的天……
+
