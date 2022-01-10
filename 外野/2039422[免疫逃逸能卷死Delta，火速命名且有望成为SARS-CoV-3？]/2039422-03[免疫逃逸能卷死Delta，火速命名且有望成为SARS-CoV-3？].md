@@ -4567,3 +4567,16 @@ NIH出了个“药不够用时的指南”，单子上最先能用上好药的�
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  骆宾王  
+##### 3357#       发表于 2022-1-10 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235819&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 16:43</a>
+我说的可是疫情衰退阶段，那时候Rt已经小于1了，这可不需要封锁隔离才能清零。
+
+医护不是种族，是技能。</blockquote>
+别回它了求求你了
+

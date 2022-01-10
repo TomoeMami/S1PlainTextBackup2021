@@ -11454,3 +11454,14 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁富我听到是说法是和漫画家联动时提前透露了动画化情报，破坏保密协议了
 
+
+
+*****
+
+####  毛头小希  
+##### 9975#       发表于 2022-1-10 23:20
+
+<blockquote>adamtheo 发表于 2022-1-10 19:30
+名字都错了，是磁富MONOE对于违反规定，欧美那边传播度最广的说法是虚报年龄以进入VOMS，未成年直播 ...</blockquote>
+草，毕竟好久以前的事了记忆一塌糊涂（捂脸）不过这回这个感觉严重很多啊
+

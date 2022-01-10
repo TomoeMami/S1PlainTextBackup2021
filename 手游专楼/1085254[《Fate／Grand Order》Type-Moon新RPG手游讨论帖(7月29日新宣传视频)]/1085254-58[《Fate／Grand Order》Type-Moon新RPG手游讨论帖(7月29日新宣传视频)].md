@@ -10539,3 +10539,12 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正只有2石 出什么都无所谓了
 
+
+
+*****
+
+####  大巨傻  
+##### 86524#       发表于 2022-1-10 23:40
+
+艹，在挖井进度86%才出光狐狸，可怕
+
