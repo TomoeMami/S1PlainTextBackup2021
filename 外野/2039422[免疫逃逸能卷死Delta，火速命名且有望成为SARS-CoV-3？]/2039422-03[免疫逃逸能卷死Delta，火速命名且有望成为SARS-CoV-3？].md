@@ -2931,3 +2931,105 @@ omicron果然是上帝给西方的礼物，不知道西方的4岁以下小孩子
 看到vimisbesteditor这个熟悉的id，只觉得2020年2月份又回来了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚谁被塞抹布了来着
 
+
+
+*****
+
+####  jxwats1  
+##### 3243#       发表于 2022-1-10 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">终于塞了，爽到
+
+*****
+
+####  foxpat  
+##### 3244#       发表于 2022-1-10 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232232&amp;ptid=2039422" target="_blank">公共知识 发表于 2022-1-10 12:17</a>
+
+当然有啊？我国又坚持物理隔离、动态清零，配合高接种率，面对德尔塔属实赢麻了。
+
+大O也就免疫逃逸牛逼 ...</blockquote>
+看着白皮爹在粪坑里灌的直翻白眼，中国在岸上安然无恙，一堆孝子们恨不得中国马上也跟着跳下去
+
+*****
+
+####  公共知识  
+##### 3245#       发表于 2022-1-10 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232517&amp;ptid=2039422" target="_blank">foxpat 发表于 2022-1-10 12:40</a>
+
+看着白皮爹在粪坑里灌的直翻白眼，中国在岸上安然无恙，一堆孝子们恨不得中国马上也跟着跳下去 ...</blockquote>
+这个比喻很恰当，就是想拉我们一起死。
+
+他们常用的说法是”我不否认外国是傻逼，但我的看法是国内也未必不是傻逼“，来表示自己理科中。
+
+*****
+
+####  vimisbesteditor  
+##### 3246#       发表于 2022-1-10 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232605&amp;ptid=2039422" target="_blank">公共知识 发表于 2022-1-10 12:48</a>
+这个比喻很恰当，就是想拉我们一起死。
+
+他们常用的说法是”我不否认外国是傻逼，但我的看法是国内也未必 ...</blockquote>
+我的观点是绝对支持动态清零啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3247#       发表于 2022-1-10 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232431&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 12:34</a>
+
+你得把病毒传播速度延缓到一定程度，才能不影响群众的情况下动态清零。要不然发现一例全城就封一个半月。 ...</blockquote>
+无论密接里20%的人患病还是50%患病都不会造成疫情扩散。
+
+当然，高Rt在开始动作时没隔离到的更多，需要更大范围的隔离。
+
+但是同样的，低Rt也可能温水煮青蛙，在医院流程核酸测试找出病例已经丢失相关性了，那时就是都不知道多大范围的隔离。
+
+无疑，全球疫情高峰下，出现本地传播的次数是绝对增加的，漏进来的例子是增多的。
+
+但这是废话，任何手段在基数增大后都会造成负担的增大。
+
+至于说那么理想的认为R到1左右，为啥不努力努力让R小于1呢？小于1，这疾病可自然衰退了。
+
+*****
+
+####  vimisbesteditor  
+##### 3248#       发表于 2022-1-10 12:51
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232625&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 12:50</a>
+无论密接里20%的人患病还是50%患病都不会造成疫情扩散。
+
+当然，高Rt在开始动作时没隔离到的更多，需要更 ...</blockquote>
+密接没问题，但是有次密接和次次密接。如果传播速度没那么快，那就不用大规模的隔离了。
+如果疫苗能把re压到1以下，那就不用动态清零了吧
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  烦死了  
+##### 3249#       发表于 2022-1-10 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232494&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-10 12:39</a>
+
+刚刚谁被塞抹布了来着</blockquote>
+曹，原来还是他<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  creymorgan  
+##### 3250#       发表于 2022-1-10 12:57
+
+试想一个情况
+
+找到几个阳性患者，但是发现的太晚了，他们的共同父系节点不仅仅已经痊愈，连IgM都测不出了，IgG当然是阳性，不过大规模接种的现在应该7成人口是阳性。
+
+无法找到共同父系节点的情况下流调个毛线。
+

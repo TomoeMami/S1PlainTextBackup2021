@@ -11309,3 +11309,16 @@ mysta还要发个推说自己rta同接是吧 反正我是取关了 主播自己n
 
 2022-1-10 12:32 上传
 
+
+
+*****
+
+####  Ketestrait  
+##### 9962#       发表于 2022-1-10 12:45
+
+<img src="https://tva2.sinaimg.cn/large/7c16af6bly1gy8h82ocp6j20xw0j3427.jpg" referrerpolicy="no-referrer">
+
+牛姨要播德不配位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（以及待机间果不其然展开了对真仲间神作的批判<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
