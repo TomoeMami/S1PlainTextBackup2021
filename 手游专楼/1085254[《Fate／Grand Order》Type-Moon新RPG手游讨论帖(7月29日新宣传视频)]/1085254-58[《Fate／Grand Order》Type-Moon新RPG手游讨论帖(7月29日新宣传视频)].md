@@ -10516,3 +10516,26 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 杀狐复刻 卡池开3天</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实际只有43小时，比周日梅老板还短
 
+
+
+*****
+
+####  qixinno2  
+##### 86521#       发表于 2022-1-10 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骗氪四连除了奥宝都复刻了
+
+*****
+
+####  alucardcz  
+##### 86522#       发表于 2022-1-10 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">光速复课
+
+*****
+
+####  qixinno2  
+##### 86523#       发表于 2022-1-10 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正只有2石 出什么都无所谓了
+
