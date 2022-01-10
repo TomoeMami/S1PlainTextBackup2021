@@ -3378,3 +3378,211 @@ who也说，解决了贫困问题，就解决了新冠。
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  ganeid  
+##### 3276#       发表于 2022-1-10 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234470&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:17</a>
+
+你觉得天天面对霍乱的，感染艾滋的，面对肺结核的都是富裕国家咯？
+
+— from Google Pixel 3 XL, Android ...</blockquote>
+对啊，都是贫穷国家啊
+
+所以如果这些人做不到清零的话，该来的变种还是回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 3277#       发表于 2022-1-10 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234470&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:17</a>
+
+你觉得天天面对霍乱的，感染艾滋的，面对肺结核的都是富裕国家咯？
+
+霍乱的直接原因就是没有清洁水源，艾 ...</blockquote>
+哦，知道你享受清洁水源不卖血为生享受一次性针头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3278#       发表于 2022-1-10 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234517&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:22</a>
+对啊，都是贫穷国家啊
+
+所以如果这些人做不到清零的话，该来的变种还是回来啊 ...</blockquote>
+很简单的道理，如果一个国家天天为霍乱发愁，你觉得这个国家会担心新冠么？死亡率不是一个级别的。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3279#       发表于 2022-1-10 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234555&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:25</a>
+哦，知道你享受清洁水源不卖血为生享受一次性针头了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">楼里有些人不知道就是了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3280#       发表于 2022-1-10 15:28
+
+发达国家高知中产的一大错觉就是觉得自己享受优厚的人居环境和医疗条件，自然可以远离各种传染病
+
+于是一屁股就把传染病都划成了穷病
+
+在谈传染病的时候一方面强调穷的属性，字里行间把自己和穷人隔离开
+
+另一方面又把消除贫困的嗓门扯得老高，隔着屏幕都能体会到那种悲天惘人的情怀
+
+恨不得马上就做专机去第三世界消除贫困去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 3281#       发表于 2022-1-10 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234562&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:26</a>
+
+很简单的道理，如果一个国家天天为霍乱发愁，你觉得这个国家会担心新冠么？死亡率不是一个级别的。
+
+— f ...</blockquote>
+谁担心他们第三世界为霍乱发愁了
+
+这不是你们担心该来的变种还是回来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3282#       发表于 2022-1-10 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234590&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:28</a>
+发达国家高知中产的一大错觉就是觉得自己享受优厚的人居环境和医疗条件，自然可以远离各种传染病
+
+于是一屁 ...</blockquote>
+那你觉得是啥？疫苗不足？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3283#       发表于 2022-1-10 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234612&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:29</a>
+
+那你觉得是啥？疫苗不足？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+你担心的是什么，你从来不担心人家死活
+
+你不就在担心变种什么时候回来么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3284#       发表于 2022-1-10 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234624&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:30</a>
+你担心的是什么，你从来不担心人家死活
+
+你不就在担心变种什么时候回来么 ...</blockquote>
+又不是我先开启这个话题的，不是楼里某位痛批疫苗帝国主义造成我们不能消灭新冠么。
+
+我看你这麻将脸用的，才是不在意别人死活吧。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3285#       发表于 2022-1-10 15:34
+
+ 本帖最后由 ganeid 于 2022-1-10 15:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234637&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:31</a>
+
+又不是我先开启这个话题的，不是楼里某位痛批疫苗帝国主义造成我们不能消灭新冠么。
+
+我看你这麻将脸用的 ...</blockquote>
+你不就这点出息么
+
+霍乱艾滋什么的传染病你不怕，因为你享受清洁水源不卖血为生享受一次性针头
+
+你可以潇洒的和那没电没自来水的人隔离开
+
+但是新冠你怕，因为你跟他们隔离不开对不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你是不是特别恨和他们呼吸同一种空气啦对不对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3286#       发表于 2022-1-10 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234695&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:34</a>
+你不就这点出息么
+
+霍乱艾滋什么的传染病你不怕，因为你享受清洁水源不卖血为生享受一次性针头
+
+你可以潇洒 ...</blockquote>
+您要不先说说这些病是不是穷病。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3287#       发表于 2022-1-10 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234709&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:34</a>
+
+您要不先说说这些病是不是穷病。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+我管它是不是穷病，我说艾滋不是穷病难不成发达国家艾滋患者一夜就康复还是怎么的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 3288#       发表于 2022-1-10 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234709&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:34</a>
+
+您要不先说说这些病是不是穷病。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+隔离开了的传染病：<strong>他们是穷病</strong>
+
+隔离不开的传染病：（目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了上千万人。如果这些人做不到清零的话）<strong>该来的变种还是回来</strong>
+
+这嘴脸绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  creymorgan  
+##### 3289#       发表于 2022-1-10 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234612&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:29</a>
+
+那你觉得是啥？疫苗不足？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+疫苗帝国主义里囤积疫苗一事导致了疫苗不足
+
+导致了更多患者，导致了劳动力损失，导致了贫穷
+
+疫苗帝国主义里不平等条约导致了主权受损，发展中国家未来的发展增长被不公平的抽取，导致了贫穷
+
+这还只是疫苗帝国主义，不是全部的帝国主义行径。
+
+穷病，也许更适合叫做遭帝国主义蹂躏的病。
+
