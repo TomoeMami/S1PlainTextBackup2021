@@ -3256,3 +3256,64 @@ who也说，解决了贫困问题，就解决了新冠。
 
 疫苗帝国主义是不是又恶化疫情？又加剧贫困？
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3267#       发表于 2022-1-10 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233934&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 14:36</a>
+把贫困和疫情捆绑并论
+
+说着去东海求水的话</blockquote>
+是的
+
+但是要终结大流行，必须要消灭贫困。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  西风之哀  
+##### 3268#       发表于 2022-1-10 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233748&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 14:24</a>
+
+目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了3亿人。如果这些人做不到 ...</blockquote>
+没有想到美利坚泱泱大国，居然连电力、安全的自来水都没有……
+
+*****
+
+####  creymorgan  
+##### 3269#       发表于 2022-1-10 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233992&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 14:40</a>
+
+是的
+
+但是要终结大流行，必须要消灭贫困。</blockquote>
+你是不是觉得让西方发达国家平等对待他国，不搞不平等条约比消灭贫困和消灭疫情更难。
+
+*****
+
+####  creymorgan  
+##### 3270#       发表于 2022-1-10 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234031&amp;ptid=2039422" target="_blank">西风之哀 发表于 2022-1-10 14:43</a>
+
+没有想到美利坚泱泱大国，居然连电力、安全的自来水都没有……</blockquote>
+对，没能趁疫情消退清零的可不只是第三世界，美国自己就持续高位，20个月来，七日平均后的日增患者数就没有下过万。
+
+
+
+*****
+
+####  ganeid  
+##### 3271#       发表于 2022-1-10 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233748&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 14:24</a>
+
+目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了3亿人。如果这些人做不到 ...</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，艾滋病到现在感染了上千万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，梅毒每年感染了上千万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，伤寒每年感染了几十万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，霍乱每年感染了几十万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，结核病每年害死了上百万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote>
+好像把所有传染病套上都不违和呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
