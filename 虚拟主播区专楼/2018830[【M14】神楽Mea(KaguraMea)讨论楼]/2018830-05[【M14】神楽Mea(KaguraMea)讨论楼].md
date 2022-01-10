@@ -12290,3 +12290,12 @@ lol上瘾
 
 今天油管有播
 
+
+
+*****
+
+####  Klience  
+##### 7411#       发表于 2022-1-10 08:40
+
+连输两把 就算自己抗在前面 其他线被打崩也没用 只有挨打的份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
