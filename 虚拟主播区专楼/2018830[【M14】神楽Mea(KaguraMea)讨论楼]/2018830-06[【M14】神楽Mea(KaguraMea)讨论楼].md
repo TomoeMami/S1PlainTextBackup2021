@@ -120,3 +120,53 @@ yysy 社畜上班时间直播确实该被骂 如果下班时间播倒还好 不�
 
 翠姨为啥要干他
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7516#       发表于 2022-1-10 16:26
+
+讲道理，还是游戏输太多了，如果今天是8胜2负，而不是4胜8负，她肯定不鸟的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+胜率现在下来，对局就会正常的。没办法lol就这个鸟样子，讲道理就今天直播遇到的那些5分钟就聊天框15投的局，没砸耳机摔键盘真是好修养。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 7517#       发表于 2022-1-10 16:30
+
+单排排位就是这样的 你都不知道自己的队友是哪些妖魔鬼怪 不如找个会玩 发挥稳定的双排好一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 7518#       发表于 2022-1-10 16:36
+
+ 本帖最后由 yywzjsw 于 2022-1-10 16:38 编辑 
+
+我一开始刷推特看到今晚直播歌回还在想5点，这什么阴间时间<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">！
+
+*****
+
+####  十九号大侠  
+##### 7519#       发表于 2022-1-10 16:39
+
+把把svp，感觉比这个小作文破防更厉害，话说这男的有点像那个pua？
+
+*****
+
+####  古战场亡魂  
+##### 7520#       发表于 2022-1-10 16:43
+
+波比本身也不是啥大c的英雄，女性玩家的感觉可能和男性玩家真的有差别吧。
+
+但凡我选个英雄被对面1v1干碎了，我肯定要试试对面的英雄，很多上单也就是数值怪，操作也没多繁琐。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 7521#       发表于 2022-1-10 16:43
+
+pua？你麻会非常在意这种男人在说
+

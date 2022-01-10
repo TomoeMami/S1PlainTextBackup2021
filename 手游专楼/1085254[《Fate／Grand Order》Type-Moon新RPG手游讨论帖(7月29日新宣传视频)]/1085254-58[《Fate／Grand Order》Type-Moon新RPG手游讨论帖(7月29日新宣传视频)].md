@@ -10483,3 +10483,15 @@ Faker这钟临时充数的
 
 Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级自充就有102充能），这可能是她被做成单体的原因
 
+
+
+*****
+
+####  qixinno2  
+##### 86518#       发表于 2022-1-10 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233705&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-10 14:21</a>
+
+抽到拉满 图鉴+1 然后不就不存在了!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">渣男
+

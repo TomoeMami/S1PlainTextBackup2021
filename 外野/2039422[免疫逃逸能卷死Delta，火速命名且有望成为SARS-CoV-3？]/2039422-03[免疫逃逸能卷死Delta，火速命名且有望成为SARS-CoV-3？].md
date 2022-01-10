@@ -3982,3 +3982,87 @@ who也说，解决了贫困问题，就解决了新冠。
 — from Google Pixel 3 XL, Android 12 of ...</blockquote>
 我没想过要全球清零啊，我想的是国内清零，我觉得国内清零没问题啊。国外白皮死麻了我很爽啊。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3321#       发表于 2022-1-10 16:24
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 16:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235372&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 16:15</a>
+所有国家都不缺疫苗了么？
+
+不能购买第三方疫苗，辉瑞有权拿国家资产抵押的诸如此类不平等条约取消了么？ ...</blockquote>
+目前搜索没搜到哪个国家缺疫苗的新闻，用lack of vaccine搜到的是德国在抱怨没疫苗了，真不愧是第三世界国家。
+
+更好的办法是发达国家把疫苗捐出去，要不然公司的利益始终是为股东服务的。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3322#       发表于 2022-1-10 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235387&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-10 16:16</a>
+提醒下这是Omi楼，每次他一出来都刷一堆低质量辫经，各位就不能像上个号一样，给他拉黑了事吗。 ...</blockquote>
+讨论如何防范下一个变种，这不能算离题吧
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  公共知识  
+##### 3323#       发表于 2022-1-10 16:33
+
+世界范围内新冠不消失跟我中国清零有什么关系。说实话，新冠以后会流感化我觉得不稀奇。毒力随机变异嘛，毒力变强的时候就死多一点，变弱了的时候抓住机会一波群体免疫，迟早会流感化的，我对此持乐观态度。到时白皮死了多少人就是另一回事了。然后我们再开放，属实赢麻了美滋滋。
+
+*****
+
+####  creymorgan  
+##### 3324#       发表于 2022-1-10 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235501&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:24</a>
+
+目前搜索没搜到哪个国家缺疫苗的限制，用lack of vaccine搜到的是德国在抱怨没疫苗了，真不愧是第三世界 ...</blockquote>
+低下的接种比例和日增接种人数摆着。
+
+这不是一天两天的事情，一天两天可以说当时没有这个接种能力，持续没有改善只能说这个国家没有获得更大量疫苗供应的预期。
+
+至于说德国是不是第三世界国家不论，德国照样是没有在之前的任何一波疫情的好转阶段坚持到清零的，也在强抗体选择环境下贡献了不少诱导突变概率。
+
+*****
+
+####  vimisbesteditor  
+##### 3325#       发表于 2022-1-10 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235699&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 16:36</a>
+低下的接种比例和日增接种人数摆着。
+
+这不是一天两天的事情，一天两天可以说当时没有这个接种能力，持续 ...</blockquote>
+发达国家的政体决定了不能清零啊，按照西安的方法封锁，转天就上街游行了。
+
+目前疫苗的瓶颈在于缺医护，缺愿意打的人，而不是缺疫苗。毕竟很多国家都已经批量销毁疫苗了。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  pushare  
+##### 3326#       发表于 2022-1-10 16:38
+
+芬兰家庭事务和社会服务部长Krista Kiuru上周五说，"长期COVID"，即COVID-19的症状在初次感染后持续数月，在芬兰可能会成为一种慢性疾病。
+
+在一次新闻发布会上，她提到了芬兰专家小组对4000多项国际研究的总结，这些研究表明，每两个成年人中就有一个，大约2%的儿童可能会出现与COVID-19有关的长期症状。
+
+"Kiuru说："有一种威胁是，芬兰将出现最大的或最大的新的慢性病群体之一，不仅有太多的成年人将长期遭受COVID-19的折磨，而且最坏的情况是还有儿童。
+
+芬兰卫生和福利研究所认为，当一种疾病通过降低工作能力和对医疗保健的压力而对公共卫生和国民经济产生重大影响时，它就是慢性病。
+
+社会事务和卫生部发布的摘要说，当最初的感染需要住院治疗时，长期COVID更有可能发生，但它也可能发生在温和或无症状的感染之后。
+
+"神经病学教授兼专家小组**Risto Roine在同一新闻发布会上说："已经证明病毒通过鼻子进入大脑，其影响也在磁共振成像上看到。
+
+Roine补充说："大约20%的人看到长期的认知障碍，"他警告说，在感染COVID-19后，阿尔茨海默氏症或帕金森氏症等神经系统疾病的发病率可能急剧上升。
+
