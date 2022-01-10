@@ -10380,3 +10380,12 @@ Faker这钟临时充数的
 
 至于选完之后是发颗糖还是实装还是就丢个调查结果全看他们心情吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86508#       发表于 2022-1-10 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">最后16石也没届到 狐狸他没了!
+

@@ -3033,3 +3033,51 @@ omicron果然是上帝给西方的礼物，不知道西方的4岁以下小孩子
 
 无法找到共同父系节点的情况下流调个毛线。
 
+
+
+*****
+
+####  creymorgan  
+##### 3251#       发表于 2022-1-10 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232636&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 12:51</a>
+
+密接没问题，但是有次密接和次次密接。如果传播速度没那么快，那就不用大规模的隔离了。
+
+如果疫苗能把re ...</blockquote>
+难道R小了次密接不隔离？
+
+影响流调大的是代际间隔，可传播到可测出的时间差，病程，IgM消退速度
+
+Rt可能影响工作量但不影响基本方法。
+
+*****
+
+####  creymorgan  
+##### 3252#       发表于 2022-1-10 13:07
+
+ 本帖最后由 creymorgan 于 2022-1-10 13:08 编辑 
+
+至于扯吧“奥米克戎的天然疫苗”这事情，即便它的真的副作用和打疫苗一样小（实际上远不是），也要记住：
+
+感染获得抗体的同时也给了病毒变异和传播机会；
+
+通过疫苗获得抗体的同时没有这些机会。
+
+你之前在疫苗帝国主义事情上就搞不清这一点，去认为给第三世界提供疫苗和放任流行的突变风险同样大。
+
+*****
+
+####  vimisbesteditor  
+##### 3253#       发表于 2022-1-10 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232842&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 13:07</a>
+至于扯吧“奥米克戎的天然疫苗”这事情，即便它的真的副作用和打疫苗一样小（实际上远不是），也要记住：
+
+ ...</blockquote>
+这我同意，但是更需要解决的是经济不平等。
+南非20%艾滋病人，决定了这些人是病毒变异的温床。
+但是解决经济不平等比解决新冠还难。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
