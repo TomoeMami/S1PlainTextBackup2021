@@ -344,3 +344,23 @@ saya复活了？之前直播中晕过去了人事不省，苔苔第二天才联�
 
 估计要和苔总火拼了
 
+
+
+*****
+
+####  iuhehc  
+##### 7539#       发表于 2022-1-10 21:34
+
+有点哈人啊这四条 这是干了什么啊
+
+*****
+
+####  往世雷书  
+##### 7540#       发表于 2022-1-10 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54238109&amp;ptid=2018830" target="_blank">YoMico 发表于 2022-1-10 19:58</a>
+只要你咩姐还有一丢丢情商，她就不会去做这种事情的吧</blockquote>
+事到如今，她低情商的时候还少吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
