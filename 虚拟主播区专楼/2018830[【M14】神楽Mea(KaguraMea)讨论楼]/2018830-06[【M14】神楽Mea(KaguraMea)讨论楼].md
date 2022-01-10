@@ -278,3 +278,33 @@ saya复活了？之前直播中晕过去了人事不省，苔苔第二天才联�
 
 不是v的熟人不会就是……
 
+
+
+*****
+
+####  路人庚  
+##### 7532#       发表于 2022-1-10 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">我超，我还真没反应过来，你咩姐不至于走这一手棋吧
+
+*****
+
+####  YoMico  
+##### 7533#       发表于 2022-1-10 19:58
+
+只要你咩姐还有一丢丢情商，她就不会去做这种事情的吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 7534#       发表于 2022-1-10 20:00
+
+灰姑娘saya？
+
+*****
+
+####  clvan_  
+##### 7535#       发表于 2022-1-10 20:01
+
+想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
