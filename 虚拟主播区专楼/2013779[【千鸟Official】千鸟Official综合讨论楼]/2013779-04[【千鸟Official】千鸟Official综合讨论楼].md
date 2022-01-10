@@ -5328,3 +5328,22 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 游戏回 狗都不看好吧，而且这游戏我也不喜欢。
 不是avg,那文静的操作已经不能叫做下饭了，太菜了。
 
+
+
+*****
+
+####  人民de救星  
+##### 5051#       发表于 2022-1-10 17:42
+
+大表情堂堂回归！
+
+<img src="https://img.saraba1st.com/forum/202201/10/174232d60su6m0ap2apdll.jpg" referrerpolicy="no-referrer">
+
+<strong>055bdcf50ad162d9170719f254dfa9ec8813cdcc.jpg</strong> (599.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 17:42 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

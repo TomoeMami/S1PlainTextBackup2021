@@ -10103,3 +10103,17 @@ GOD说的话倒是很有讽刺效果啊
 象主吃了果实？天王？</blockquote>
 哪来的情报？
 
+
+
+*****
+
+####  proselyte  
+##### 56298#       发表于 2022-1-10 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236250&amp;ptid=98922" target="_blank">仟音一心 发表于 2022-1-10 17:19</a>
+哪来的情报？</blockquote>
+没有
+目前情报应该是露了个脸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

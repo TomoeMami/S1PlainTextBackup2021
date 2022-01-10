@@ -4298,3 +4298,106 @@ https://cdc.fuzhou.gov.c ...</blockquote>
 
 算了，反正我加过滤了，你们随意。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3342#       发表于 2022-1-10 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236325&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 17:25</a>
+澳大利亚和新西兰为啥前几次能坚持到清零才开放？
+
+我知道21年10月之后还是放了的，但之前是成功清零数次 ...</blockquote>
+因为这俩在海岛上啊。。没有外源的输入，控制住飞机就好了。即使是这样delta的时候也抗不住了。
+
+再封锁下去很多人生计成问题了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  charse2r  
+##### 3343#       发表于 2022-1-10 17:45
+
+𝕵𝖆𝖒𝖎𝖊
+
+@linliyun
+
+我身邊的大量確診案例跟讀完過數據沒問題的文獻讓我堅信omicron不能當成小感冒
+
+所有認識的確診者都說嗅覺下降肺功能也受影響，他們的醫生也告知不一定能恢復請做好心理準備
+
+有個研究人員聖誕節前哭著跟我說父親進了ICU，最近他沒來上班聽說在處理喪禮
+
+他們確診前疫苗都打完三劑
+
+這樣哪是小感冒板脸
+
+下午4:04 · 2022年1月9日·Twitter for iPhone
+
+----------接着mild------
+
+*****
+
+####  vimisbesteditor  
+##### 3344#       发表于 2022-1-10 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236596&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-10 17:45</a>
+𝕵𝖆𝖒𝖎𝖊
+
+@linliyun
+
+我身邊的大量確診案例跟讀完過數據沒問題的文獻讓我堅信omicron不能當成小感冒</blockquote>
+第一个例不能代表总体
+第二隔壁有个确诊的，已经康复了，你可以看看他的症状
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  cpuisme  
+##### 3345#       发表于 2022-1-10 17:50
+
+ 本帖最后由 cpuisme 于 2022-1-10 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236439&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 17:34</a>
+
+如果有确实的观点能证明我是错的，那我就会直接的承认我的错误。然而很多时候被指出常识性错误的，是一些 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 因为你态度很好，我给你说些个人心得吧。
+
+发帖要么就情绪输出，要么就尽量说自己有把握的“干货”。
+
+一个是省得事后打脸，纯情绪发言、就事论事，事后认错也没什么。
+
+一个是你强行上去跟人互动，对方发觉你水平有限时，话题也很难在合适的层次展开。
+
+说多了就是教学上课。
+
+假如smy是你大号，那上次我说国债利息，你给我回存款利息blablabla。你还记得吗？
+
+你觉得我怎么回？从这俩定义的区别开始说？
+
+为什么S1不是微博，是因为垃圾信息少，大家可以省去过滤的时间成本。
+
+不是业内，不能分辨真假的消息，咱们可以多看少说，这样对大家都好，你说对吧？
+
+*****
+
+####  林照人  
+##### 3346#       发表于 2022-1-10 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挖槽 好饿 没想到不是被烧醒 是被饿醒 果然是烧3天啊 不烧了 好耶
+
+*****
+
+####  vimisbesteditor  
+##### 3347#       发表于 2022-1-10 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236666&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-10 17:50</a>
+因为你态度很好，我给你说些个人心得吧。
+
+发帖要么就情绪输出，要么就尽量说自己有把握的“干货” ...</blockquote>
+那个事情啊，我私信你了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
