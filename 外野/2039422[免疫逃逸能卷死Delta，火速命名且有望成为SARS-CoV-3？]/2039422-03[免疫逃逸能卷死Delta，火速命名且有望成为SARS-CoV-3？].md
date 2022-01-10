@@ -2703,3 +2703,52 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  公共知识  
+##### 3225#       发表于 2022-1-10 11:40
+
+<blockquote>smy20011 发表于 2022-1-10 10:35
+在焦帮主的嘴里，omicron成了一个症状比delta轻，传播能力和delta差不多的病种。
+
+看来焦帮主大概是躺平派的 ...</blockquote>
+你这前言不搭后语的，弱鸡和躺平有什么关系。哪怕是原始株那么"弱鸡"，我们的政策不也是清零吗，什么时候躺平了？
+
+*****
+
+####  jy000129  
+##### 3226#       发表于 2022-1-10 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230765&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-10 10:28</a>
+是 的，就是那只可爱的大猫。
+
+同期感染的还有老虎，目前已经康复</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同属猫科，为啥豹子就费拉不堪
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  creymorgan  
+##### 3227#       发表于 2022-1-10 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230872&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-10 10:35</a>
+
+在焦帮主的嘴里，omicron成了一个症状比delta轻，传播能力和delta差不多的病种。
+
+看来焦帮主大概是躺平派的 ...</blockquote>
+他一直强调奥米克戎对儿童危险性高。
+
+由于全球广泛接种疫苗，德尔塔的Rt是被压制的，没接种疫苗的儿童间接获得了保护。
+
+但奥米克戎目前来看，即便有效也只是防重症，照样感染，那就直接穿过本来有保护的家长感染孩子了，孩子没有接种疫苗，高致病性造成儿童入院大幅增长。
+
+*****
+
+####  公共知识  
+##### 3228#       发表于 2022-1-10 11:59
+
+o比d牛逼的地方，不就在于免疫逃逸吗？对没有抗体的人群的感染能力不一定能比得上其他病毒株。这是很合理的推测吧？
+
