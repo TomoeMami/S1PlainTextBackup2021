@@ -250,3 +250,18 @@ pua？你麻会非常在意这种男人在说
 
 等待人数已经爆杀你咩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TiHaru  
+##### 7530#       发表于 2022-1-10 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54237362&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-1-10 18:46</a>
+我从没在油管上搜过saya怎么直接推送到我首页上了，这么智能的吗
+
+等待人数已经爆杀你咩了
+
+ ...</blockquote>
+saya复活了？之前直播中晕过去了人事不省，苔苔第二天才联系到
+
