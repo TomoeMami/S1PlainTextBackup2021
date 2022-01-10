@@ -10504,3 +10504,15 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 
 杀狐复刻 卡池开3天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86520#       发表于 2022-1-10 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236129&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2022-1-10 17:08</a>
+
+杀狐复刻 卡池开3天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实际只有43小时，比周日梅老板还短
+

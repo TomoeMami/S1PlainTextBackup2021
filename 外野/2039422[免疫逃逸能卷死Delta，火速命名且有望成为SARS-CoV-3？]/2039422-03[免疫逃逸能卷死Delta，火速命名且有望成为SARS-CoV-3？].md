@@ -4201,3 +4201,100 @@ https://cdc.fuzhou.gov.c ...</blockquote>
 
 手机打字太费劲，不回复了。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3336#       发表于 2022-1-10 17:21
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236181&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 17:12</a>
+欧美在下行阶段是维持疫情高峰的防疫措施么？是重新开放呀，可以随便聚集，不要求口罩，给快要饿死的新冠 ...</blockquote>
+不让开party欧美就上街开party了。
+
+口罩令和聚集禁令全凭自觉，根本没能力强制实施<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+另外，现在强制带口罩的州才是少数
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3337#       发表于 2022-1-10 17:25
+
+<blockquote>vimisbesteditor 发表于 2022-1-10 17:21
+不让开party欧美就上街开party了。
+
+口罩令和聚集禁令全凭自觉，根本没能力强制实施</blockquote>
+澳大利亚和新西兰为啥前几次能坚持到清零才开放？
+
+我知道21年10月之后还是放了的，但之前是成功清零数次的。
+
+*****
+
+####  cpuisme  
+##### 3338#       发表于 2022-1-10 17:27
+
+ 本帖最后由 cpuisme 于 2022-1-10 17:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235548&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:27</a>
+
+讨论如何防范下一个变种，这不能算离题吧
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
+你是我这么多年来第二个需要主动屏蔽的发言者。
+
+假如每次讨论都先得纠正你的低级错误，那就不是讨论。
+
+而是大家在帮你提升知识水平，你在抬杠涨学问。
+
+你被纠正后从来没有正面承认过大家指出的错误，就是持续地发出似是而非的观点让人纠正。
+
+假如你不能为你发出的内容负责，不能保证其可信，非要浪费大家时间帮你证伪，指出错误。
+
+那你是在破坏讨论还是在参与讨论，你安静看大家发布消息和分析信息不好吗？
+
+*****
+
+####  橋白  
+##### 3339#       发表于 2022-1-10 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236360&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-10 17:27</a>
+
+你是我这么多年来第二个需要主动屏蔽的发言者。
+
+假如每次讨论都先得纠正你的低级错误，那就不是讨论。
+
+而 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">提醒，如果你说的第一个是那个smy的话，那是他小号
+
+*****
+
+####  vimisbesteditor  
+##### 3340#       发表于 2022-1-10 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236360&amp;ptid=2039422" target="_blank">cpuisme 发表于 2022-1-10 17:27</a>
+你是我这么多年来第二个需要主动屏蔽的发言者。
+
+假如每次讨论都先得纠正你的低级错误，那就不是讨论。
+
+而 ...</blockquote>
+如果有确实的观点能证明我是错的，那我就会直接的承认我的错误。然而很多时候被指出常识性错误的，是一些抱着欧美死麻了的心态看戏的人。
+
+毕竟有些人只会复读焦帮主的公众号，而不知道自己查文献。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  cpuisme  
+##### 3341#       发表于 2022-1-10 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236414&amp;ptid=2039422" target="_blank">橋白 发表于 2022-1-10 17:31</a>
+
+提醒，如果你说的第一个是那个smy的话，那是他小号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 震惊，还真是拉黑了同一人……
+
+算了，反正我加过滤了，你们随意。
+
