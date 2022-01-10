@@ -4614,3 +4614,12 @@ https://weibo.com/1804774727/L9WHhApvx
 挖槽 好饿 没想到不是被烧醒 是被饿醒 果然是烧3天啊 不烧了 好耶</blockquote>
 完西你这是怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  圈量子  
+##### 3361#       发表于 2022-1-11 06:31
+
+我这booster打完没副作用，前两针也是活蹦乱跳的，这是体质问题吗
+
