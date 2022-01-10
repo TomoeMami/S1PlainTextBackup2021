@@ -12513,3 +12513,42 @@ lol上瘾
 
 看别人玩比自己打还要有趣系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 7440#       发表于 2022-1-10 11:27
+
+上班前看她在打，准备去午休吃饭一看还在打，好大的瘾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  T_Hb  
+##### 7441#       发表于 2022-1-10 11:28
+
+今天要坚持打7个小时
+
+*****
+
+####  十九号大侠  
+##### 7442#       发表于 2022-1-10 11:34
+
+不到黄金不下播是吧
+
+*****
+
+####  时间在我手中  
+##### 7443#       发表于 2022-1-10 11:34
+
+还要打几小时哦，这就是初中开始的LOL废人吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7444#       发表于 2022-1-10 11:35
+
+找人双排吧，这队友也太不当人了
+
