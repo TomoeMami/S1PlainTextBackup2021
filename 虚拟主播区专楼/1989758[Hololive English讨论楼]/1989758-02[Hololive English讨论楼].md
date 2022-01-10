@@ -814,3 +814,12 @@ Buffed Ame お願いマッスル cover when<img src="https://static.saraba1st.co
 
 感觉buff ame没太大反响呢 我个人感觉是比圣诞搞的要有意思多了
 
+
+
+*****
+
+####  PureIllusion  
+##### 1581#       发表于 2022-1-10 22:15
+
+Ame那套更像是韩服了
+
