@@ -7428,3 +7428,15 @@ b站要全套入正？
 
 爬虫爬了下放送科的专栏漫画，可能有错
 
+
+
+*****
+
+####  nh_zzz  
+##### 573#       发表于 2022-1-11 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54240548&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-10 23:58</a>
+
+个人已经投的除非你批自己手里有版权来ban你，其他外部版权压力还是不太容易影响吧，放送科和武士道应援 ...</blockquote>
+话虽如此，还是希望#3能够看个好的中字
+
