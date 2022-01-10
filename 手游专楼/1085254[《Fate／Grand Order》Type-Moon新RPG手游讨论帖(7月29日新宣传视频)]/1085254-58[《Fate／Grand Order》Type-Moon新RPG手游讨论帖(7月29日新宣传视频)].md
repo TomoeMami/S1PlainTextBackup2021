@@ -10408,3 +10408,15 @@ Faker这钟临时充数的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次其他楼友都非的时候就悄悄欧了
 
+
+
+*****
+
+####  alucardcz  
+##### 86511#       发表于 2022-1-10 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233123&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-10 13:32</a>
+
+难得萌新和我一样非</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">醒醒 萌新没有妖兰 比你非多了
+
