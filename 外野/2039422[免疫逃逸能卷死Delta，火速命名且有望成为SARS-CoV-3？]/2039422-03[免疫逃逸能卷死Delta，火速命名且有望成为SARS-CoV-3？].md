@@ -3809,3 +3809,176 @@ who也说，解决了贫困问题，就解决了新冠。
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose ...</blockquote>
 不是艾滋是啥，是b滋吗，是多力多滋吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3306#       发表于 2022-1-10 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235110&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:59</a>
+不是艾滋是啥，是b滋吗，是多力多滋吗</blockquote>
+变成了一种只要你有钱，就不会传染给别人，也不会对你造成影响的病。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3307#       发表于 2022-1-10 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235131&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:01</a>
+
+变成了一种只要你有钱，就不会传染给别人，也不会对你造成影响的病。
+
+— from Google Pixel 3 XL, Andro ...</blockquote>
+所以说叫什么，给个学名呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3308#       发表于 2022-1-10 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235087&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 15:59</a>
+没消失的病多了去了，不是哪个都是像天花那样彻底消灭才不成为人类生活的忧患的，单靠的就是医学的发展， ...</blockquote>
+几乎所有国家都有专利豁免条款的，到时候逼急了可以自己仿制。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3309#       发表于 2022-1-10 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235006&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:54</a>
+
+你觉得南非普通民众买得起鸡尾酒疗法的药么？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose ...</blockquote>
+多一个是一个，不是非黑即白。
+
+*****
+
+####  creymorgan  
+##### 3310#       发表于 2022-1-10 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235163&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:02</a>
+
+几乎所有国家都有专利豁免条款的，到时候逼急了可以自己仿制。
+
+— from Google Pixel 3 XL, Android 12  ...</blockquote>
+你觉得豁免后他们不是找个成本最低的单方用了？复方肯定比单方贵呀。
+
+*****
+
+####  vimisbesteditor  
+##### 3311#       发表于 2022-1-10 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235150&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 16:02</a>
+所以说叫什么，给个学名呗</blockquote>
+艾滋对穷人来说，是不治之症，只能等死的病。
+对富人来说，是每周吃一次药（甚至还有贵的要死的皮下埋针）的病。
+这不是穷病是啥？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3312#       发表于 2022-1-10 16:05
+
+所以说你看，某些人嘴里传染病有了钱就不是传染病<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 3313#       发表于 2022-1-10 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235203&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:05</a>
+
+艾滋对穷人来说，是不治之症，只能等死的病。
+
+对富人来说，是每周吃一次药（甚至还有贵的要死的皮下埋针 ...</blockquote>
+我从头到尾都懒得管它是不是穷病啊
+
+我就问你艾滋病有钱治了就不叫艾滋了这是你说的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ganeid  
+##### 3314#       发表于 2022-1-10 16:08
+
+还穷不穷病，什么病不是穷病<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3315#       发表于 2022-1-10 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235177&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 16:03</a>
+多一个是一个，不是非黑即白。</blockquote>
+是这样没错，但是现在其实疫苗已经不短缺了，世界上最穷的非洲国家已经开始扔疫苗了。
+你说前几个月的疫苗断绝是不是导致了omicron，我觉得是的。
+但是现在不短缺了，那就得把目光放到其他的瓶颈上，基础的医疗资源，高昂的艾滋病发病率等等。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3316#       发表于 2022-1-10 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235216&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 16:05</a>
+所以说你看，某些人嘴里传染病有了钱就不是传染病</blockquote>
+是啊，被鸡尾酒疗法治疗的艾滋病人，是不会传染的。
+一个不传染的病，是传染病么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3317#       发表于 2022-1-10 16:12
+
+ 本帖最后由 ganeid 于 2022-1-10 16:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235324&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:12</a>
+
+是啊，被鸡尾酒疗法治疗的艾滋病人，是不会传染的。
+
+一个不传染的病，是传染病么？</blockquote>
+还搁哪鸡尾酒患者不会传染哪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你当医生怕是得被患者告死吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  creymorgan  
+##### 3318#       发表于 2022-1-10 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235306&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:10</a>
+
+是这样没错，但是现在其实疫苗已经不短缺了，世界上最穷的非洲国家已经开始扔疫苗了。
+
+你说前几个月的疫 ...</blockquote>
+所有国家都不缺疫苗了么？
+
+不能购买第三方疫苗，辉瑞有权拿国家资产抵押的诸如此类不平等条约取消了么？
+
+*****
+
+####  cpuisme  
+##### 3319#       发表于 2022-1-10 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 提醒下这是Omi楼，每次他一出来都刷一堆低质量辫经，各位就不能像上个号一样，给他拉黑了事吗。
+
+*****
+
+####  公共知识  
+##### 3320#       发表于 2022-1-10 16:18
+
+<blockquote>vimisbesteditor 发表于 2022-1-10 15:50
+新冠不可能从这个世界上消失了，全球清零只存在你的幻想中。
+
+— from Google Pixel 3 XL, Android 12 of ...</blockquote>
+我没想过要全球清零啊，我想的是国内清零，我觉得国内清零没问题啊。国外白皮死麻了我很爽啊。
+
