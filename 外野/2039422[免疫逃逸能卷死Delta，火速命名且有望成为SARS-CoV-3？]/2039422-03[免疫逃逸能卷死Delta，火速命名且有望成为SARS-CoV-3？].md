@@ -2585,3 +2585,92 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  yhaos  
+##### 3216#       发表于 2022-1-10 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228336&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-10 00:52</a>
+
+退烧了 不知道还要不要继续吃连花清瘟啊 一次4粒 一天12粒真的感觉好多 ...</blockquote>
+体感无症状不代表已经清除完毕，没吃够3天要吃到3天，超过了3天之后体感恢复，要延续2天
+
+*****
+
+####  smy20011  
+##### 3217#       发表于 2022-1-10 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230431&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-10 10:02</a>
+体感无症状不代表已经清除完毕，没吃够3天要吃到3天，超过了3天之后体感恢复，要延续2天 ...</blockquote>
+吃中药又不抗病毒
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  yhaos  
+##### 3218#       发表于 2022-1-10 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230476&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-10 10:06</a>
+
+吃中药又不抗病毒
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+那按照你的思路，建议你生病体感恢复后立刻停除了抗病毒药以外的所有药呢。
+
+*****
+
+####  最好不说  
+##### 3219#       发表于 2022-1-10 10:09
+
+北京市人民政府办公厅10日发布《关于2022年春节放假安排的通知》，倡导市民群众在京过年，非必要不出京，度过一个欢乐、祥和、安宁的节日假期。 
+
+还是没躲过，以后都默认原地过年算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smy20011  
+##### 3220#       发表于 2022-1-10 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230499&amp;ptid=2039422" target="_blank">yhaos 发表于 2022-1-10 10:08</a>
+那按照你的思路，建议你生病体感恢复后立刻停除了抗病毒药以外的所有药呢。 ...</blockquote>
+莲花清瘟最大的作用是压制症状，都没症状了吃药是干啥？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cdyjn|-1|每天看孤儿中年巨魔打滚，属实乐啊.|
+
+查看全部评分
+
+*****
+
+####  yhaos  
+##### 3221#       发表于 2022-1-10 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230514&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-10 10:09</a>
+
+莲花清瘟最大的作用是压制症状，都没症状了吃药是干啥？
+
+— from Google Pixel 3 XL, Android 12 of S1  ...</blockquote>
+冷酷无情的Ctrl+c/v机器，先做点高中数学题证明一下高中学力，这样打滚更好看。
+
+*****
+
+####  烤烤鱼σ  
+##### 3222#       发表于 2022-1-10 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54223511&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-9 17:36</a>
+
+伊利诺斯动物园一只雪豹死于新冠，去年底内布拉斯加动物园也有三只雪豹死于新冠。 百分百被人传染，也是飞 ...</blockquote>
+雪豹！是那个雪豹吗？
+

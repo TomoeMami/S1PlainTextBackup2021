@@ -12196,3 +12196,12 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 長くなってしまいましたが、あらためて見に来てくださった皆様、配信で見てくれた皆様、行けなかったけど応援してくれていた皆様、ありがとうございました！</blockquote>
 
+
+
+*****
+
+####  cybernetics31  
+##### 4056#       发表于 2022-1-10 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼这个一群二群都老早建的，加到500现在也不会开加人了，其实也没啥好入的，除了古早老粉丝就是一水的00后，之前群里看到一个初三的娃……………………
+
