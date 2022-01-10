@@ -7303,3 +7303,21 @@ BV1sZ4y1S77J该来的还是要来<img src="https://static.saraba1st.com/image/sm
 
 放送科要删掉所有的投稿<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sad6504  
+##### 564#       发表于 2022-1-10 19:28
+
+99组那么多经典视频得存到什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 565#       发表于 2022-1-10 19:41
+
+我以为放送科已经转正了，原来没有吗
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

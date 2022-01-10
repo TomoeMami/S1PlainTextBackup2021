@@ -4495,3 +4495,27 @@ https://wiki.mbalib.com/wiki/%E7%BE%8E%E8%81%94%E5%82%A8%E5%8A%A0%E6%81%AF
 
 说到底什么才是保生计？难道不是没有本地流行最能保生计么？
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3354#       发表于 2022-1-10 19:29
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 19:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54237508&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 18:56</a>
+新西兰和澳大利亚不是被德尔塔击溃时候放弃清零的
+
+是接种率高了时候放弃的。
+
+说到接种率，现在全世界各处 ...</blockquote>
+如果没看错的话，澳去年9月就有1500左右的日增了，而10月20号左右就放弃封城了，这中间没有你说的rt小于1的状况。
+
+选票制国家的缺陷在于，疫情死人是不会投票的，而因为封锁没有收入的餐饮老板是会把票投给反对派的。
+
+如果说4年之后有个新变种会让很多人死，但是选举在今年，那政府肯定是开放多拿选票，而不是继续封锁。
+
+西方国家封城的时候，提出的目标是为疫苗和特效药争取时间，一旦到位，就解除封锁了。他们的目标是为了躺平而封城。而中国的目标是为了清零而封城。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

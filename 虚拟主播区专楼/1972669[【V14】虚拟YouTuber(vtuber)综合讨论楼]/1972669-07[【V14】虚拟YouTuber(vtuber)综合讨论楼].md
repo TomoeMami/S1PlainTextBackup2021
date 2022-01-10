@@ -11410,3 +11410,20 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 草，GYARI那箱订阅最高的一直是pikamee啊，人家会说英语是白皮特攻
 
+
+
+*****
+
+####  adamtheo  
+##### 9970#       发表于 2022-1-10 19:30
+
+名字都错了，是磁富MONOE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于违反规定，欧美那边传播度最广的说法是虚报年龄以进入VOMS，未成年直播喝酒之类的。
+
+*****
+
+####  rzrbtk  
+##### 9971#       发表于 2022-1-10 19:40
+
+小琥珀新翻唱曲好普通啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，为何选曲水平突然…
+歌回随便来个都比这好啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
