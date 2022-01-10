@@ -12117,3 +12117,20 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 4053#       发表于 2022-1-10 08:21
+
+<img src="https://img.saraba1st.com/forum/202201/10/082018r8vgahw8p981pp8r.png" referrerpolicy="no-referrer">
+
+<strong>6B7B8F88-679D-48E5-BF41-54482025FDA6.png</strong> (412.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 08:20 上传
+
+我贴一部分吧，就不翻了，你们都是动漫高手，而且肯定有翻译
+
