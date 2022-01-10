@@ -4623,3 +4623,17 @@ https://weibo.com/1804774727/L9WHhApvx
 
 我这booster打完没副作用，前两针也是活蹦乱跳的，这是体质问题吗
 
+
+
+*****
+
+####  Redis  
+##### 3362#       发表于 2022-1-11 06:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54241822&amp;ptid=2039422" target="_blank">圈量子 发表于 2022-1-11 06:31</a>
+
+我这booster打完没副作用，前两针也是活蹦乱跳的，这是体质问题吗</blockquote>
+和我一样，我真是半点儿反应都没有
+
+感觉根打了假的针一样
+
