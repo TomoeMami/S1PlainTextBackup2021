@@ -11445,3 +11445,12 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 真的假的...？
 
+
+
+*****
+
+####  winda  
+##### 9974#       发表于 2022-1-10 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磁富我听到是说法是和漫画家联动时提前透露了动画化情报，破坏保密协议了
+
