@@ -2900,3 +2900,34 @@ omicron果然是上帝给西方的礼物，不知道西方的4岁以下小孩子
 
 大号被老爷关了，笑死了。。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3240#       发表于 2022-1-10 12:34
+
+<blockquote>creymorgan 发表于 2022-1-10 12:20
+你把“Omicron的大绝招主要是免疫逃逸，但内生传染性其实可能跟Delta差不多。”当作o传播能力那么弱鸡了？ ...</blockquote>
+你得把病毒传播速度延缓到一定程度，才能不影响群众的情况下动态清零。要不然发现一例全城就封一个半月。
+
+如果疫苗能把r值压到1左右，那流调和隔离要好做太多了。
+
+
+
+*****
+
+####  有口皆悲  
+##### 3241#       发表于 2022-1-10 12:37
+
+看到vimisbesteditor这个熟悉的id，只觉得2020年2月份又回来了。
+
+*****
+
+####  Alexmacau8  
+##### 3242#       发表于 2022-1-10 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54232475&amp;ptid=2039422" target="_blank">有口皆悲 发表于 2022-1-10 12:37</a>
+看到vimisbesteditor这个熟悉的id，只觉得2020年2月份又回来了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚谁被塞抹布了来着
+
