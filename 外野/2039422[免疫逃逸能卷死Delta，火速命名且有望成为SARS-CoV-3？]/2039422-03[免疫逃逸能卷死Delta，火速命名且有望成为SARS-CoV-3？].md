@@ -2555,3 +2555,19 @@ https://www.zhihu.com/answer/2303757558  这个解读认为o比d传播快点�
 
 海外党、能翻墙的我推荐一个播主Dr. Glaucomflecken，就... 很真实...<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Redis  
+##### 3214#       发表于 2022-1-10 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228498&amp;ptid=2039422" target="_blank">smy20011 发表于 2022-1-10 01:19</a>
+
+笑死了，到国内了这货反而不敢散播焦虑了
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
+他敢么
+
+要砍头的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

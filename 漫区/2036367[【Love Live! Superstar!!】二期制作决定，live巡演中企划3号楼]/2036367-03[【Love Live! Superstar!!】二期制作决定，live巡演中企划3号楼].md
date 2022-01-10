@@ -12134,3 +12134,14 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 我贴一部分吧，就不翻了，你们都是动漫高手，而且肯定有翻译
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 4054#       发表于 2022-1-10 09:36
+
+连事务所社长都去看了，不错
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
