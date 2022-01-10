@@ -12659,3 +12659,16 @@ JUVENILE 写了5首？
 
 话说鲤鱼配音还是很有天赋的，一个没考过级的自学日语的中国人第一次配音竟然不棒读简直不可思议，要知道很多配音专科毕业的新人棒读都是家常便饭。
 
+
+
+*****
+
+####  iuhehc  
+##### 4095#       发表于 2022-1-11 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54241670&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-1-11 04:12</a>
+话说鲤鱼配音还是很有天赋的，一个没考过级的自学日语的中国人第一次配音竟然不棒读简直不可思议，要知道很 ...</blockquote>
+说不定是看了挺久的动画这个经验帮了她w
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
