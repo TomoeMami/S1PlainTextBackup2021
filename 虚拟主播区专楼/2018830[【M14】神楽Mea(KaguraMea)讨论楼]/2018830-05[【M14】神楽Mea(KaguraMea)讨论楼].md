@@ -12476,3 +12476,40 @@ lol上瘾
 
 队友都是脑溢血吗？？？？
 
+
+
+*****
+
+####  2014720  
+##### 7435#       发表于 2022-1-10 10:51
+
+不行，这青铜局太涨血压了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 7436#       发表于 2022-1-10 10:53
+
+感觉在看那些搞笑视频剪辑一样 卧龙凤雏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 7437#       发表于 2022-1-10 10:56
+
+这洛尼玛笑死我了 一套帅气连招结果抬空了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7438#       发表于 2022-1-10 10:56
+
+我非常倾佩他们都这样还不投的竞技精神
+
+*****
+
+####  Klience  
+##### 7439#       发表于 2022-1-10 10:57
+
+看别人玩比自己打还要有趣系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

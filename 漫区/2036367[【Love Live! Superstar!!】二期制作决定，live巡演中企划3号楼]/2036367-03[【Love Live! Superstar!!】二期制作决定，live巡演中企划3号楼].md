@@ -12214,3 +12214,12 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 感觉国内一部分宅宅真的是第一次追偶像。昨天看B站好几个给liyuu过生日的，不过我有点想不通，为啥你们都挑海底捞啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4058#       发表于 2022-1-10 10:50
+
+不是只有海底捞有那种整活生日么
+

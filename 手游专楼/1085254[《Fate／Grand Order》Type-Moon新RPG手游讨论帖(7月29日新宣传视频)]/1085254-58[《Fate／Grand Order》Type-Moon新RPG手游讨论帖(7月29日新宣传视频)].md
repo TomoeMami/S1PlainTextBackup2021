@@ -10364,3 +10364,19 @@ Faker这钟临时充数的
 
 双暗狐配奥伯龙确实爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然看上去只能打特攻，但特攻伤害是真的高，随便20多万，而且范围广，随便打了几个free都是特攻的
 
+
+
+*****
+
+####  風卷豹  
+##### 86507#       发表于 2022-1-10 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54226287&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-1-9 21:34</a>
+
+等等，为啥期待实装里还有老芥？
+
+都出两个了真不要脸</blockquote>
+因为不是期待实装，问的是没实装的角色里最喜欢哪个。
+
+至于选完之后是发颗糖还是实装还是就丢个调查结果全看他们心情吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
