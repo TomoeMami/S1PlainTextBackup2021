@@ -10420,3 +10420,57 @@ Faker这钟临时充数的
 难得萌新和我一样非</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">醒醒 萌新没有妖兰 比你非多了
 
+
+
+*****
+
+####  qixinno2  
+##### 86512#       发表于 2022-1-10 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233345&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-10 13:49</a>
+
+醒醒 萌新没有妖兰 比你非多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但你有泡沫 娘们团长仇信啊
+
+*****
+
+####  alucardcz  
+##### 86513#       发表于 2022-1-10 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233497&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-10 14:04</a>
+
+但你有泡沫 娘们团长仇信啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那是什么 不存在了!
+
+*****
+
+####  qixinno2  
+##### 86514#       发表于 2022-1-10 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233505&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-10 14:06</a>
+
+那是什么 不存在了!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装伽摩
+
+*****
+
+####  zakki  
+##### 86515#       发表于 2022-1-10 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54231042&amp;ptid=1085254" target="_blank">風卷豹 发表于 2022-1-10 10:48</a>
+
+因为不是期待实装，问的是没实装的角色里最喜欢哪个。
+
+至于选完之后是发颗糖还是实装还是就丢个调查结果 ...</blockquote>
+我觉得顶多出个礼装或者周边吧，实装什么的想得太美了，一年必须要出的主线从者他们都憋不出来，拿来的精力去额外做这些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86516#       发表于 2022-1-10 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233517&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-10 14:06</a>
+
+泳装伽摩</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽到拉满 图鉴+1 然后不就不存在了!
+

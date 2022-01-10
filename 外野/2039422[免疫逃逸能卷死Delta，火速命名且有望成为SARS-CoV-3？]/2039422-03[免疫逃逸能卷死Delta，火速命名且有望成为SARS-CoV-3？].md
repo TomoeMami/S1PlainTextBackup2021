@@ -3164,3 +3164,50 @@ Rt可能影响工作量但不影响基本方法。
 
 那么多事情可以做呢，就盯着南非不缺疫苗了怎么行。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3260#       发表于 2022-1-10 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233444&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 14:00</a>
+对呀，继续呀，这就是在降低下一个突变出现的概率
+
+而且没能力疫苗自给自足的只有南非么？多了去了，也别 ...</blockquote>
+我想不出来没水没电的国家，到底怎么清零。连核酸检测都做不到啊
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3261#       发表于 2022-1-10 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233464&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 14:02</a>
+
+我想不出来没水没电的国家，到底怎么清零。连核酸检测都做不到啊
+
+— from Google Pixel 3 XL, Android 1 ...</blockquote>
+少一个是一个
+
+每一次感染都是突变机会，每一次高抗体环境下感染都是强烈选择下的突变诱导。
+
+*****
+
+####  creymorgan  
+##### 3262#       发表于 2022-1-10 14:11
+
+是去年的疫苗帝国主义直接导致了奥米克戎么？
+
+那还没有证据，但是可以肯定的是，疫苗帝国主义显著增大了类似奥米克戎的病毒出现的机会。
+
+*****
+
+####  yuandi0120  
+##### 3263#       发表于 2022-1-10 14:19
+
+话说回来奥密克戎起源地也未必就真是南非吧，搞不好又只是先发现的地方背锅而已<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
