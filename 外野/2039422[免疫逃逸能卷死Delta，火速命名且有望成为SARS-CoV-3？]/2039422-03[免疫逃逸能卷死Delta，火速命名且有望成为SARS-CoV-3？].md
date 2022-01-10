@@ -4602,3 +4602,15 @@ https://weibo.com/1804774727/L9WHhApvx
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  startea15  
+##### 3360#       发表于 2022-1-11 04:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236691&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-10 02:52</a>
+
+挖槽 好饿 没想到不是被烧醒 是被饿醒 果然是烧3天啊 不烧了 好耶</blockquote>
+完西你这是怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
