@@ -12416,3 +12416,15 @@ pay打出这些话，自己应该都脸红了吧
 
 想到最后一场会有名场面，想不到这么神。鲤鱼真是个纤细敏感的孩子，太感动了
 
+
+
+*****
+
+####  stygian  
+##### 4078#       发表于 2022-1-10 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236987&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-10 18:15</a>
+
+我靠，傻逼台湾人，乱说个什么</blockquote>
+有一说一他之前做的系列都是本名开示的
+
