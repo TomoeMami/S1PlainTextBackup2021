@@ -11253,3 +11253,12 @@ Syl，/vt/事业民都在骂他秒速下播<img src="https://static.saraba1st.co
 
 syl，还是补充一下，其实黑黑fps配合那个鬼样我觉得主要是他俩在pubg时代过去之后几乎没什么机会和时间跟同水平圈子里的人正常练，尤其是游戏火起来的初期，意识跟不上完全理所当然，当然也有自身水平因素，king是真的不适合fps他自己也清楚，二哥pubg时期就说过他跟fps圈的人有现实的水平差距，而且他俩都不是指挥的料，不过大赛跟职业哥军训几回之后还是有进步
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 9957#       发表于 2022-1-10 11:11
+
+犬山这解除契约的莉莉丝是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
