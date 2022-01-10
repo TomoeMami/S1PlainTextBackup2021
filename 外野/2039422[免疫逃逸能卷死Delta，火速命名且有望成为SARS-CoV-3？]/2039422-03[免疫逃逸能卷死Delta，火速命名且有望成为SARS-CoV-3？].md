@@ -4589,3 +4589,16 @@ NIH出了个“药不够用时的指南”，单子上最先能用上好药的�
 
 这楼到这里感觉已经彻底和疫情没关系了，你们继续撕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3359#       发表于 2022-1-11 01:03
+
+https://weibo.com/1804774727/L9WHhApvx
+
+这也能上热搜的么
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
