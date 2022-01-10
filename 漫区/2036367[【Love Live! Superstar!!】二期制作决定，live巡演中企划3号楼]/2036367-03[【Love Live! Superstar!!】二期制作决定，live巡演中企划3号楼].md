@@ -12507,3 +12507,117 @@ pay打出这些话，自己应该都脸红了吧
 
 刚说了外星人，不知道鲤鱼说异星人是不是指我那句，那应该连续3个月都被点到了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4087#       发表于 2022-1-10 20:09
+
+<img src="https://img.saraba1st.com/forum/202201/10/200934zmwiwe77w7c9l7el.jpg" referrerpolicy="no-referrer">
+
+<strong>20220110_200727.jpg</strong> (519.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202201/10/200935k27vv5fiv6l255vx.jpg" referrerpolicy="no-referrer">
+
+<strong>20220110_200725.jpg</strong> (594.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202201/10/200935bdry4axqfxm7xjyz.jpg" referrerpolicy="no-referrer">
+
+<strong>20220110_200705.jpg</strong> (162.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202201/10/200936zgrlpn41uaduuudg.jpg" referrerpolicy="no-referrer">
+
+<strong>20220110_200700.jpg</strong> (172.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202201/10/200936o633m3gbk309qkm1.jpg" referrerpolicy="no-referrer">
+
+<strong>20220110_200703.jpg</strong> (190.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-10 20:09 上传
+
+●INDEX
+
+1 Magic Words
+
+作詞：MC TC　作曲・編曲：TAKU INOUE
+
+2 ルルカワイマ
+
+作詞：児玉雨子　作曲・編曲：5u5h1
+
+3 Endless Vacation
+
+作詞・作曲・編曲：JUVENILE, TeddyLoid
+
+4 めたもるふぉーぜ
+
+作詞：Zinee　作曲・編曲：JUVENILE
+
+5 花鳥風月
+
+作詞・作曲：川嶋あい　編曲：JUVENILE
+
+6 BLUE ROSE
+
+作詞・作曲：Rei　編曲：JUVENILE
+
+7 Ambition
+
+作詞：Teje　作曲・編曲：MEG, Teje
+
+8 カラフルホライズン
+
+作詞：稲葉エミ　作曲：白戸佑輔(Dream Monster)　編曲：アッシュ井上(Dream Monster)
+
+9 カルペ・ディエム
+
+作詞：児玉雨子　作曲・編曲：JUVENILE
+
+10 Reply
+
+作詞：宮嶋淳子　作曲・編曲：amazuti
+
+*****
+
+####  lj205  
+##### 4088#       发表于 2022-1-10 20:14
+
+好奇第8首
+
+*****
+
+####  cat1230  
+##### 4089#       发表于 2022-1-10 20:15
+
+长发造型漂亮！
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  stygian  
+##### 4090#       发表于 2022-1-10 20:22
+
+川岛爱一首，宫岛写了首词
+
+制作阵一般，不过烂铁资源也就那样。。。
+

@@ -308,3 +308,23 @@ saya复活了？之前直播中晕过去了人事不省，苔苔第二天才联�
 
 想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  makourisu-2  
+##### 7536#       发表于 2022-1-10 20:08
+
+有无懂哥介绍一下saya是咋了？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+按这公告的四条理由，有点吓人啊
+<img src="https://p.sda1.dev/4/e074eaa3f41bb1a863076b2e381fc29b/-zue37Q2p-i1thK2jT3cSp4-sg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 7537#       发表于 2022-1-10 20:13
+
+不懂，也没人懂，苔箱封口，本人晚上还没播。
+
+反正和你麻没关系，管它干啥，人是独立的个体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
