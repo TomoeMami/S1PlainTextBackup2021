@@ -10548,3 +10548,12 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 
 艹，在挖井进度86%才出光狐狸，可怕
 
+
+
+*****
+
+####  rooarr  
+##### 86525#       发表于 2022-1-11 01:00
+
+复刻让我刷点煌星吧，这几天刷腻了才出3个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
