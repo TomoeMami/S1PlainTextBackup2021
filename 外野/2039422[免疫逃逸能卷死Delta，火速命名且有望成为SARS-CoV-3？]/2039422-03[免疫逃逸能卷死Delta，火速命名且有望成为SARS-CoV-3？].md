@@ -3586,3 +3586,226 @@ who也说，解决了贫困问题，就解决了新冠。
 
 穷病，也许更适合叫做遭帝国主义蹂躏的病。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3290#       发表于 2022-1-10 15:41
+
+很简单的道理，你就算把成堆的疫苗现在送给南非国家。
+第一，找不到足够的人手打针。南非人均医疗资源远不如发达国家。
+第二，人群打针欲望不强，很多人都在乡村，想去打针得步行几公里才能打得到。
+第三，有的人就算打针了也没用，南非有20%的艾滋病人，打上去也产生不了抗体。
+
+疫苗不平等是不是新变种产生的原因，当然是。
+但是解决了疫苗不平等是不是就能延缓下一个变种的来临时间？恐怕不行。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3291#       发表于 2022-1-10 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234774&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:39</a>
+隔离开了的传染病：他们是穷病
+
+隔离不开的传染病：（目前全世界有8亿人没有电力，7亿人没有安全的自来水。 ...</blockquote>
+解决贫穷问题，你说的那堆传染病也就没了啊。这不是穷病，是什么病？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  公共知识  
+##### 3292#       发表于 2022-1-10 15:47
+
+喷了，还穷病呢，你看看那些白皮国家哪个清零了？因为你们穷国不可能清零所以我们觉得不可能清零所以我们躺平了所以都是你们的锅？逻辑满分。
+
+*****
+
+####  ganeid  
+##### 3293#       发表于 2022-1-10 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234781&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 15:40</a>
+
+疫苗帝国主义里囤积疫苗一事导致了疫苗不足
+
+导致了更多患者，导致了劳动力损失，导致了贫穷
+
+疫苗帝国主义 ...</blockquote>
+当年灭天花也是发达国家先灭，灭完美苏领头两大阵营联合去第三世界扑灭
+
+现在可好，发达国家自己没能力扑灭疫情，某些网友还在反复论证第三世界没能力扑灭所以发达国家该来的变种还是回来，给自己的无能开脱
+
+顺便还把变种的屎盆子扣回了第三世界
+
+你看他又说了，什么疫苗吧啦吧啦的
+
+*****
+
+####  vimisbesteditor  
+##### 3294#       发表于 2022-1-10 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234911&amp;ptid=2039422" target="_blank">公共知识 发表于 2022-1-10 15:47</a>
+喷了，还穷病呢，你看看那些白皮国家哪个清零了？因为你们穷国不可能清零所以我们觉得不可能清零所以我们躺 ...</blockquote>
+新冠不可能从这个世界上消失了，全球清零只存在你的幻想中。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3295#       发表于 2022-1-10 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234808&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:41</a>
+
+很简单的道理，你就算把成堆的疫苗现在送给南非国家。
+
+第一，找不到足够的人手打针。南非人均医疗资源远不 ...</blockquote>
+为啥不能延缓？
+
+少一个病例就少一个突变机会。
+
+少一个突变机会就晚一会儿出现变种。
+
+而且，无论医护培训还是接种宣传，都是可以改善的
+
+艾滋病人按时吃药压制病情可以获得正常的免疫力，理性情况下预期寿命几乎没有损失。不能及时按计划服药，长期处于半好不好免疫力异常的这问题也是可以改善的。
+
+这，不是非黑即白的事情不做到完美就无效的事情，是每一步进展都有其意义，都在一点一滴的减少机会降低风险。
+
+*****
+
+####  ganeid  
+##### 3296#       发表于 2022-1-10 15:51
+
+ 本帖最后由 ganeid 于 2022-1-10 15:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234906&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:47</a>
+
+解决贫穷问题，你说的那堆传染病也就没了啊。这不是穷病，是什么病？
+
+— from Google Pixel 3 XL, Andro ...</blockquote>
+你看，又把屎盆子扣给穷国了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+每次听你们说要消除贫困我都想乐，再多说点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3297#       发表于 2022-1-10 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234934&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:49</a>
+当年灭天花也是发达国家先灭，灭完美苏领头两大阵营联合去第三世界扑灭
+
+现在可好，发达国家自己没能力扑 ...</blockquote>
+天花有100%近乎有效率的疫苗，而新冠没有。
+天花是dna病毒，而新冠是rna病毒
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3298#       发表于 2022-1-10 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234966&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 15:50</a>
+为啥不能延缓？
+
+少一个病例就少一个突变机会。
+
+少一个突变机会就晚一会儿出现变种。</blockquote>
+你觉得南非普通民众买得起鸡尾酒疗法的药么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3299#       发表于 2022-1-10 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234979&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:52</a>
+
+天花有100%近乎有效率的疫苗，而新冠没有。
+
+天花是dna病毒，而新冠是rna病毒</blockquote>
+特好奇您要是活在天花疫苗还没研发出来的时代
+
+是不是你也在疾呼要想扑灭天花先解决贫困问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  林照人  
+##### 3300#       发表于 2022-1-10 15:56
+
+咳嗽到睡不着 夭寿了 一要睡就突然一阵咳意 玩我呢
+
+
+
+*****
+
+####  ganeid  
+##### 3301#       发表于 2022-1-10 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235006&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:54</a>
+
+你觉得南非普通民众买得起鸡尾酒疗法的药么？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose ...</blockquote>
+怎么买了鸡尾酒疗法富人得的艾滋就不是艾滋啦
+
+变异了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+笑死了，鸡尾酒疗法能引发艾滋变种，原来富人不能清零的话艾滋变种该来的还是回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vimisbesteditor  
+##### 3302#       发表于 2022-1-10 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235055&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:57</a>
+怎么买了鸡尾酒疗法富人得的艾滋就不是艾滋啦
+
+变异了吗</blockquote>
+富人用鸡尾酒疗法之后，艾滋确实不是艾滋了。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  林照人  
+##### 3303#       发表于 2022-1-10 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在NGA发的新冠报告贴还给夹 绝绝子
+
+*****
+
+####  creymorgan  
+##### 3304#       发表于 2022-1-10 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234962&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:50</a>
+
+新冠不可能从这个世界上消失了，全球清零只存在你的幻想中。
+
+— from Google Pixel 3 XL, Android 12 of ...</blockquote>
+没消失的病多了去了，不是哪个都是像天花那样彻底消灭才不成为人类生活的忧患的，单靠的就是医学的发展，而非躺平。
+
+小分子口服药就是一个很重要并且已经看到曙光的方向。
+
+顺带一提，流感在80年代到2000是有特效药金刚烷胺的，但长期单方使用导致目前所有的流感病毒全部抗药。这也是我强调要新冠药要多靶点药鸡尾酒形式使用，新冠突变效率远强于流感，单方用药估计撑不了半年。
+
+如果新冠小分子药因为某些成分的专利问题，导致一些国家只能单方使用，导致诱导耐药，是不是面对抗药的新冠又叫一声穷病脱下一切责任。
+
+*****
+
+####  ganeid  
+##### 3305#       发表于 2022-1-10 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235073&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:58</a>
+
+富人用鸡尾酒疗法之后，艾滋确实不是艾滋了。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose ...</blockquote>
+不是艾滋是啥，是b滋吗，是多力多滋吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

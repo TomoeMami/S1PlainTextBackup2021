@@ -5300,3 +5300,14 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 老是整avg腻了呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5048#       发表于 2022-1-10 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">主要是avg配上锐评的至今为止效果最好的游戏回方式了
+
+其他只能更烂了
+

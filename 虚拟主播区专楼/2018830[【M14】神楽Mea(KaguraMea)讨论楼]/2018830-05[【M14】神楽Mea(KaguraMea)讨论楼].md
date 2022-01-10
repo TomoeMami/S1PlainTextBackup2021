@@ -12971,3 +12971,68 @@ lol我是看不懂，估计以后还这么播我也就有空才看了
 
 昨晚联动里占卜只有刚开始的一小会，后面差不多就都是阿咩故事会了
 
+
+
+*****
+
+####  时间在我手中  
+##### 7493#       发表于 2022-1-10 15:41
+
+后面就没听了，感觉就普通，我现在联动要么开始吸引住我还能看，要么觉得无聊就挂着和LOL一样脑死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7494#       发表于 2022-1-10 15:41
+
+ 本帖最后由 T_Hb 于 2022-1-10 15:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了些整蛊小游戏效果不错，这些个101啊 FPS不都是这样，偶尔有点节目效果，大部分都是水
+
+杂谈喜欢有点内容的，车轱辘话顶不住
+
+*****
+
+####  Klience  
+##### 7495#       发表于 2022-1-10 15:46
+
+这次又是之前在推特吐苦水的那个人吗
+
+*****
+
+####  路人庚  
+##### 7496#       发表于 2022-1-10 15:48
+
+是啊，感觉扳手该给点作用了，就算你咩姐不ban也该代ban了
+
+syl，新推（看来也是一回生二回熟，比上次恢复的快惹
+
+*****
+
+####  clvan_  
+##### 7497#       发表于 2022-1-10 15:49
+
+安定的绿熊，出现速度够快的，这种你麻吃一顿睡一觉醒来就好了
+
+*****
+
+####  2014720  
+##### 7498#       发表于 2022-1-10 15:49
+
+今天的lol好歹是阳间台，几个月前天天半夜tw时不冲放今天精准破防，很难不怀疑其动机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7499#       发表于 2022-1-10 15:50
+
+好久没和兰太郎玩了，能不能整个什么游戏联动一下
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动机其实是不喜欢单人歌回，自爆炸掉了直播
+
+*****
+
+####  clvan_  
+##### 7500#       发表于 2022-1-10 15:51
+
+y1s1，你麻主要可能也被俯冲下分影响到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
