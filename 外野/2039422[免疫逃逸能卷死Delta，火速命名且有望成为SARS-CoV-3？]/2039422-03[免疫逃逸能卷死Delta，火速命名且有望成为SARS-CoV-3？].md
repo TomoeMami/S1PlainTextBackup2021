@@ -4066,3 +4066,94 @@ who也说，解决了贫困问题，就解决了新冠。
 
 Roine补充说："大约20%的人看到长期的认知障碍，"他警告说，在感染COVID-19后，阿尔茨海默氏症或帕金森氏症等神经系统疾病的发病率可能急剧上升。
 
+
+
+*****
+
+####  creymorgan  
+##### 3327#       发表于 2022-1-10 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235738&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 16:38</a>
+
+发达国家的政体决定了不能清零啊，按照西安的方法封锁，转天就上街游行了。
+
+目前疫苗的瓶颈在于缺医护， ...</blockquote>
+我说的可是疫情衰退阶段，那时候Rt已经小于1了，这可不需要封锁隔离才能清零。
+
+医护不是种族，是技能。
+
+不愿打疫苗不是思想钢印，是可改变的观念。
+
+变化不容易，尤其是需要有可靠的疫苗获得预期才会去训练和宣传。
+
+*****
+
+####  vimisbesteditor  
+##### 3328#       发表于 2022-1-10 16:48
+
+ 本帖最后由 vimisbesteditor 于 2022-1-10 16:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235819&amp;ptid=2039422" target="_blank">creymorgan 发表于 2022-1-10 16:43</a>
+我说的可是疫情衰退阶段，那时候Rt已经小于1了，这可不需要封锁隔离才能清零。
+
+医护不是种族，是技能。</blockquote>
+如果rt小于1了，放着不管不就清零了？
+
+如果让rt在1左右，那才需要封锁或者更严格的措施，让rt低于1。
+
+而且，民众不打疫苗的原因中，几乎不存在疫苗能不能在几个月后得到充足供应的问题。不打疫苗是对疫苗安全性，有效性的不信任，和接种需要的时间和精力很多。
+
+美国疫苗多吧，依然有30%左右的人死也不打。
+
+如果我饿的吃不上饭，我会走路几公里去打疫苗么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Kanoya  
+##### 3329#       发表于 2022-1-10 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235740&amp;ptid=2039422" target="_blank">pushare 发表于 2022-1-10 16:38</a>
+芬兰家庭事务和社会服务部长Krista Kiuru上周五说，"长期COVID"，即COVID-19的症状在初次感染后持续数月， ...</blockquote>
+long covid实际上就是没有痊愈，蹲神经系统潜伏了
+
+要看以后怎么治愈后遗症了，毕竟有后遗症本质上就是体内没清零
+
+*****
+
+####  crysannia  
+##### 3330#       发表于 2022-1-10 16:53
+
+ 本帖最后由 crysannia 于 2022-1-10 16:54 编辑 
+
+<strong>接受鸡尾酒疗法的艾滋病患传染其他人的概率仍然有8%左右！！！外行人不要信口开河！你这样反串很有可能误导其他人对艾滋病的防范意识！</strong>
+
+
+
+*****
+
+####  vimisbesteditor  
+##### 3331#       发表于 2022-1-10 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235960&amp;ptid=2039422" target="_blank">crysannia 发表于 2022-1-10 16:53</a>
+接受鸡尾酒疗法的艾滋病患传染其他人的概率任然有8%左右！！！外行人不要信口开河！你这样反串很有可能误导 ...</blockquote>
+多谢指正，我改一下
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  dllplayer  
+##### 3332#       发表于 2022-1-10 17:00
+
+<blockquote>引用第3324楼vimisbesteditor于2022-01-10 16:38发表的  :
+
+引用:creymorgan 发表于 2022-1-10 16:36低下的接种比例和日增接种人数摆着。......</blockquote>
+@vimisbesteditor
+
+可拉倒吧
+这位亲 这里推荐麦克阿瑟封锁法呢
+绝不会**的 非常安全又有效
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+

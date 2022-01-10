@@ -7246,3 +7246,17 @@ T字就是舞台中心，用T来做标记。
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  三葉Mitsuha  
+##### 559#       发表于 2022-1-10 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233150&amp;ptid=2043629" target="_blank">牙狼GARO 发表于 2022-1-10 13:34</a>
+
+一直忍着没看，周六南京线下大屏幕直接看了
+
+感想就是：李安.jpg</blockquote>
+哎，能把处女体验留给影院那真是幸福的事情啊。本地想看结果在预定日期前的两周爆出疫情，年前观影无望了……
+

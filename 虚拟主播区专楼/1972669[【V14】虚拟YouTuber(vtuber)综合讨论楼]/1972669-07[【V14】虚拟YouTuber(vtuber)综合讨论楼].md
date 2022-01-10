@@ -11350,3 +11350,16 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 三周年也要玩节奏天国恰尸体<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 9965#       发表于 2022-1-10 16:46
+
+ 本帖最后由 holoan 于 2022-1-10 16:47 编辑 
+
+当初norio信誓旦旦说不靠普的人不认识的人绝对不招现在怎么还能掉坑里的呢
+
+今天晚上还联动live2d原画师妈 这以后很尴尬啊
+
