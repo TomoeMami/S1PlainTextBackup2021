@@ -10474,3 +10474,12 @@ Faker这钟临时充数的
 泳装伽摩</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽到拉满 图鉴+1 然后不就不存在了!
 
+
+
+*****
+
+####  UNISONIA  
+##### 86517#       发表于 2022-1-10 14:29
+
+Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级自充就有102充能），这可能是她被做成单体的原因
+

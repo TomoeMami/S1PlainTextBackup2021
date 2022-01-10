@@ -12718,3 +12718,35 @@ syl 这人都这么困了还是赶紧跑了为好
 
 这LOL能突破10小时吗，太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 7465#       发表于 2022-1-10 14:28
+
+现在是什么段位了
+
+*****
+
+####  时间在我手中  
+##### 7466#       发表于 2022-1-10 14:36
+
+现在好像是白银一
+
+*****
+
+####  暴走的包子  
+##### 7467#       发表于 2022-1-10 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">saya这解约公告有点猛的，别到时说是麻麻的大手
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  时间在我手中  
+##### 7468#       发表于 2022-1-10 14:40
+
+谔谔，为什么猛。看起来不就是直接复活直播了吗
+

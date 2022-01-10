@@ -3211,3 +3211,48 @@ Rt可能影响工作量但不影响基本方法。
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3264#       发表于 2022-1-10 14:24
+
+目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了3亿人。如果这些人做不到清零的话，该来的变种还是回来。
+
+who也说，解决了贫困问题，就解决了新冠。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  creymorgan  
+##### 3265#       发表于 2022-1-10 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233748&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 14:24</a>
+
+目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了3亿人。如果这些人做不到 ...</blockquote>
+不完全清零自然早晚出现，但是这早晚是多早是多晚？
+
+人类还没有失去文明，技术还在进步，更好的疫苗，更好的药物都会出现，最终，我们有信心让这个疾病变得无足轻重。
+
+但是，之前要死多少人？要残多少人？
+
+因此，新变种晚一点是一点，大流行少一次是一次。
+
+*****
+
+####  creymorgan  
+##### 3266#       发表于 2022-1-10 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54233748&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 14:24</a>
+
+目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了3亿人。如果这些人做不到 ...</blockquote>
+把贫困和疫情捆绑并论
+
+说着去东海求水的话
+
+那么请问
+
+疫苗帝国主义是不是又恶化疫情？又加剧贫困？
+
