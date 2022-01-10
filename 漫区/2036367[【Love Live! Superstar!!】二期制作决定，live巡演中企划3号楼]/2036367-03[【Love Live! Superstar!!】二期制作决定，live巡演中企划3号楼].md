@@ -12079,3 +12079,41 @@ pay宝没睡鲤鱼睡了<img src="https://static.saraba1st.com/image/smiley/face
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  优妮可  
+##### 4049#       发表于 2022-1-10 07:52
+
+完蛋，这视频开头就把名字爆了出来，等有人搬到b站又是新一轮的名字跳脸和开盒是吧。你们经常看的有办法私聊他改一下吗？
+
+*****
+
+####  secretgarnet  
+##### 4050#       发表于 2022-1-10 07:54
+
+才看到切片，弹唱版小星星真好啊！！能感觉到sayurin的吉他还不太熟练但我实在太吃这一套了，不知道以后会不会专门再录一版acoustic ver.出碟
+
+鲤鱼姐的生日感想+最后的五人departure杀伤力太强，在异国他乡拼搏一年多总算有了不错的收尾（虽然还剩最后一场），下一站一定会向更光明的明天启程的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 4051#       发表于 2022-1-10 07:56
+
+上推不是很方便，有人能把经纪人的长文搬过来么
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  iuhehc  
+##### 4052#       发表于 2022-1-10 08:04
+
+在想她们过几天会不会搞生放，还是等追加后再一起，我想听点大的，来点大的吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
