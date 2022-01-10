@@ -11322,3 +11322,20 @@ mysta还要发个推说自己rta同接是吧 反正我是取关了 主播自己n
 
 （以及待机间果不其然展开了对真仲间神作的批判<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 9963#       发表于 2022-1-10 15:11
+
+en男就是什么都不顾忌啊，首播谈同接的都有好几个吧，庆祝订阅也挺积极的，反正看起来单纯是高兴万棒而不是很在意数字，我觉得还好吧
+
+syl
+
+所以这位到底是违反了啥被开的，没料吗？
+
+zsyl
+
+mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面了，这就是阳光EN人吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

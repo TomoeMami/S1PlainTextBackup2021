@@ -3317,3 +3317,64 @@ who也说，解决了贫困问题，就解决了新冠。
 目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，新冠到现在感染了3亿人。如果这些人做不到 ...</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，艾滋病到现在感染了上千万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，梅毒每年感染了上千万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，伤寒每年感染了几十万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，霍乱每年感染了几十万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote><blockquote>目前全世界有8亿人没有电力，7亿人没有安全的自来水。相比之下，结核病每年害死了上百万人。如果这些人做不到清零的话，该来的变种还是回来。</blockquote>
 好像把所有传染病套上都不违和呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3272#       发表于 2022-1-10 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234144&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 14:51</a>
+好像把所有传染病套上都不违和呢</blockquote>
+这些其实都是穷病。。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  ganeid  
+##### 3273#       发表于 2022-1-10 15:12
+
+ 本帖最后由 ganeid 于 2022-1-10 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234308&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:04</a>
+
+这些其实都是穷病。。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+原来传染病都是穷病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也是，发达国家的中产觉得传染病都是穷人病很有道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yhaos  
+##### 3274#       发表于 2022-1-10 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234308&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 15:04</a>
+
+这些其实都是穷病。。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+想了想，美英日德都？穷？
+
+哦，这意思就是直接弃疗呗。
+
+这是塞了小号放大号的节奏…
+
+我提议坛主再赚个5块钱。
+
+*****
+
+####  vimisbesteditor  
+##### 3275#       发表于 2022-1-10 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54234418&amp;ptid=2039422" target="_blank">ganeid 发表于 2022-1-10 15:12</a>
+原来传染病都是穷病
+
+也是，发达国家的中产觉得传染病都是穷人病很有道理
+
+ ...</blockquote>
+你觉得天天面对霍乱的，感染艾滋的，面对肺结核的都是富裕国家咯？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
