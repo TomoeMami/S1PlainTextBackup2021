@@ -11686,3 +11686,100 @@ wbgn都tm肉体厨是吧，我们gn对着套皮mega都能导到虚脱，是否�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">草
 
+
+
+*****
+
+####  IDIDIDID  
+##### 10000#       发表于 2022-1-11 19:01
+
+尚不如韦天
+
+*****
+
+####  purdre  
+##### 10001#       发表于 2022-1-11 19:03
+
+V中之人不就这样么，不如说看人因为中之人破防的粉比看V本人好玩。
+
+不过葛皇中之人早就暴露了对现在也没影响，被曝交往之后事业更是节节高升，所以谁知道中之人颜粉这是不是限制主播的最后一条锁链，说不定主播豁出去之后反而人气更高了呢
+
+*****
+
+####  OldGlory  
+##### 10002#       发表于 2022-1-11 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54249229&amp;ptid=1972669" target="_blank">nian1538 发表于 2022-1-11 17:18</a>
+两边的EN都一堆东南亚人
+
+替ID不值</blockquote>
+holoen哪有一堆东南亚
+
+*****
+
+####  我不是很好  
+##### 10003#       发表于 2022-1-11 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250212&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-1-11 18:45</a>
+EN还有谁是东南亚人啊</blockquote>
+Millie Parfait。好像是菲律宾人
+
+*****
+
+####  黑漆漆的漆漆  
+##### 10004#       发表于 2022-1-11 19:11
+
+说到中之人，如果010是个丑逼，现在怕是已经被黑得毕业了吧
+
+*****
+
+####  alcoholic1000  
+##### 10005#       发表于 2022-1-11 19:12
+
+ 本帖最后由 alcoholic1000 于 2022-1-11 19:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250212&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-1-11 18:45</a>
+
+EN还有谁是东南亚人啊</blockquote>
+虹EN亚裔：
+[Finana Ryugu](https://kiwifarms.net/threads/virtual-youtubers.69525/page-1971#post-9529178)
+[Rosemi Lovelock](https://s2.loli.net/2022/01/11/rLnYIMb6ms9y3Xe.png)
+
+Selen Tatsuki
+
+Petra Gurin
+
+Enna Alouette
+
+Millie Parfait（菲）
+
+Luca Kaneshiro（菲）
+
+Mysta Rias（菲）
+
+有华裔也有日裔，更多是菲裔
+
+（PS.以及存疑的本社一哥二哥）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我不是很好| + 1|物美价廉|
+
+查看全部评分
+
+*****
+
+####  我不是很好  
+##### 10006#       发表于 2022-1-11 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54249229&amp;ptid=1972669" target="_blank">nian1538 发表于 2022-1-11 17:18</a>
+两边的EN都一堆东南亚人
+
+替ID不值</blockquote>
+holoEN哪有一堆东南亚，倒是韩裔有点太多了
+

@@ -12850,3 +12850,23 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 公开录音是不是没线上？
 
+
+
+*****
+
+####  梶原ひかり  
+##### 4112#       发表于 2022-1-11 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250381&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-11 18:59</a>
+公开录音是不是没线上？</blockquote>
+有的..虹咲 水团都有
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  starring  
+##### 4113#       发表于 2022-1-11 19:16
+
+29号一整天都有公开活动，晚上的公开生放送也会有线上直播吗？
+

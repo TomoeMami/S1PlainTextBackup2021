@@ -5425,3 +5425,14 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 为什么我冰火能做成这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人民de救星  
+##### 5061#       发表于 2022-1-11 19:24
+
+思宝的新投稿唱的真不错，我要化身为原狠狠的引。<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
