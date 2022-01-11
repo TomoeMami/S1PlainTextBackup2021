@@ -11643,3 +11643,46 @@ king那边是そにろじ自称フィリピン人のハーフ
 [https://old.reddit.com/r/Kirbado ... ppreciation_thread/](https://old.reddit.com/r/Kirbado/comments/edh711/kirbado_cosplay_stream_appreciation_thread/)
 <img src="https://p.sda1.dev/4/d73a3cdabd7fd33aec19d13f828b80b1/6b2t45cx7v541.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 9995#       发表于 2022-1-11 18:45
+
+<blockquote>nian1538 发表于 2022-1-11 17:18
+两边的EN都一堆东南亚人
+
+替ID不值</blockquote>
+EN还有谁是东南亚人啊
+
+*****
+
+####  mmbk  
+##### 9996#       发表于 2022-1-11 18:46
+
+wbgn都tm肉体厨是吧，我们gn对着套皮mega都能导到虚脱，是否该反思反思二次元滤镜厚度<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暴走的包子  
+##### 9997#       发表于 2022-1-11 18:48
+
+第一张不是还凑合么，标准东南亚肥肥
+
+—— 來自 samsung SM-F9260, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  逸yi  
+##### 9998#       发表于 2022-1-11 18:49
+
+什么zxy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 9999#       发表于 2022-1-11 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">草
+

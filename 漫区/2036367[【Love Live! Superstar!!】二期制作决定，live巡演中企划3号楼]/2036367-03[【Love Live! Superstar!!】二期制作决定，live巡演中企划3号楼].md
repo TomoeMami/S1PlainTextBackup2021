@@ -12829,3 +12829,24 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 鱼：小老妹你说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 4110#       发表于 2022-1-11 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54241670&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-1-11 04:12</a>
+
+话说鲤鱼配音还是很有天赋的，一个没考过级的自学日语的中国人第一次配音竟然不棒读简直不可思议，要知道很 ...</blockquote>
+不算第一次配音，只能说是第一次主役。之前在别的作品里配过路人角色
+
+
+
+*****
+
+####  lj205  
+##### 4111#       发表于 2022-1-11 18:59
+
+公开录音是不是没线上？
+

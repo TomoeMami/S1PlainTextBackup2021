@@ -7451,3 +7451,44 @@ b站要全套入正？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  蓝川澈  
+##### 575#       发表于 2022-1-11 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54228463&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-10 01:14</a>
+
+Wide screen baroque  狂野银屏巴洛克是科幻小说专用术语
+
+指拥有印象深刻人物、暴力、阴谋、夸张的背景或 ...</blockquote>
+科幻专用术语来源请求，而且这个wi（l）d的括号怎么解释。
+
+我找到的考据是这么说的， <blockquote>L不是position zero的T的一半吗。
+
+华恋和光还只摘下了一半的星星。
+
+一直期待的星星是两个人的星光。
+
+小小的星星，小小的幸福。
+
+因此，在L上加上（），是强调未完成的position zero吗。</blockquote>
+来源：[https://yurilabo.net/revuestarlight-rororo-review5/](https://yurilabo.net/revuestarlight-rororo-review5/)
+
+*****
+
+####  MASKA-1  
+##### 576#       发表于 2022-1-11 18:50
+
+wi(l)d 应该是既要“狂野”又要“宽屏”吧。同时强调内容的风格和采用电影画幅。
+
+*****
+
+####  堆雪若叶  
+##### 577#         楼主| 发表于 2022-1-11 18:57
+
+ 本帖最后由 堆雪若叶 于 2022-1-11 19:00 编辑 
+
+古川新作也用了这个wi(l)d screen的写法，只从少歌内部角度去考虑大概不太合适，应该就是作品风格的注解
+
