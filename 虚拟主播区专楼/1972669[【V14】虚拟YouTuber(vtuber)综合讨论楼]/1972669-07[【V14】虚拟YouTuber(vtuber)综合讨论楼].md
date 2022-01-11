@@ -11529,3 +11529,26 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 替ID不值
 
+
+
+*****
+
+####  dybang  
+##### 9983#       发表于 2022-1-11 17:22
+
+我记得King也是菲律宾混血？是不是有语言天赋的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说混血的才会没事闲的玩套皮主播
+
+*****
+
+####  ihihihihi  
+##### 9984#       发表于 2022-1-11 17:23
+
+我怎么记得叶师是菲律宾混血
+
+*****
+
+####  渡鸦骑士  
+##### 9985#       发表于 2022-1-11 17:27
+
+菲律宾混血这么多的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

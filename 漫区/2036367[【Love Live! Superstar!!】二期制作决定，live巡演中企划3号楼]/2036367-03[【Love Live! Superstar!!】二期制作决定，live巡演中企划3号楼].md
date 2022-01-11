@@ -12818,3 +12818,14 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202201/11/132854qzjc8yhmg5z17f1v.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 4109#       发表于 2022-1-11 17:35
+
+PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+鱼：小老妹你说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
