@@ -4789,3 +4789,37 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3372#       发表于 2022-1-12 01:26
+
+【#奥密克戎和德尔塔哪个更危险#】#奥密克戎不只会感染上呼吸道# @庄时利和 表示：“相对来说，奥密克戎有三个特点，高传染性、高免疫逃逸能力和相对低毒性。相对低毒性指的是它在下呼吸道，也就是肺部的繁殖速度，还有它与肺细胞结合能力会比之前都要弱一些，但不代表它只会感染上呼吸道。”奥密克戎的传染性比德尔塔更高。#天津全员核酸已检出77例阳性# #蓝V视界# http://t.cn/A6JGN3Dx
+
+不愧是三流媒体
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  烦死了  
+##### 3373#       发表于 2022-1-12 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54253365&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-11 23:51</a>
+住院14万 ICU 2万3了</blockquote>
+NPR的数据住院14万5千了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+The omicron-driven surge has sent COVID-19 hospitalizations skyrocketing across the U.S., reaching a new pandemic high this week with 145,982 patients hospitalized. 
+
+*****
+
+####  jxwats1  
+##### 3374#       发表于 2022-1-12 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54253365&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-11 23:51</a>
+
+住院14万 ICU 2万3了</blockquote>
+形式还不严峻，上一波 Delta 造成的 ICU 人数到过2.6万。mild！
+

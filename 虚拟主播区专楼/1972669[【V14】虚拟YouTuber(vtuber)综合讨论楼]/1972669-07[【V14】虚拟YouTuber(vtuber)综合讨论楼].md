@@ -12118,3 +12118,23 @@ V圈ace一定要是矮子吗（）
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  fastary  
+##### 10033#       发表于 2022-1-12 01:21
+
+管人隔空喊话bot是我第一次知道原来这么多同人女管人痴都是混乱杂食一体机还喜欢泥塑和圆角梗，比上粉红色匿名论坛看同人女撕逼还要有种窥探深渊的猎奇感……以及眼睁睁看着她们互相喂饭我却吃不下一口着实有点慕了()
+
+*****
+
+####  IDIDIDID  
+##### 10034#       发表于 2022-1-12 01:33
+
+ 本帖最后由 IDIDIDID 于 2022-1-12 01:37 编辑 
+
+微博搜了一下👆这个bot，妈妈虹信好吓人我害怕<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+当头最新一条就是月撇被群P<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
