@@ -5463,3 +5463,15 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 文静那么多男香一定都是小男友留下的吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5065#       发表于 2022-1-12 00:31
+
+过两天搬家了
+希望是新的开始吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

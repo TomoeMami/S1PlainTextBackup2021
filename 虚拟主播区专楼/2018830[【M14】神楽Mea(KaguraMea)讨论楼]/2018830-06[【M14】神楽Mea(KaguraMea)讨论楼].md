@@ -1393,3 +1393,12 @@ F是多大啊
 
 这波还行
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7667#       发表于 2022-1-12 00:33
+
+阵容不行，前期那么炸还能打回来点纯粹对面给机会了，mea你看这么厉害的破败王不心动吗……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -12033,3 +12033,14 @@ vox组翻译的和reimu相关互动下面，到是只有说酸了的和kld的呢
 
 如果都是上全身动捕的话，用vr chat跟现在普遍的3D有什么不同吗
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10027#       发表于 2022-1-12 00:32
+
+硬要说的话，渲染吧……
+另外动捕条件也是……
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
