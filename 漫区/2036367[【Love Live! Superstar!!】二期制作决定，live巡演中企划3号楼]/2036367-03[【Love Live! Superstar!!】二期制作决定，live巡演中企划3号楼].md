@@ -12870,3 +12870,14 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 29号一整天都有公开活动，晚上的公开生放送也会有线上直播吗？
 
+
+
+*****
+
+####  stygian  
+##### 4114#       发表于 2022-1-11 20:27
+
+说是公开录音其实就是talk show的fan meeting，卖线上票。晚上都叫生放送了不直播咋放送
+
+倒是会场放在三丽鸥公园属实有点meh。。。
+
