@@ -11783,3 +11783,41 @@ Mysta Rias（菲）
 替ID不值</blockquote>
 holoEN哪有一堆东南亚，倒是韩裔有点太多了
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10007#       发表于 2022-1-11 19:21
+
+二哥还有个根据是他的妈妈说英语，也许大概可能真的是混血<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">所以我也不懂他的英语为什么如此蹩脚
+
+*****
+
+####  fastary  
+##### 10008#       发表于 2022-1-11 19:22
+
+ 本帖最后由 fastary 于 2022-1-11 19:27 编辑 
+
+luca怎么也菲裔了，我塔照都还没看到呢syl
+
+混血但是日本长大的人英语不好太正常了
+
+说到混血我去查了下ymen，澳日混血美国出生日本长大包括长相都还挺en的，英语还没我好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 10009#       发表于 2022-1-11 19:33
+
+仔细想想说大马华人和澳大利亚亚裔混血是东南亚人是有点太牵强了
+
+*****
+
+####  poipanchao  
+##### 10010#       发表于 2022-1-11 19:39
+
+说起来king混圈这么早这么乱
+
+怎么照片到现在都没有
+
