@@ -4662,3 +4662,20 @@ https://weibo.com/1804774727/L9WHhApvx
 再封锁 ...</blockquote>
 现在他们是没有封锁了，那些原先受封锁困扰的服务行业从业者的困扰解除了吗，饭店可以开放堂食了，但是有客人吗？不开放堂食做外卖。和开放堂食没有客人，哪个更赔钱？
 
+
+
+*****
+
+####  烦死了  
+##### 3365#       发表于 2022-1-11 10:08
+
+<img src="https://img.saraba1st.com/forum/202201/11/100828xfmsliulsss19zha.jpg" referrerpolicy="no-referrer">
+
+<strong>1641866782(1).jpg</strong> (42.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 10:08 上传
+
+稳中向好，稳中向好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
