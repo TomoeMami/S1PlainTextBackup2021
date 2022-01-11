@@ -11959,3 +11959,32 @@ ISEGYE IDOL在DC讨论度非常高，推上也有很多FA创作（甚至12月30�
 
 这个报道之前就看过 但是过于之前大家都不了解这个了 我估计可能受众和现在的管人观众非常不一样 包括看了下油管评论区主要都是韩语少部分日语。这歌也是完全韩语的，感觉就是，真 虚拟韩团，和现在的V圈没关系。
 
+
+
+*****
+
+####  poipanchao  
+##### 10019#       发表于 2022-1-11 22:04
+
+快速云了一下，感觉直播形式还是像正常管人，但是整体风格和导向来看还真有点韩国asoul的味道
+
+*****
+
+####  OldGlory  
+##### 10020#       发表于 2022-1-11 22:20
+
+这歌运镜完爆asoul了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  oceanneo  
+##### 10021#       发表于 2022-1-11 22:21
+
+其实倒没感觉nen女粉切出来的男生不爱看，而且最近切跟123期联动的也多了
+
+syl
+
+vox的女粉是不是很敌对reimu<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像之前看评论打过一次
+

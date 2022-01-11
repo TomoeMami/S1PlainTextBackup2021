@@ -1021,3 +1021,83 @@ syl  【请不要发一些尖锐的言论】<img src="https://static.saraba1st
 
 图奇去喽
 
+
+
+*****
+
+####  路人庚  
+##### 7619#       发表于 2022-1-11 22:06
+
+ 本帖最后由 路人庚 于 2022-1-11 22:08 编辑 
+
+今天经典曲目还蛮多，挺不错的
+
+所以一会在哪开台？
+
+syl，好吧，自己开台了，联动走起
+
+*****
+
+####  T_Hb  
+##### 7620#       发表于 2022-1-11 22:07
+
+开了，果然是不熟的人，尴尬笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  时间在我手中  
+##### 7621#       发表于 2022-1-11 22:07
+
+今晚对我来说异常的爽，正好唱着世界第一的公主殿下过csgo ze的冰龙<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 7622#       发表于 2022-1-11 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 7623#       发表于 2022-1-11 22:11
+
+玩玩就熟了，你麻自来熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7624#       发表于 2022-1-11 22:14
+
+游戏玩玩就熟了
+
+*****
+
+####  T_Hb  
+##### 7625#       发表于 2022-1-11 22:15
+
+能不能看到互喷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 7626#       发表于 2022-1-11 22:18
+
+是不洗澡的同伴
+
+*****
+
+####  yywzjsw  
+##### 7627#       发表于 2022-1-11 22:20
+
+这队友绝对好人
+
+*****
+
+####  古战场亡魂  
+##### 7628#       发表于 2022-1-11 22:21
+
+这狼人水平明显高出一个等级……
+
