@@ -17184,3 +17184,14 @@ syl：Gura发了小粥Discord好友申请，说很喜欢小粥前辈，觉得人
 
 姑且可以算是拔牙发的烧
 
+
+
+*****
+
+####  面具13  
+##### 7417#       发表于 2022-1-11 21:51
+
+说是不烧了。
+
+twitter不给认证标志。很懂嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不直播游戏的怎么可能是那个gamer maid，绝对是别人哒
+
