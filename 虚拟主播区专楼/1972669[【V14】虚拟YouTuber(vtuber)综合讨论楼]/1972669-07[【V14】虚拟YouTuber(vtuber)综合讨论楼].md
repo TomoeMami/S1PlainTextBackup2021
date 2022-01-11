@@ -12044,3 +12044,66 @@ vox组翻译的和reimu相关互动下面，到是只有说酸了的和kld的呢
 另外动捕条件也是……
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 10028#       发表于 2022-1-12 00:41
+
+vr chat一般都是家用3d，精度不一样
+
+*****
+
+####  poipanchao  
+##### 10029#       发表于 2022-1-12 00:49
+
+主要是建模建的不错，很有好感
+
+V圈ace一定要是矮子吗（）
+
+*****
+
+####  free  
+##### 10030#       发表于 2022-1-12 00:54
+
+2楼那一堆里边有不少都是vrchat里边弄的，你们拖下来看看，一样可以高精度动捕的，最近一场比较好的应该是SANRIO V FES这个
+
+*****
+
+####  alcoholic1000  
+##### 10031#       发表于 2022-1-12 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54253598&amp;ptid=1972669" target="_blank">oceanneo 发表于 2022-1-12 00:18</a>
+
+如果都是上全身动捕的话，用vr chat跟现在普遍的3D有什么不同吗</blockquote>
+虹杏等V会社用的都是VICON和OptiTrack这种光学式捕捉，VRChat更多是使用Valve Index和HTC Vive这种复合式
+
+<img src="https://img.saraba1st.com/forum/202201/12/004512g2ve8x3tf22e2mbv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Vantage 5.jpeg</strong> (43.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-12 00:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/12/005321iasfqbgq731a2acc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>VICON」を導入いたしました。.jpeg</strong> (67.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-12 00:53 上传
+
+（后面的摄像头就是Vantage 5和Vero 1.3X）光学式相较惯性式更精确也更昂贵，这两种都是业界主流。
+
+下图是VR常用设备，完全属于个人设备<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/12/005112zgdnddy4na4d3n2q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4Experience Valve Index vs Vive Pro.jpeg</strong> (41.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-12 00:51 上传
+

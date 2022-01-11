@@ -4765,3 +4765,16 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2
 
  住院14万 ICU 2万3了
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3370#       发表于 2022-1-12 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54242644&amp;ptid=2039422" target="_blank">罗莉控 发表于 2022-1-11 09:11</a>
+现在他们是没有封锁了，那些原先受封锁困扰的服务行业从业者的困扰解除了吗，饭店可以开放堂食了，但是有 ...</blockquote>
+饭店爆满。。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
