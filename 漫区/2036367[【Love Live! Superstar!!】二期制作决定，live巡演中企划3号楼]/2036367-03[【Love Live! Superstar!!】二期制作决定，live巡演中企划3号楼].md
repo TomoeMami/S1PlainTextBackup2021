@@ -12672,3 +12672,24 @@ JUVENILE 写了5首？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 4096#       发表于 2022-1-11 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54241894&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-11 07:24</a>
+
+说不定是看了挺久的动画这个经验帮了她w
+
+—— 来自 S1Fun</blockquote>
+你说的轻松，不是母语的前提下还要流畅说出来同时注意演技，让你念中文配音你都未必能做到
+
+*****
+
+####  cybernetics31  
+##### 4097#       发表于 2022-1-11 09:02
+
+所以挺希望她cv 歌手两条路都走走<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在就只是烂铁歌手一条道
+

@@ -4637,3 +4637,14 @@ https://weibo.com/1804774727/L9WHhApvx
 
 感觉根打了假的针一样
 
+
+
+*****
+
+####  jxwats1  
+##### 3363#       发表于 2022-1-11 08:55
+
+[nyt](https://www.nytimes.com/live/2022/01/10/world/omicron-covid-testing-vaccines/us-hospitalizations-have-surpassed-last-winters-peak): 美国周日的新增住院数超过了去年冬天峰值。
+
+但没关系。第一，这其中有不少是“test positive for the virus incidentally”，本身是因为别的原因住院的；第二，MILD
+
