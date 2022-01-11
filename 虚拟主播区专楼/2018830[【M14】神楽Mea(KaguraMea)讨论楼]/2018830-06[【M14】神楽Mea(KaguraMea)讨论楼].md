@@ -701,3 +701,45 @@ space感觉完全挤占了tc的空间，以前还说为了提高工作效率不�
 
 你咩姐愿意自己动手去解那就让她自己解呗
 
+
+
+*****
+
+####  秋游刃  
+##### 7581#       发表于 2022-1-11 14:47
+
+没推特号，今天的推限看不了，有没有好兄弟录了？发生什么事儿了？
+
+*****
+
+####  时间在我手中  
+##### 7582#       发表于 2022-1-11 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54247283&amp;ptid=2018830" target="_blank">秋游刃 发表于 2022-1-11 14:47</a>
+
+没推特号，今天的推限看不了，有没有好兄弟录了？发生什么事儿了？</blockquote>
+你要不加我扣扣得了，我方便私发你，不是很想公开在论坛这边
+
+*****
+
+####  T_Hb  
+##### 7583#       发表于 2022-1-11 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典复刻再复刻，还有可能未来再再次复刻
+
+*****
+
+####  时间在我手中  
+##### 7584#       发表于 2022-1-11 14:51
+
+ 本帖最后由 时间在我手中 于 2022-1-11 14:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54247236&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-1-11 14:42</a>
+
+所以房管不能直接塞的理由在哪？上蹿下跳这么久了也该塞了罢
+
+你咩姐愿意自己动手去解那就让她自己解呗 ...</blockquote>
+
+房管的话，记者这货不都一万年没出现了，而且就算是以前这人不是一般不ban本土那边的吗，除非是加藤纯一那种spam人一堆。
+
+编辑了一些无聊的话，随便了
+
