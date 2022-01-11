@@ -4823,3 +4823,35 @@ The omicron-driven surge has sent COVID-19 hospitalizations skyrocketing across 
 住院14万 ICU 2万3了</blockquote>
 形式还不严峻，上一波 Delta 造成的 ICU 人数到过2.6万。mild！
 
+
+
+*****
+
+####  烦死了  
+##### 3375#       发表于 2022-1-12 03:10
+
+在南非报告欧美克戎之前 加拿大废水中就检出了mild 病毒
+
+Omicron was in Nova Scotia wastewater before it was identified in South Africa
+
+[https://nationalpost.com/news/ca ... ied-in-south-africa](https://nationalpost.com/news/canada/omicron-was-in-nova-scotia-wastewater-before-it-was-identified-in-south-africa)
+
+*****
+
+####  不热爱讨论  
+##### 3376#       发表于 2022-1-12 03:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54242644&amp;ptid=2039422" target="_blank">罗莉控 发表于 2022-1-11 09:11</a>
+现在他们是没有封锁了，那些原先受封锁困扰的服务行业从业者的困扰解除了吗，饭店可以开放堂食了，但是有 ...</blockquote>
+有客人啊，要不然全都不当回事O咋能爆得这么凶。
+
+*****
+
+####  kelvinalis  
+##### 3377#       发表于 2022-1-12 04:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54241822&amp;ptid=2039422" target="_blank">圈量子 发表于 2022-1-11 06:31</a>
+
+我这booster打完没副作用，前两针也是活蹦乱跳的，这是体质问题吗</blockquote>
+差不多是这样的两极分化
+
