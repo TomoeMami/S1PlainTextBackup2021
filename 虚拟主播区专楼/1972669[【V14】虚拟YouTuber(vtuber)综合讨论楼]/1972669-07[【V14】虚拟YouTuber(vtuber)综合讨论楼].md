@@ -11821,3 +11821,28 @@ luca怎么也菲裔了，我塔照都还没看到呢syl
 
 怎么照片到现在都没有
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10011#       发表于 2022-1-11 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250697&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-11 19:22</a>
+
+luca怎么也菲裔了，我塔照都还没看到呢syl
+
+混血但是日本长大的人英语不好太正常了
+
+说到混血我去查了下ymen ...</blockquote>
+ymen是奥日混吧
+
+luca自我介绍讲Tagalog，人又是在土澳，应该没跑了
+
+*****
+
+####  OldGlory  
+##### 10012#       发表于 2022-1-11 19:50
+
+king只是没脸照而已
+
