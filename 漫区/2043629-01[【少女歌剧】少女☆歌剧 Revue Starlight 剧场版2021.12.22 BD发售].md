@@ -7492,3 +7492,19 @@ wi(l)d 应该是既要“狂野”又要“宽屏”吧。同时强调内容的�
 
 古川新作也用了这个wi(l)d screen的写法，只从少歌内部角度去考虑大概不太合适，应该就是作品风格的注解
 
+
+
+*****
+
+####  青龙圣者  
+##### 578#       发表于 2022-1-12 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250228&amp;ptid=2043629" target="_blank">蓝川澈 发表于 2022-1-11 18:45</a>
+
+科幻专用术语来源请求，而且这个wi（l）d的括号怎么解释。
+
+我找到的考据是这么说的，</blockquote>
+[https://en.wikipedia.org/wiki/Widescreen_baroque](https://en.wikipedia.org/wiki/Widescreen_baroque)
+
+因为原词是宽屏...
+

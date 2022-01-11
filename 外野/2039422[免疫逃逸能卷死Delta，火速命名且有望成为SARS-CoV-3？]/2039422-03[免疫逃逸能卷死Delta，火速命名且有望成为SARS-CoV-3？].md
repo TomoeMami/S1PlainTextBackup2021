@@ -4778,3 +4778,14 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3371#       发表于 2022-1-12 01:20
+
+【#张伯礼说中药对奥密克戎有效#】#张伯礼出席天津疫情防控发布会#表示，中药治疗对奥密克戎有效，将发挥更大的作用。基于前期治疗经验，中药对发热、咳嗽、咽痛等症状改善明显，转阴时间比较快，复阳的比较少，转重的比较少。在以往的中药治疗体现出来的好处，这次依然体现了出来，而且更加突出。 http://t.cn/A6JGKxBW<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
