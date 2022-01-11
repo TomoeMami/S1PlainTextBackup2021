@@ -11569,3 +11569,40 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 喷了，看v这么不虚拟为什么不去看量子少年呢😅
 
+
+
+*****
+
+####  ヒトニナル  
+##### 9988#       发表于 2022-1-11 18:02
+
+年轻人第一次冲塔，正常反应
+但实话实说，打开管厕突然一张搞怪照糊脸的确是有点震撼的
+
+*****
+
+####  hulaoda007  
+##### 9989#       发表于 2022-1-11 18:05
+
+-                                                                                                          
+
+直觉感觉到en没多少正经昂撒美国人，还以为自己错了...结果还是真的啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以来点美国原住民在enkr出道吗...？
+
+*****
+
+####  Suny08  
+##### 9990#       发表于 2022-1-11 18:14
+
+不要sea不要sea，虽然sea市场确实很大，但是猴子真不行，大马华人除外
+
+
+
+*****
+
+####  lor  
+##### 9991#       发表于 2022-1-11 18:15
+
+……看到塔照了，比看jp所有人塔照时候都冲击，能教点肥肥也可以自然rp美少年的方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
