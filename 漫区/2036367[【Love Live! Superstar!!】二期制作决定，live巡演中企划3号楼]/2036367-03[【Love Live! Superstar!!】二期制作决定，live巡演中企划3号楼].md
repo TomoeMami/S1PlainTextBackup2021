@@ -12716,3 +12716,45 @@ JUVENILE 写了5首？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  player3960  
+##### 4100#       发表于 2022-1-11 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54242895&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-11 09:28</a>
+
+还挺希望她能配点游戏
+
+—— 来自 S1Fun</blockquote>
+我也想过，国内那些二次元手游完全可以找她嘛，中配日配都可以让她一个人搞定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4101#       发表于 2022-1-11 09:48
+
+游戏也是专门配国人角色么
+
+*****
+
+####  cat1230  
+##### 4102#       发表于 2022-1-11 09:56
+
+<blockquote>引用第4100楼优妮可于2022-01-11 09:48发表的  :
+
+游戏也是专门配国人角色么</blockquote>
+@优妮可
+
+不用吧，鲤鱼日语没啥口音。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  优妮可  
+##### 4103#       发表于 2022-1-11 09:59
+
+倒不是口音问题，就是我个人的感觉哈，她配日文角色，不就跟日本人配中文角色一样了吗？就有种大概是槽点的感觉。
+
