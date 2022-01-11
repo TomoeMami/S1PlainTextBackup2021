@@ -4679,3 +4679,53 @@ https://weibo.com/1804774727/L9WHhApvx
 
 稳中向好，稳中向好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pushare  
+##### 3366#       发表于 2022-1-11 12:34
+
+德国卫生部长卡尔·劳特巴赫说:认为omicron会终结大流行的想法是幼稚的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Health Minister Karl Lauterbach has said it's "naive" to think the omicron variant will be the end of the pandemic. He warned that new COVID-19 mutations were still possible.
+
+German Health Minister Karl Lauterbach looks on during a press conference
+
+Lauterbach warned that trying to achieve herd immunity with omicron would cause 'big problems'
+
+German Health Minister Karl Lauterbach has insisted vaccine mandates are the only way out of the pandemic, as the omicron variant continues to spread in Germany and across the world.
+
+Speaking to the Sunday edition of German daily Welt, Lauterbach said gaining immunity through infection was a "dirty vaccination" and not the solution.
+
+"We still need a vaccine mandate. Otherwise, omicron is a dirty vaccination through the backdoor. Counting on everyone getting infected sooner or later and becoming immune ... would cause big problems," he said.
+
+The omicron version of the virus has so far appeared to be milder than previous variants. But the health minister warned that "many people would become seriously ill with often permanent damage," if omicron was left unchecked.
+
+"For our children it would be an absolutely irresponsible experiment," he said in a tweet earlier this week. 
+
+Fear of future variants
+
+The health minister also said it was "naive" to think that "omicron is the end of the pandemic."
+
+"Mandatory vaccination is also important for the future variants that may still develop," he told Welt. "Omicron infection does not necessarily make one immune to the next viral variant."
+
+Lauterbach also warned of the possibility that a new, more dangerous variant could start spreading.
+
+"Imagine for a second that the omicron variant were significantly more deadly. Then we would be in existential danger now," Lauterbach said. "No one can guarantee that a variant will not develop soon that is much more dangerous."
+
+When quizzed by Welt as to whether there would be sufficient vaccine stock, Lauterbach said procurement had been a key priority since the new government took office last month. 
+
+He said 25 million doses of the Moderna vaccine had been procured, which would be enough for 50 million booster shots in for the first quarter of 2022.
+
+Germany tightens COVID restrictions
+
+On Saturday, the country recorded 55,889 new coronavirus infections, according to the public health agency, the Robert Koch Institute. There were 268 deaths recorded within a 24-hour period, bringing the total number of reported deaths to 113,900. 
+
+Germany's rate of vaccination is lower than that in several European countries: 71.5% of the population is fully vaccinated and 40.9% have received a booster shot.
+
+Chancellor Olaf Scholz's government has set a vaccination goal of 80%, and hopes to administer 30 million booster shots by the end of January.
+
+On Friday, authorities across the country were told to tighten restrictions on bars and restaurants. Customers now need to provide a negative COVID test or proof of a booster shot to enter venues.
+
