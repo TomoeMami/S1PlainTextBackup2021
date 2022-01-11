@@ -11988,3 +11988,21 @@ syl
 
 vox的女粉是不是很敌对reimu<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像之前看评论打过一次
 
+
+
+*****
+
+####  free  
+##### 10022#       发表于 2022-1-11 22:29
+
+这MV的舞居然是MMD不是自己跳的，你们这样还能算韩团吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+不过整的挺有早期V圈那种又土鳖又赛博的味的<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nrnl  
+##### 10023#       发表于 2022-1-11 22:38
+
+vox组翻译的和reimu相关互动下面，到是只有说酸了的和kld的呢，令人感叹
+
