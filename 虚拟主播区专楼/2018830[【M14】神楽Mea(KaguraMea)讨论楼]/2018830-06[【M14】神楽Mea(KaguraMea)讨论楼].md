@@ -948,3 +948,35 @@ syl  【请不要发一些尖锐的言论】<img src="https://static.saraba1st
 
 。你点的厕所
 
+
+
+*****
+
+####  rosevalley46  
+##### 7610#       发表于 2022-1-11 20:44
+
+今天真不错
+
+*****
+
+####  clvan_  
+##### 7611#       发表于 2022-1-11 20:48
+
+小猫怒吼
+
+*****
+
+####  2111X  
+##### 7612#       发表于 2022-1-11 20:58
+
+这伴奏脑壳痛
+
+*****
+
+####  璃絵和花瑠  
+##### 7613#       发表于 2022-1-11 20:59
+
+刚点进去，还能再……点么<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
