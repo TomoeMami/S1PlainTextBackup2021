@@ -12006,3 +12006,12 @@ vox的女粉是不是很敌对reimu<img src="https://static.saraba1st.com/image/
 
 vox组翻译的和reimu相关互动下面，到是只有说酸了的和kld的呢，令人感叹
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10024#       发表于 2022-1-11 23:05
+
+光油管接近30万粉就爆杀不少日本这类歌舞女团了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3652,3 +3652,12 @@ mio占卜直接暗示要绫总今年继续开摆<img src="https://static.saraba1
 
 绫总的病能信的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stedckk  
+##### 13866#       发表于 2022-1-11 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">睡午觉睡到现在，然后开始玩宝可梦是吧，日夜颠倒了属于是。
+
