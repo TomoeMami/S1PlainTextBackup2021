@@ -12693,3 +12693,15 @@ JUVENILE 写了5首？
 
 所以挺希望她cv 歌手两条路都走走<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在就只是烂铁歌手一条道
 
+
+
+*****
+
+####  player3960  
+##### 4098#       发表于 2022-1-11 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54242526&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-01-11 09:02:18</a>
+所以挺希望她cv 歌手两条路都走走现在就只是烂铁歌手一条道</blockquote>她日语如果更进一步的话应该可以考虑cv路线，可以观察一下第二季还有没有菜宝来协助<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4648,3 +4648,17 @@ https://weibo.com/1804774727/L9WHhApvx
 
 但没关系。第一，这其中有不少是“test positive for the virus incidentally”，本身是因为别的原因住院的；第二，MILD
 
+
+
+*****
+
+####  罗莉控  
+##### 3364#       发表于 2022-1-11 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54236545&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-10 17:42</a>
+
+因为这俩在海岛上啊。。没有外源的输入，控制住飞机就好了。即使是这样delta的时候也抗不住了。
+
+再封锁 ...</blockquote>
+现在他们是没有封锁了，那些原先受封锁困扰的服务行业从业者的困扰解除了吗，饭店可以开放堂食了，但是有客人吗？不开放堂食做外卖。和开放堂食没有客人，哪个更赔钱？
+
