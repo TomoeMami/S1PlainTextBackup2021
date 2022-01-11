@@ -12015,3 +12015,21 @@ vox组翻译的和reimu相关互动下面，到是只有说酸了的和kld的呢
 
 光油管接近30万粉就爆杀不少日本这类歌舞女团了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  硫黄  
+##### 10025#       发表于 2022-1-12 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">好奇搜了下微博的虹男隔空喊话bot
+
+抽象程度和v8不相上下
+
+*****
+
+####  oceanneo  
+##### 10026#       发表于 2022-1-12 00:18
+
+如果都是上全身动捕的话，用vr chat跟现在普遍的3D有什么不同吗
+

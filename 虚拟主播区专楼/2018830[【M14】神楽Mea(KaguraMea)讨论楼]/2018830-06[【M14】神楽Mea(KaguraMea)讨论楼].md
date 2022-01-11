@@ -1357,3 +1357,39 @@ yysy 致命节奏改成这个样子 赵信 狼人在野区打起架来都不虚�
 
 对面天使和艾克肥啊 奥恩帮队友敲装备和抗伤就够了
 
+
+
+*****
+
+####  十九号大侠  
+##### 7663#       发表于 2022-1-12 00:12
+
+这波比大还行啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 7664#       发表于 2022-1-12 00:13
+
+F是多大啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 7665#       发表于 2022-1-12 00:21
+
+炸胡
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 7666#       发表于 2022-1-12 00:22
+
+这波还行
+
