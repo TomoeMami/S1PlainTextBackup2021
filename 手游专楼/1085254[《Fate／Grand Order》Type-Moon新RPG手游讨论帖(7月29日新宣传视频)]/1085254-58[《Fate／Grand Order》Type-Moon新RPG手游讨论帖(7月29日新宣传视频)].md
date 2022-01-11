@@ -10557,3 +10557,21 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 
 复刻让我刷点煌星吧，这几天刷腻了才出3个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86526#       发表于 2022-1-11 17:53
+
+隐村刷羁绊效率也太低了吧，一把才1000，活动开之前不能刷到6绊开被动技能了
+
+*****
+
+####  khxooo  
+##### 86527#       发表于 2022-1-11 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54249631&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-11 17:53</a>
+隐村刷羁绊效率也太低了吧，一把才1000，活动开之前不能刷到6绊开被动技能了 ...</blockquote>
+隐村不是好在只有两面吗？
+

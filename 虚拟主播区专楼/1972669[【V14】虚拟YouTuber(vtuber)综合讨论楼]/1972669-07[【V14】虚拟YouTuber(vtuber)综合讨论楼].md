@@ -11552,3 +11552,20 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 菲律宾混血这么多的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lkjh  
+##### 9986#       发表于 2022-1-11 17:51
+
+据观察EN男的粉还是乙女粉偏多，中之人这件事好像是有不少破防的，冲塔的成分也很怪。
+高强度/vt/的结果就是感觉混圈的所有流程都在加速，也是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IDIDIDID  
+##### 9987#       发表于 2022-1-11 17:56
+
+喷了，看v这么不虚拟为什么不去看量子少年呢😅
+
