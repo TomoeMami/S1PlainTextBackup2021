@@ -5554,3 +5554,34 @@ image.png
 
 主楼已更新乃琳Queen_Bot制作的乃琳2021年度直播报告
 
+
+
+*****
+
+####  sanlow666  
+##### 405#         楼主| 发表于 2022-1-11 13:06
+
+<strong>贝拉kira&amp;乃琳Queen:[【翻唱】乃琳&amp;贝拉 ❤ 海底 ❤【直播】](https://t.bilibili.com/614316117317032648)</strong> <blockquote>（运营代发）
+
+素材来自1月2日乃琳50w粉丝纪念直播
+
+歌曲：海底-一支榴莲
+
+翻唱：乃琳 贝拉
+
+软件：基于Unity自研
+
+场景：自制
+
+动作：动作捕捉
+
+<img src="https://img.saraba1st.com/forum/202201/11/130608eje5e5sge92z1dpe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 13:06 上传
+
+</blockquote>
+
