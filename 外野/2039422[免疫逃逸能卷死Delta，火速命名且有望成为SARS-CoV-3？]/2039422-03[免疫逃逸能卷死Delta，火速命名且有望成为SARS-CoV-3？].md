@@ -4729,3 +4729,14 @@ Chancellor Olaf Scholz's government has set a vaccination goal of 80%, and hopes
 
 On Friday, authorities across the country were told to tighten restrictions on bars and restaurants. Customers now need to provide a negative COVID test or proof of a booster shot to enter venues.
 
+
+
+*****
+
+####  genjimono  
+##### 3367#       发表于 2022-1-11 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54243471&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-01-11 10:08:45</a></blockquote>美国可就16万ICU床位啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
