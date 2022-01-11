@@ -11606,3 +11606,40 @@ mysta不仅会转cp向同人甚至直接拿cptag里的同人图当切片封面�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  fastary  
+##### 9992#       发表于 2022-1-11 18:30
+
+老实说我觉得管厕不嘲破防粉年一v反而截图表示接受的素人微博阴阳怪气她们不挑食这事还挺不地道的……
+
+*****
+
+####  alcoholic1000  
+##### 9993#       发表于 2022-1-11 18:37
+
+虹en一半枫叶一半（东南亚）亚裔
+
+mysta在twitch有颜出直播，比起21岁看起来更像31岁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+Syl，叶18年就有フィリピンハーフ的说法，其中ハーフ说法来自叶本人
+
+king那边是そにろじ自称フィリピン人のハーフ
+
+*****
+
+####  NBXX  
+##### 9994#       发表于 2022-1-11 18:37
+
+ 本帖最后由 NBXX 于 2022-1-11 18:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54248987&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-1-11 17:04</a>
+
+图来</blockquote>
+以下内容需要积分高于 1000 才可浏览
+[https://youtu.be/JvmS2z8z7P0](https://youtu.be/JvmS2z8z7P0)
+<img src="https://p.sda1.dev/4/7f7ed046d77f1041a29f3f6885683aaf/QQ截图20220111183752.png" referrerpolicy="no-referrer">
+[https://old.reddit.com/r/Kirbado ... ppreciation_thread/](https://old.reddit.com/r/Kirbado/comments/edh711/kirbado_cosplay_stream_appreciation_thread/)
+<img src="https://p.sda1.dev/4/d73a3cdabd7fd33aec19d13f828b80b1/6b2t45cx7v541.png" referrerpolicy="no-referrer">
+
