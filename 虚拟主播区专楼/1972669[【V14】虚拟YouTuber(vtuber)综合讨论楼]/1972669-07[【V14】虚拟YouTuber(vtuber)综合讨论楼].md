@@ -11872,3 +11872,81 @@ Re:Act这是要倒闭了？怎么我的Qu都把直播档删了摆烂<img src="ht
 
 Qu之前发了一篇告知
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10015#       发表于 2022-1-11 21:23
+
+ 本帖最后由 渡鸦骑士 于 2022-1-11 21:25 编辑 
+
+不行笑死我了，虹en的黑话从苏妲己的妲己变成了坦己，然后就直接快进到了狐坦，是真TMD的笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 10016#       发表于 2022-1-11 21:24
+
+[https://twitter.com/wixoss_TCG/status/1480890989636059137](https://twitter.com/wixoss_TCG/status/1480890989636059137)
+
+<img src="https://img.saraba1st.com/forum/202201/11/212326y4za5ldbaizkztn7.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (530.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202201/11/212437la6a1661txritix7.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (4.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 21:24 上传
+
+*****
+
+####  alcoholic1000  
+##### 10017#       发表于 2022-1-11 21:39
+
+Bsyl，有楼友了解이세계아이돌 (ISEGYE IDOL) 的吗？似乎是一个基于VRChat的来自韩国的异世界偶像组合：
+
+老板是油管主[우왁굳](https://www.youtube.com/user/woowakgood)（成员通过50天共四次试镜的公开选秀选出），活动频道[왁타버스 WAKTAVERSE](https://www.youtube.com/user/welshcorgimessi)
+
+<img src="https://img.saraba1st.com/forum/202201/11/202850fpj1phkmjh5cefjj.png" referrerpolicy="no-referrer">
+
+<strong>이세계아이돌 (ISEGYE IDOL) -2.png</strong> (102.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 20:28 上传
+
+成员包括：GOSEGU 고세구、아이네 INE、주르르 JURURU、릴파 lilpa、징버거 JINGBURGER、비챤 VIichan
+
+21年8月26日始动，登陆者合计63万，于12月19日举行了VR粉丝见面会，参与者100人
+
+<img src="https://img.saraba1st.com/forum/202201/11/212912dlq1tdm38x4mxdux.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>이세돌 팬미팅 (VR).jpeg</strong> (92.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202201/11/202850ispa4usbgg3x2d3u.png" referrerpolicy="no-referrer">
+
+<strong>이세계아이돌 (ISEGYE IDOL) -1.png</strong> (46.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-11 20:28 上传
+
+首支MV리와인드 (RE:WIND)于21年12月21日发布后迅速到达百万再生（现245w），并取得了Melon和Bugs一位的成绩
+[이세계아이돌 (ISEGYE IDOL) - 리와인드 (RE:WIND) Official MV](https://www.youtube.com/watch?v=fgSXAKsq-Vo)
+
+ISEGYE IDOL在DC讨论度非常高，推上也有很多FA创作（甚至12月30日被联合新闻TV作为元宇宙范例进行了报道，[相关链接](https://www.youtube.com/watch?v=zL4m6VSqMLU)）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">韩国 ○-○○○○?
+
