@@ -674,3 +674,19 @@ space感觉完全挤占了tc的空间，以前还说为了提高工作效率不�
 
 赌一个下次油管留档直播是恶介粉审判好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mr.shelter  
+##### 7578#       发表于 2022-1-11 14:15
+
+呜呜，麻麻，你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 7579#       发表于 2022-1-11 14:22
+
+嘿，还有人和我说以前mix以为medo这玩意儿是吊人男朋友觉得很好笑的事，只能说大概不那么搞笑了
+
