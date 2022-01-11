@@ -4855,3 +4855,14 @@ Omicron was in Nova Scotia wastewater before it was identified in South Africa
 我这booster打完没副作用，前两针也是活蹦乱跳的，这是体质问题吗</blockquote>
 差不多是这样的两极分化
 
+
+
+*****
+
+####  pushare  
+##### 3378#       发表于 2022-1-12 07:38
+
+U.S. CDC may recommend better masks against Omicron - Washington Post
+
+WHO warns against treating Covid-19 like flu 
+
