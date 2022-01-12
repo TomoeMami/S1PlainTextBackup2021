@@ -4931,3 +4931,51 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2<
 
 超大型培养皿，启动<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ak123  
+##### 3386#       发表于 2022-1-12 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254823&amp;ptid=2039422" target="_blank">佛剑分说 发表于 2022-1-12 07:59</a>
+
+【#百万印度人将扎堆沐浴#，专家忧疫情加剧】印度西孟加拉邦一名官员11日说，随着当地宗教节日临近，预计将 ...</blockquote>
+上次阿三超额死亡600万的教训看来是不够深刻
+
+*****
+
+####  最好不说  
+##### 3387#       发表于 2022-1-12 08:13
+
+<blockquote>ak123 发表于 2022-1-12 08:03
+上次阿三超额死亡600万的教训看来是不够深刻</blockquote>
+对莫迪来说六百万牲口罢了，死得再多也不痛不痒
+
+*****
+
+####  nanrendu  
+##### 3388#       发表于 2022-1-12 08:15
+
+还是死亡率不太高吧，以前那么多灾难片都白看了，真正世界级别的灾难降临的时候，大部分人类还是该干嘛干嘛，和一无所知的古代人没有什么区别啊。
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  烦死了  
+##### 3389#       发表于 2022-1-12 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254839&amp;ptid=2039422" target="_blank">ak123 发表于 2022-1-12 08:03</a>
+上次阿三超额死亡600万的教训看来是不够深刻</blockquote>
+对三哥来说 还真的不算什么….
+
+*****
+
+####  eveshell  
+##### 3390#       发表于 2022-1-12 08:18
+
+<blockquote>佛剑分说 发表于 2022-1-12 07:59
+【#百万印度人将扎堆沐浴#，专家忧疫情加剧】印度西孟加拉邦一名官员11日说，随着当地宗教节日临近，预计将 ...</blockquote>
+印度有几个洗澡节？
+
