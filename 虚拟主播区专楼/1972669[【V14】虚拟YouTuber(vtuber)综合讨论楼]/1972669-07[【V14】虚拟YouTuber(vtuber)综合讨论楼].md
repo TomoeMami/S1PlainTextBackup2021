@@ -12296,3 +12296,19 @@ en男厕最近的kpi全由狐狸的塔照贡献了，看着蛮乐的<img src="ht
 
 怎么看个管厕还要写篇小论文的，不了吧
 
+
+
+*****
+
+####  本间日阳  
+##### 10051#       发表于 2022-1-12 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">楼上写长篇小作文那位对这玩意这么严肃认真干啥……这么爱2434的吗。
+
+*****
+
+####  托帕帕  
+##### 10052#       发表于 2022-1-12 08:54
+
+不用这么zqsg 厕所这种东西上的人多了都会自然消灭的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
