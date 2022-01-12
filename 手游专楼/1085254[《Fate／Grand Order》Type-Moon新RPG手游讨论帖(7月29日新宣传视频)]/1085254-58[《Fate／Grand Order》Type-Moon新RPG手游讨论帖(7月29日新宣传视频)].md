@@ -10934,3 +10934,12 @@ lga天天摩根狂那的根本问题是
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你变了 说好的非洲人呢      但并不离谱（
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 86562#       发表于 2022-1-12 23:35
+
+faker这个120自冲也夸张了，我印象里只有部分caster职介的从者有这种巨额自冲<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
