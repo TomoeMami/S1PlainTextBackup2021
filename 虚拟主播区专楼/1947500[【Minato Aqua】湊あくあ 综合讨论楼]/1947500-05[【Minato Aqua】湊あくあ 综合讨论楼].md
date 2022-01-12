@@ -17204,3 +17204,21 @@ twitter不给认证标志。很懂嘛<img src="https://static.saraba1st.com/imag
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">Live线下确实给给了啊...
 
+
+
+*****
+
+####  面具13  
+##### 7419#       发表于 2022-1-12 15:55
+
+等一个紧急状态宣言吧。早发布早死心，晚发布怕不是要给她搞出PTSD来
+
+*****
+
+####  Scardy  
+##### 7420#       发表于 2022-1-12 16:00
+
+怎么着你也要ark吗，我咋有点不信呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
