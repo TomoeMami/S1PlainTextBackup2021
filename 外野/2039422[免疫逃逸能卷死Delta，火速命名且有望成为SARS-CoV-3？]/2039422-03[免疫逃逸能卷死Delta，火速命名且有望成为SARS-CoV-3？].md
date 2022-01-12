@@ -5020,3 +5020,16 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2<
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  jasonkiddyuan  
+##### 3394#       发表于 2022-1-12 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54255540&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-12 09:27</a>
+https://www.zhihu.com/pin/1464389375388278784
+
+https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg</blockquote>
+我只想看血流成河
+
