@@ -12312,3 +12312,19 @@ en男厕最近的kpi全由狐狸的塔照贡献了，看着蛮乐的<img src="ht
 
 不用这么zqsg 厕所这种东西上的人多了都会自然消灭的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 10053#       发表于 2022-1-12 09:18
+
+那个管厕刚出来几天的时候还是挺账号如其名的，主要表达对主播或者运营的不满比如瑞平谁谁谁那种不知不觉就变成糟糕脑洞放置场了，看多了觉得脑子里都是shi，跟5ch不同方向的shi，我就没再看了。传说中的v8也是这阵势吗？
+
+*****
+
+####  マドマコ  
+##### 10054#       发表于 2022-1-12 09:18
+
+隔空喊话bot的最好对应方式就是无视他们<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+

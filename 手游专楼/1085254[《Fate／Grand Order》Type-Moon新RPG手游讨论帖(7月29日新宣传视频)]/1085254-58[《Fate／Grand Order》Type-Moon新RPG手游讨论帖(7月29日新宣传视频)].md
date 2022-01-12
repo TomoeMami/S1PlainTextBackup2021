@@ -10584,3 +10584,35 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 
 刷啥？暗狐狸？暗狐狸6绊不是贼好刷吗
 
+
+
+*****
+
+####  zakki  
+##### 86529#       发表于 2022-1-12 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54249949&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-1-11 18:20</a>
+刷啥？暗狐狸？暗狐狸6绊不是贼好刷吗</blockquote>
+总共要15w羁绊，一把1000要打150把，其实是不舍得吃苹果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86530#       发表于 2022-1-12 09:10
+
+ 本帖最后由 zakki 于 2022-1-12 09:12 编辑 
+
+看了nga一帖子算狂娜伤害有感，狂娜这强度当初到底是怎么放出来的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86531#       发表于 2022-1-12 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54255300&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-12 09:05</a>
+
+总共要15w羁绊，一把1000要打150把，其实是不舍得吃苹果</blockquote>
+我没吃过苹果，前几天就6绊了
+
+虽说我是在妖精国一把1K3打的
+

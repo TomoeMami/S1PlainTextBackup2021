@@ -1493,3 +1493,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 昨天打到几点啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 7679#       发表于 2022-1-12 09:10
+
+打了四小时，输多赢少
+
