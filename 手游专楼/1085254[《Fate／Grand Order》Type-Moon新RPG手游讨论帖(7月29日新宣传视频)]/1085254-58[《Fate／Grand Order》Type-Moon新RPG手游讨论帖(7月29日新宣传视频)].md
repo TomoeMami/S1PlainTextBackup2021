@@ -10860,3 +10860,15 @@ lga天天摩根狂那的根本问题是
 
 2发11连出了faker，顺便懿妹+1搞定收工。就等巴巴托斯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86555#       发表于 2022-1-12 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54261988&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-1-12 17:33</a>
+
+赢了，一发11连，faker和司马懿都出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">欧 羡慕
+
