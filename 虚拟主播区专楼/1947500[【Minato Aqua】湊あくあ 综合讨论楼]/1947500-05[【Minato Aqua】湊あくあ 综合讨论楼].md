@@ -17231,3 +17231,15 @@ twitter不给认证标志。很懂嘛<img src="https://static.saraba1st.com/imag
 
 反正没时间玩，提一嘴蹭一蹭
 
+
+
+*****
+
+####  adw667  
+##### 7422#       发表于 2022-1-12 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54205487&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-1-7 22:57</a>
+
+现在的4chan真的有点乐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">低情商：awwbwg
+
