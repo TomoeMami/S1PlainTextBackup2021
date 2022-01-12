@@ -7531,3 +7531,17 @@ https://en.wikipedia.org/wiki/Widescreen_baroque
 
 [广州塔“倒下了”？耗资1600万的百米天桥引争议](https://www.saraba1st.com/2b/thread-2046895-1-1.html)
 
+
+
+*****
+
+####  pokemon最爱  
+##### 581#       发表于 2022-1-12 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54227571&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-9 23:19</a>
+
+周末观影回炉烧了两天，本来觉得只能再找点有意思的细节，但是稍微多想了一点感觉又有一些新的解读。不过说 ...</blockquote>
+我也这么觉得，其他4场1对1Revue其实本质也是在暗喻光恋之间的事。
+
+进一步猜想，会不会剧场版里99组一开始集体摆烂就是受光恋的影响？也就是由于TV结局华恋选择了一同闪耀的结局导致整个99组的闪耀被绑定在了一起，因此光退学华恋开始迷茫不知进路如何选择时其他人也受到了她们的影响暴露出了原本没有解决的问题。
+
