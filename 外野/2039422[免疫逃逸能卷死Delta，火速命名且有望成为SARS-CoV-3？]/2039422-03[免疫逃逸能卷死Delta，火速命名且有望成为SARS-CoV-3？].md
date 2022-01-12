@@ -4866,3 +4866,68 @@ U.S. CDC may recommend better masks against Omicron - Washington Post
 
 WHO warns against treating Covid-19 like flu 
 
+
+
+*****
+
+####  佛剑分说  
+##### 3379#       发表于 2022-1-12 07:45
+
+世卫组织称，随着奥密克戎毒株的传播，德尔塔毒株流行率开始下降，多国出现奥密克戎社区传播。在过去30天搜集的357206份病毒基因序列样本中，58.5%的样本为奥密克戎毒株，德尔塔毒株占比下降至41.4%。奥密克戎毒株正在迅速取代其它毒株成为主要流行毒株。
+
+*****
+
+####  ak123  
+##### 3380#       发表于 2022-1-12 07:52
+
+欧洲议会主 席刚死于肺炎导致的并发症，这时候得肺炎。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  林照人  
+##### 3381#       发表于 2022-1-12 07:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54253352&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-11 10:50</a>
+
+https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2</blockquote>
+在美国不进ICU都算轻症
+
+*****
+
+####  最好不说  
+##### 3382#       发表于 2022-1-12 07:54
+
+1月11日，《美国医学会杂志》网络版发布的、由加拿大牵头的一项研究结果表明，有相当比例因感染新冠病毒接受急诊救治的儿童出现了“严重的后果”包括心脏病发作或心力衰竭、中风、败血性休克、脑炎、呼吸衰竭、死亡，或者需要进行胸腔引流和体外膜肺氧合（ECMO）等主要干预措施。在参加研究的3221名接受急诊救治的新冠病毒检测呈阳性的青少年中，3.3%的人在14天内出现严重后果，而22.8%的人需要住院治疗。 
+
+*****
+
+####  ak123  
+##### 3383#       发表于 2022-1-12 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254803&amp;ptid=2039422" target="_blank">最好不说 发表于 2022-1-12 07:54</a>
+
+1月11日，《美国医学会杂志》网络版发布的、由加拿大牵头的一项研究结果表明，有相当比例因感染新冠病毒接 ...</blockquote>
+这就是mild嗷
+
+*****
+
+####  66666  
+##### 3384#       发表于 2022-1-12 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254813&amp;ptid=2039422" target="_blank">ak123 发表于 2022-1-12 07:56</a>
+这就是mild嗷</blockquote>
+大概在美国人的脑子里，不进ICU全身插管的都是mild吧！
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  佛剑分说  
+##### 3385#       发表于 2022-1-12 07:59
+
+【#百万印度人将扎堆沐浴#，专家忧疫情加剧】印度西孟加拉邦一名官员11日说，随着当地宗教节日临近，预计将有接近100万人来到该邦南部一座小岛朝圣和沐浴。印度眼下新冠疫情迅速反弹，卫生专家担忧，这场活动可能成为“超级传播”事件，加剧疫情蔓延。按负责组织这次节日活动的西孟加拉邦官员哈兹拉的说法，为避免聚集，他们原本准备在空中用无人驾驶飞机洒恒河水，但是宗教界高层人士坚持要人们浸入水中，“我们阻止不了他们”。
+
+一些印度卫生专家担心这场宗教庆祝活动可能成为新冠病毒“超级传播”事件，一度寻求让法院叫停。加尔各答高等法院11日裁定，所有朝圣者必须做新冠病毒核酸检测。不清楚法院上述裁决能否得到执行，而且节日临近，数量如此庞大的朝圣者能否赶在这几天做完核酸检测也未可知。
+
+超大型培养皿，启动<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

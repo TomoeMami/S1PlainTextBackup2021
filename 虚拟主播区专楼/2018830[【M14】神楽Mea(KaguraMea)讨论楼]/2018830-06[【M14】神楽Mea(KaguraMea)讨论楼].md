@@ -1484,3 +1484,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 这次赢得两局都有1v2残血反杀两个，也不知道字幕组能不能剪一下
 
+
+
+*****
+
+####  T_Hb  
+##### 7678#       发表于 2022-1-12 08:01
+
+昨天打到几点啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
