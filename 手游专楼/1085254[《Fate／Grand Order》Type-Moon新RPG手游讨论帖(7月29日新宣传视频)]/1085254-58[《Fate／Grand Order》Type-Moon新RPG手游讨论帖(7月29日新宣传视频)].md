@@ -10909,3 +10909,14 @@ lga天天摩根狂那的根本问题是
 
 才发现宇宙凛宝具全屏了
 
+
+
+*****
+
+####  里村紅葉  
+##### 86560#       发表于 2022-1-12 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

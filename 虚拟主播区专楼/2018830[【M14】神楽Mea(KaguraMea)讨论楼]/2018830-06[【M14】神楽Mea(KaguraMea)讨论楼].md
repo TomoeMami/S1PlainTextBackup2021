@@ -1572,3 +1572,28 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 酬勤（×） 贪玩（√）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7688#       发表于 2022-1-12 20:25
+
+今天是个上分的好日子啊……对面ad挂机，12分钟gg了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+今天有直播计划吗，感觉能上黄金
+
+*****
+
+####  时间在我手中  
+##### 7689#       发表于 2022-1-12 20:38
+
+啊？没直播啊
+
+*****
+
+####  T_Hb  
+##### 7690#       发表于 2022-1-12 20:42
+
+早安推都不发，肯定不播了，半夜图奇除外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
