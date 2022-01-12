@@ -12328,3 +12328,21 @@ en男厕最近的kpi全由狐狸的塔照贡献了，看着蛮乐的<img src="ht
 
 隔空喊话bot的最好对应方式就是无视他们<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FlinN  
+##### 10055#       发表于 2022-1-12 09:27
+
+king只见过有张口罩锅盖头的和头以下照镜子的印象
+
+*****
+
+####  adcdqre  
+##### 10056#       发表于 2022-1-12 09:30
+
+虹歌谣祭是不是一起录的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

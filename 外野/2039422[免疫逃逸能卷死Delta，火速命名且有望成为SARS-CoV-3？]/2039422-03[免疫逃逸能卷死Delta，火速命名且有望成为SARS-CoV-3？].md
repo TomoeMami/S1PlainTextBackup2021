@@ -4979,3 +4979,24 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2<
 【#百万印度人将扎堆沐浴#，专家忧疫情加剧】印度西孟加拉邦一名官员11日说，随着当地宗教节日临近，预计将 ...</blockquote>
 印度有几个洗澡节？
 
+
+
+*****
+
+####  eveshell  
+##### 3391#       发表于 2022-1-12 09:27
+
+ 本帖最后由 eveshell 于 2022-1-12 09:31 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/12/092730q8qbqqsj9nn8z6z5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1641950816255.jpeg</strong> (125.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-12 09:27 上传
+
+[https://www.zhihu.com/pin/1464389375388278784](https://www.zhihu.com/pin/1464389375388278784)
+[https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg](https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg)
+

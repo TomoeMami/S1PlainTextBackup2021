@@ -10616,3 +10616,27 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 
 虽说我是在妖精国一把1K3打的
 
+
+
+*****
+
+####  zakki  
+##### 86532#       发表于 2022-1-12 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54255399&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2022-1-12 09:14</a>
+
+我没吃过苹果，前几天就6绊了
+
+虽说我是在妖精国一把1K3打的</blockquote>
+我是9号才抽出来的，自回体打时间肯定不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86533#       发表于 2022-1-12 09:40
+
+狂那最莫名其妙的就是那个对邪恶，一开始所有人都以为是对恶特攻，所以结论是强度一般般
+
+结果是对异常状态特攻，只能说这异于常人的思考回路不愧是阿囧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
