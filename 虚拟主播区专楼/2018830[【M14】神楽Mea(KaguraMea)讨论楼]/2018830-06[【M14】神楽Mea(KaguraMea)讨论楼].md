@@ -1538,3 +1538,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 草 私下开始单排了 辅助露露<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2111X  
+##### 7684#       发表于 2022-1-12 19:08
+
+昨天的会员档开了地区限制，整无语了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
