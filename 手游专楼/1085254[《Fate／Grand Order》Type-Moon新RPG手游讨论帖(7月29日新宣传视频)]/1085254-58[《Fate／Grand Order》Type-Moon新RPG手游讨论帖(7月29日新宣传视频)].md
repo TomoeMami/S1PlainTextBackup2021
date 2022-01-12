@@ -10881,3 +10881,22 @@ lga天天摩根狂那的根本问题是
 
 这个caster有利状态是1.5还是2.0<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86557#       发表于 2022-1-12 18:27
+
+这卡面太草
+
+真就用实力换卡面
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOBI  
+##### 86558#       发表于 2022-1-12 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这对师傅的语音难道今年要联动魔夜了吗
+
