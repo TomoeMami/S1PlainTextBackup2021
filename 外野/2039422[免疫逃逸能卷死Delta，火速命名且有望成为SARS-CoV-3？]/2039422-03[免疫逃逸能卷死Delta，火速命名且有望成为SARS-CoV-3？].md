@@ -5050,3 +5050,14 @@ https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg</blockquote>
 
 不好意思，看错了你的问题，你问有几个，这个就不清楚了，可能每年都有一个和洗澡有关的洗澡节，所以才会有印度是世界上节日 最多的国家的说法，毕竟巴基斯坦没有印度教所以节日没有印度多
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3396#       发表于 2022-1-12 13:27
+
+pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结束了吧。。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
