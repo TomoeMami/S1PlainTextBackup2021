@@ -10725,3 +10725,12 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 这个设定上倒是说的通的，这人剧情里就是看谁有瑕疵了就把他从轮回里排除出去 ...</blockquote>
 但召回来的没这权能，其实完全可以做成BOSS专用技能嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86542#       发表于 2022-1-12 12:38
+
+杀狐暗狐暗狐奥伯龙，这个队意外有点儿强，全一宝伤害就能上20w，暗狐的强度和刚出的时候比被低估太多了。以后红卡队骑本都有泛用队了，上三奥伯龙，骑杀狐，杀C狗，就差个打术本的红卡打手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

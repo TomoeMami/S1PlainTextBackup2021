@@ -5488,3 +5488,35 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 又干嘛了
 
+
+
+*****
+
+####  人民de救星  
+##### 5067#       发表于 2022-1-12 12:26
+
+妈呀。玩个游戏气死我了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  灰色的狐狸  
+##### 5068#       发表于 2022-1-12 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54258083&amp;ptid=2013779" target="_blank">人民de救星 发表于 2022-1-12 12:26</a>
+妈呀。玩个游戏气死我了
+
+—— 来自 S1Fun</blockquote>
+这不是正常情况吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">这次还能忽悠🐷币比以前有趣
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  希克苏鲁伯  
+##### 5069#       发表于 2022-1-12 12:40
+
+太怒了，好想狠狠吴涛
+
