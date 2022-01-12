@@ -5061,3 +5061,12 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  eveshell  
+##### 3397#       发表于 2022-1-12 14:27
+
+口服药说供应不足，于是也是挑人。疫苗不怕没人用，因为总有新变异。
+

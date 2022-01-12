@@ -10748,3 +10748,18 @@ lga天天摩根狂那的根本问题是
 既然第三关不缺伤害，那我去抬一下沙雕道中不是更好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86544#       发表于 2022-1-12 14:34
+
+ 本帖最后由 zakki 于 2022-1-12 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54259508&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-12 14:21</a>
+
+lga天天摩根狂那的根本问题是
+
+他们还没从仇凛之类的通用解+俩拐的思路里跑出来，这俩的问题是你抓什么好友 ...</blockquote>
+没办法，lga就是觉得花钱抽2宝暗狐+2宝奥伯龙+2宝杀狐的钱不如直接去抽5宝狂娜，问题是去哪抽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
