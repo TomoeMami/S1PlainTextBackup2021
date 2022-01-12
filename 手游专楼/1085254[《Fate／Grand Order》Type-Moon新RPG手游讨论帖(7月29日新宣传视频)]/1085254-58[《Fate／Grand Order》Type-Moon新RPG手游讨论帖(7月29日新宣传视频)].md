@@ -10772,3 +10772,19 @@ lga天天摩根狂那的根本问题是
 
 我记得nga现在还在吹陈宫万能解来着..这群人靠着千里眼脑补万用阵容的样子确实突出一个小丑，加上沉船后各种牢骚和日常的饭圈发春就更欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86546#       发表于 2022-1-12 15:18
+
+ 本帖最后由 exiaexa 于 2022-1-12 15:20 编辑 
+
+顺便一提就现在来看，这个三页支援，对于双拐阵容完全是负提升，什么乱七八糟的玩意儿都有
+
+我认识的多宝玩家基本都是因为选人太折腾，干脆只看礼装不看人自力更生，选到啥无所谓反正通通扔后排
+
+反正惨的永远是绿卡
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
