@@ -12913,3 +12913,53 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鲤鱼这也太呆了，最后回头看屏幕还被吓一跳笑死
 
+
+
+*****
+
+####  chenflyyy  
+##### 4119#       发表于 2022-1-12 17:07
+
+现在就放出这么多幕后内容，还会卖making吗
+
+*****
+
+####  梶原ひかり  
+##### 4120#       发表于 2022-1-12 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54261695&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-12 17:07</a>
+
+现在就放出这么多幕后内容，还会卖making吗</blockquote>
+会的..因为making 起码有一半内容是谈感想 还有 平日里彩排训练
+
+*****
+
+####  player3960  
+##### 4121#       发表于 2022-1-12 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54261695&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-01-12 17:07:06</a>
+现在就放出这么多幕后内容，还会卖making吗</blockquote>估计这段比较有时效性吧，这几天放效果最好
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 4122#       发表于 2022-1-12 17:15
+
+二十场还怕making不够么
+
+*****
+
+####  lj205  
+##### 4123#       发表于 2022-1-12 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">大家都好温柔
+
+*****
+
+####  TCone  
+##### 4124#       发表于 2022-1-12 17:24
+
+鲤鱼真的憨憨的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

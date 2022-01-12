@@ -7522,3 +7522,12 @@ https://en.wikipedia.org/wiki/Widescreen_baroque
 因为原词是宽屏...</blockquote>
 感谢。因为读起来只能是“歪鲁多”wild一种嘛，注成wide我一直以为是注错了，合着是故意取双义，这辣过晓得嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上杉打老虎  
+##### 580#       发表于 2022-1-12 17:14
+
+[广州塔“倒下了”？耗资1600万的百米天桥引争议](https://www.saraba1st.com/2b/thread-2046895-1-1.html)
+
