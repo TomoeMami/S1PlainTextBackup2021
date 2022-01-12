@@ -10920,3 +10920,17 @@ lga天天摩根狂那的根本问题是
 
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  alucardcz  
+##### 86561#       发表于 2022-1-12 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54264730&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-1-12 20:26</a>
+
+一发十连也太离谱了
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你变了 说好的非洲人呢      但并不离谱（
+
