@@ -10706,3 +10706,22 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 所以我说阿囧这个对邪恶定义的思考回路就非常的阿囧，让你摸不着头脑
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 86540#       发表于 2022-1-12 11:10
+
+就是天天值班摩根节奏太多了
+
+*****
+
+####  DARKGRAY  
+##### 86541#       发表于 2022-1-12 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54256703&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-12 10:56</a>
+
+这个设定上倒是说的通的，这人剧情里就是看谁有瑕疵了就把他从轮回里排除出去 ...</blockquote>
+但召回来的没这权能，其实完全可以做成BOSS专用技能嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
