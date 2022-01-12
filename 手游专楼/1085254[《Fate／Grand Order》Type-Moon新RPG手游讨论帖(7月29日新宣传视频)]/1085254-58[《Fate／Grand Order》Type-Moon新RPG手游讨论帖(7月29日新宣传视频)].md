@@ -10943,3 +10943,12 @@ lga天天摩根狂那的根本问题是
 
 faker这个120自冲也夸张了，我印象里只有部分caster职介的从者有这种巨额自冲<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 86563#       发表于 2022-1-13 00:43
+
+毕竟高速神言是设定里就带的，其实她如果没当替身也应该是c阶
+
