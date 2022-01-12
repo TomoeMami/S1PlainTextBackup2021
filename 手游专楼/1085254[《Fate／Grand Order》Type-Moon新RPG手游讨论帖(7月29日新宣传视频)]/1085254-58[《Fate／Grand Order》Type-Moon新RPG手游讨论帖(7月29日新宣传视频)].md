@@ -10872,3 +10872,12 @@ lga天天摩根狂那的根本问题是
 赢了，一发11连，faker和司马懿都出了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  zore  
+##### 86556#       发表于 2022-1-12 18:11
+
+这个caster有利状态是1.5还是2.0<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

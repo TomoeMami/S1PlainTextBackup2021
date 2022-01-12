@@ -12974,3 +12974,12 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  saya1892  
+##### 4126#       发表于 2022-1-12 18:22
+
+明明在中国就是很普通的身高，硬是看出了彪形大汉的感觉
+

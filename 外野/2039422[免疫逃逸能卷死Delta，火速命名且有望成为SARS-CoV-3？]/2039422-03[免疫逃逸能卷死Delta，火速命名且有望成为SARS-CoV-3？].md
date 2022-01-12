@@ -5092,3 +5092,15 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 443个典型新冠患者（大致9个月前感染，93%未入院），匹配了3倍的普通人对照，发现很多器官性能下降，加大血栓风险。建议轻症也要在半年后做个深度检查 [https://www.zhihu.com/pin/1464564421787426816](https://www.zhihu.com/pin/1464564421787426816)
 <img src="http://pic2.zhimg.com/v2-da69a8347fdf683009782168838027e1_r.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ak123  
+##### 3400#       发表于 2022-1-12 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54260726&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-12 15:55</a>
+
+443个典型新冠患者（大致9个月前感染，93%未入院），匹配了3倍的普通人对照，发现很多器官性能下降，加大血 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">Spanish Flu
+
