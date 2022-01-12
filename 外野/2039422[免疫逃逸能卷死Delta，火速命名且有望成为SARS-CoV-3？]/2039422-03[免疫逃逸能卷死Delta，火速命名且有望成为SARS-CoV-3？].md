@@ -5033,3 +5033,20 @@ https://www.zhihu.com/pin/1464389375388278784
 https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg</blockquote>
 我只想看血流成河
 
+
+
+*****
+
+####  qilang  
+##### 3395#       发表于 2022-1-12 11:46
+
+ 本帖最后由 qilang 于 2022-1-12 11:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254920&amp;ptid=2039422" target="_blank">eveshell 发表于 2022-1-12 08:18</a>
+
+印度有几个洗澡节？</blockquote>
+据说那个大壶节是每三年庆祝的小礼，每六年庆祝的中礼，每12年庆祝的大礼
+
+去年那次大壶节会那么恐怖就是因为去年那次是12年一轮的大庆大壶节
+
+不好意思，看错了你的问题，你问有几个，这个就不清楚了，可能每年都有一个和洗澡有关的洗澡节，所以才会有印度是世界上节日 最多的国家的说法，毕竟巴基斯坦没有印度教所以节日没有印度多
+
