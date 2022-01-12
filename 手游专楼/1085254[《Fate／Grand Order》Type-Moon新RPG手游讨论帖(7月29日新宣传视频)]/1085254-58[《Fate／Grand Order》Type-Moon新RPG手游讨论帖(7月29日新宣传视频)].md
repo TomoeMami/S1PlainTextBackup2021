@@ -10763,3 +10763,12 @@ lga天天摩根狂那的根本问题是
 他们还没从仇凛之类的通用解+俩拐的思路里跑出来，这俩的问题是你抓什么好友 ...</blockquote>
 没办法，lga就是觉得花钱抽2宝暗狐+2宝奥伯龙+2宝杀狐的钱不如直接去抽5宝狂娜，问题是去哪抽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 86545#       发表于 2022-1-12 15:07
+
+我记得nga现在还在吹陈宫万能解来着..这群人靠着千里眼脑补万用阵容的样子确实突出一个小丑，加上沉船后各种牢骚和日常的饭圈发春就更欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
