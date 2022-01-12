@@ -5139,3 +5139,17 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">阿三是有多喜欢聚众洗澡
 
+
+
+*****
+
+####  Redis  
+##### 3404#       发表于 2022-1-13 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54258876&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-12 13:27</a>
+
+pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结束了吧。。
+
+— from Google Pixel 3 XL, Android ...</blockquote>
+打一针没啥坏处
+
