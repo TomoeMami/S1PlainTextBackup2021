@@ -1563,3 +1563,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 她这醒了就在101未免也太酬勤了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 7687#       发表于 2022-1-12 19:45
+
+酬勤（×） 贪玩（√）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
