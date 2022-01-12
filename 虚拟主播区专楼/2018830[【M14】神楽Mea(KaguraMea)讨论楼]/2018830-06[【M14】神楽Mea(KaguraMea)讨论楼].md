@@ -1597,3 +1597,26 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 早安推都不发，肯定不播了，半夜图奇除外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 7691#       发表于 2022-1-12 21:06
+
+不直播上分三连胜是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7692#       发表于 2022-1-12 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那天定级之后也是不播疯狂上分
+
+*****
+
+####  古战场亡魂  
+##### 7693#       发表于 2022-1-12 21:15
+
+艰难战斗40分钟赢了，88胜点了，加把劲，今天能黄金。
+
