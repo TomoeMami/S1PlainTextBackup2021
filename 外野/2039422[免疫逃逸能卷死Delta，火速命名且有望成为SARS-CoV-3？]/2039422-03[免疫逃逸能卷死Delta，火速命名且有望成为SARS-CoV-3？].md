@@ -5070,3 +5070,15 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 
 口服药说供应不足，于是也是挑人。疫苗不怕没人用，因为总有新变异。
 
+
+
+*****
+
+####  卡普空  
+##### 3398#       发表于 2022-1-12 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254839&amp;ptid=2039422" target="_blank">ak123 发表于 2022-1-12 08:03</a>
+
+上次阿三超额死亡600万的教训看来是不够深刻</blockquote>
+三哥只有一亿人，虽然是个梗但是可能也是事实
+
