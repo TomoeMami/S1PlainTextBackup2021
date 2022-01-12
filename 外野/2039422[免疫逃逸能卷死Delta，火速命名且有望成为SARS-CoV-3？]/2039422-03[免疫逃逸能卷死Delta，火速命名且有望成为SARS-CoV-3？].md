@@ -5117,3 +5117,16 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  烦死了  
+##### 3402#       发表于 2022-1-13 00:49
+
+好消息一个接一个
+
+一项研究发现大妈提取物可以防止covid-19感染<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[https://www.forbes.com/sites/ajh ... -by-covid-19-virus/](https://www.forbes.com/sites/ajherrington/2022/01/11/study-finds-cannabis-compounds-prevent-infection-by-covid-19-virus/)
+
