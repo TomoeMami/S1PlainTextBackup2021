@@ -10640,3 +10640,24 @@ Faker按照设定是有B级的高速神言的（放在游戏里就是点到8级�
 结果是对异常状态特攻，只能说这异于常人的思考回路不愧是阿囧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86534#       发表于 2022-1-12 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54255672&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-12 09:40</a>
+
+狂那最莫名其妙的就是那个对邪恶，一开始所有人都以为是对恶特攻，所以结论是强度一般般
+
+结果是对异常状态 ...</blockquote>
+万物特攻算个特色吧，但这万物特攻基本稳定触发太扯了，除了狂娜还有谁能做到。还有，我觉得如果奥伯龙复刻前狂娜还不复刻，那怕是真的永不复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 86535#       发表于 2022-1-12 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.4是第二部第一个跳票了一段时间的主线，应该是当时急着上所以没有做完整的强度测试
+

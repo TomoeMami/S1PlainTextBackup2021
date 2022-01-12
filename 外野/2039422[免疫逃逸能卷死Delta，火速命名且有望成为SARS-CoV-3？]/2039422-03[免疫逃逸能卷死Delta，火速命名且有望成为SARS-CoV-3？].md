@@ -5000,3 +5000,23 @@ https://www.zhihu.com/pin/1464313828196806657  轻症也有神经炎 智力-2<
 [https://www.zhihu.com/pin/1464389375388278784](https://www.zhihu.com/pin/1464389375388278784)
 [https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg](https://mp.weixin.qq.com/s/Gr3UVRHmfUJCETjldcgKCg)
 
+
+
+*****
+
+####  yhaos  
+##### 3392#       发表于 2022-1-12 09:42
+
+令人不解的统计数据。只能用天津数据对照了。希望国内别太猛
+
+*****
+
+####  jy000129  
+##### 3393#       发表于 2022-1-12 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54235086&amp;ptid=2039422" target="_blank">林照人 发表于 2022-1-10 15:58</a>
+在NGA发的新冠报告贴还给夹 绝绝子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">-查询LGA版主台蛙含量
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
