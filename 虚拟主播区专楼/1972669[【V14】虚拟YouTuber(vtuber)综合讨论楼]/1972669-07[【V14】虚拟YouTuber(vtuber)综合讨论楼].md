@@ -12404,3 +12404,51 @@ v8怎么可能表达对运营的不满<img src="https://static.saraba1st.com/ima
 
 不是早就是NijiFili了吗 大惊小怪的确实有点年一v內味了
 
+
+
+*****
+
+####  wuzhengkai  
+##### 10063#       发表于 2022-1-12 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250546&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-1-11 19:12</a>
+
+虹EN亚裔：
+
+Finana Ryugu
+
+Rosemi Lovelock</blockquote>
+感觉elira也九成是亚裔 但确实没看过图
+
+*****
+
+####  wuzhengkai  
+##### 10064#       发表于 2022-1-12 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54250697&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-11 19:22</a>
+
+luca怎么也菲裔了，我塔照都还没看到呢syl
+
+混血但是日本长大的人英语不好太正常了
+
+说到混血我去查了下ymen ...</blockquote>
+我记得luca出道时候语言有写Tagalog
+
+*****
+
+####  wuzhengkai  
+##### 10065#       发表于 2022-1-12 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54253598&amp;ptid=1972669" target="_blank">oceanneo 发表于 2022-1-12 00:18</a>
+
+如果都是上全身动捕的话，用vr chat跟现在普遍的3D有什么不同吗</blockquote>
+如果模型做的精细的话本人差别不大的
+
+*****
+
+####  poipanchao  
+##### 10066#       发表于 2022-1-12 12:47
+
+亚不亚裔的无所谓
+小玫瑰是真的好看，那个腿
+
