@@ -10788,3 +10788,14 @@ lga天天摩根狂那的根本问题是
 反正惨的永远是绿卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 86547#       发表于 2022-1-12 16:06
+
+绿卡这种强化都给的扣扣索索的架势还能指望什么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">2022年了还留着精灵的加护这种弱智白板技能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
