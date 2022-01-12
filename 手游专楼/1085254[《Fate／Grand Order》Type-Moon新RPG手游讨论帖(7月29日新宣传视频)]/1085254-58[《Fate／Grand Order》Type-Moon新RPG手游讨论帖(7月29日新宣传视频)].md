@@ -10952,3 +10952,14 @@ faker这个120自冲也夸张了，我印象里只有部分caster职介的从者
 
 毕竟高速神言是设定里就带的，其实她如果没当替身也应该是c阶
 
+
+
+*****
+
+####  eyeego  
+##### 86564#       发表于 2022-1-13 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54267390&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2022-1-12 23:35</a>
+faker这个120自冲也夸张了，我印象里只有部分caster职介的从者有这种巨额自冲 ...</blockquote>
+然而本质不就是个伤害正常的大号c妈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

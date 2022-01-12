@@ -7562,3 +7562,42 @@ TV结局华恋也只是和光互为闪耀而已，其他人从始至终都没能
 
 另一方面我也还是觉得这些联系仅仅是结构层次而非叙事上的，确实剧场版revue中有些矛盾铺垫甚少甚至和前面剧情有所冲突，但本质是因为这些矛盾都强行统一在毕业季这个主题上来衍生，而更难调和的是作为核心的光恋矛盾其实和毕业季并无直接关联，共演一结束两人就找不到下一个舞台了。所以不同的revue如果要同时将这两者联系起来就很难有逻辑感，其中最典型的依然是迷宫组，明明对决的动机是克洛反省后下决心要和maya了断，打到一半却变成开导maya并非空壳，仿佛忘掉了TV里第十集maya对克洛的告白。但如果抛开克洛在这场revue的执念，两人剩下的感情就和光恋在结尾如出一辙，那么这实际上还是为了主题而妥协的处理。
 
+
+
+*****
+
+####  堆雪若叶  
+##### 583#         楼主| 发表于 2022-1-13 02:12
+
+复习TV第八集的时候又被刀了一下
+
+<img src="https://p.sda1.dev/4/db195b5bc59d21152f3ae9db99d6f831/9.jpg" referrerpolicy="no-referrer">
+
+同样这里从光的角度回忆华恋写信说自己在努力朝约定的舞台前进，然后在想问光的情况时又戛然而止。原本TV这段制作时可能都没想那么多，但结果却和剧场版里写信的动摇莫名契合上了，串起来就成了华恋这些年间都在和自己斗争，日复一日划掉心底藏的想法。
+
+*****
+
+####  jerryoq1  
+##### 584#       发表于 2022-1-13 03:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54268494&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-13 02:12</a>
+复习TV第八集的时候又被刀了一下</blockquote>
+一个在心里收信，一个在心里回信<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JustW  
+##### 585#       发表于 2022-1-13 04:04
+
+ 本帖最后由 JustW 于 2022-1-13 04:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54254989&amp;ptid=2043629" target="_blank">蓝川澈 发表于 2022-1-12 08:29</a>
+
+感谢。因为读起来只能是“歪鲁多”wild一种嘛，注成wide我一直以为是注错了，合着是故意取双义，这辣过晓 ...</blockquote>
+这里的Wild取的不一定是“狂野的”，而是“野生动物”的“野生的”。实际上Wildscreen特指一家保护野生动物的慈善机构，定期举办拍摄野生动物影片的festival。可参考：
+[https://www.wildscreen.org/](https://www.wildscreen.org/)
+[https://en.m.wikipedia.org/wiki/Wildscreen](https://en.m.wikipedia.org/wiki/Wildscreen)
+
+结合banana皆杀曲中间一段的曲风（啦啦啦啦啦啦啦啦啦啦那句左右，仿佛身处于丛林之中），以及狩猎revue，这个想法是有依据的。把这与宽屏银幕合成出一个双义词，古川指的是什么就由大家自由分析了。
+
+#556楼的楼友贴的那个分析文章中有一段提供了一种看法。
+
