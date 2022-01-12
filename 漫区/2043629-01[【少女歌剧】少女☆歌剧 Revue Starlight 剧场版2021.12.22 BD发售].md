@@ -7508,3 +7508,17 @@ wi(l)d 应该是既要“狂野”又要“宽屏”吧。同时强调内容的�
 
 因为原词是宽屏...
 
+
+
+*****
+
+####  蓝川澈  
+##### 579#       发表于 2022-1-12 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54253962&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-12 01:07</a>
+
+https://en.wikipedia.org/wiki/Widescreen_baroque
+
+因为原词是宽屏...</blockquote>
+感谢。因为读起来只能是“歪鲁多”wild一种嘛，注成wide我一直以为是注错了，合着是故意取双义，这辣过晓得嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
