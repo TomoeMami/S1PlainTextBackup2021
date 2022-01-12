@@ -12963,3 +12963,14 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 鲤鱼真的憨憨的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 4125#       发表于 2022-1-12 17:34
+
+鲤鱼的反应永远都是这么出人意料，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

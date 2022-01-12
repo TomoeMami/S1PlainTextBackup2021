@@ -10819,3 +10819,44 @@ lga天天摩根狂那的根本问题是
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  khxooo  
+##### 86550#       发表于 2022-1-12 17:31
+
+看到3破和满破，瞬间没有了欲望了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  黑上シグマ  
+##### 86551#       发表于 2022-1-12 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赢了，一发11连，faker和司马懿都出了
+
+*****
+
+####  alucardcz  
+##### 86552#       发表于 2022-1-12 17:36
+
+翻页
+
+*****
+
+####  angelooo  
+##### 86553#       发表于 2022-1-12 17:37
+
+<blockquote>khxooo 发表于 2022-1-12 17:31
+看到3破和满破，瞬间没有了欲望了</blockquote>
+你永远可以相信坂本，这两张的设计真是他娘的天才
+
+*****
+
+####  xiongxingyu  
+##### 86554#       发表于 2022-1-12 17:40
+
+2发11连出了faker，顺便懿妹+1搞定收工。就等巴巴托斯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
