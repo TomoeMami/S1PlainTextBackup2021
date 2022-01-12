@@ -33,8 +33,8 @@ rawpathdict = {
     'b' : {
         '1' : './虚拟主播区专楼/2042657[【B47】VUP综合讨论楼]/',
         '2' : './虚拟主播区专楼/2045381[【B49】VUP综合讨论楼]/',
-        '4' : './虚拟主播区专楼/2045222[【B48】VUP综合讨论楼]/',
-        '6' : './虚拟主播区专楼/2046797[【B50】VUP综合讨论楼]/',
+        '3' : './虚拟主播区专楼/2045222[【B48】VUP综合讨论楼]/',
+        '4' : './虚拟主播区专楼/2046797[【B50】VUP综合讨论楼]/',
         # '5' : './虚拟主播区专楼/2040897[【B44】VUP综合讨论楼]',
         # '7' : './虚拟主播区专楼/2041291[【B45】VUP综合讨论楼]',
         'A' : './虚拟主播区专楼/2042668-01[【B46：free】VUP综合讨论楼的应许之地].md'
@@ -62,11 +62,7 @@ rawpathdict = {
 
 def get2levelfile(dirpath,allpath):
     for pa in Path(dirpath).iterdir():
-        if Path(pa).is_dir():
-            for p in Path(pa).iterdir():
-                allpath.append(p)
-        else:
-            allpath.append(pa)
+        allpath.append(pa)
 # def getkwfile(flist, keyword):
 #     res = []
 #     for ff in flist:
@@ -76,11 +72,12 @@ def get2levelfile(dirpath,allpath):
 
 if __name__ == "__main__":
     pathdict = {}
+    temppaths = []
     for key in rawpathdict.keys():
         count = 0
-        temppaths = []
+        pathdict[key] = {}
         for i in rawpathdict[key].keys():
-            pathdict[key] = {}
+            temppaths.clear()
             if i.isdigit():
                 get2levelfile(rawpathdict[key][i],temppaths)
                 for k in temppaths :
