@@ -1529,3 +1529,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天睡醒了会不会发个推助力20W
 
+
+
+*****
+
+####  Klience  
+##### 7683#       发表于 2022-1-12 19:02
+
+草 私下开始单排了 辅助露露<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
