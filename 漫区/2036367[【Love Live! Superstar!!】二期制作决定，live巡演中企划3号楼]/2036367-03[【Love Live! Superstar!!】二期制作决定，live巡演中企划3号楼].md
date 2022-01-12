@@ -12983,3 +12983,19 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 明明在中国就是很普通的身高，硬是看出了彪形大汉的感觉
 
+
+
+*****
+
+####  lj205  
+##### 4127#       发表于 2022-1-12 22:47
+
+打铁这捏鲤鱼下巴实在太熟练太自然了………<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4128#       发表于 2022-1-12 22:51
+
+群里的回复是：树袋熊抱树
+

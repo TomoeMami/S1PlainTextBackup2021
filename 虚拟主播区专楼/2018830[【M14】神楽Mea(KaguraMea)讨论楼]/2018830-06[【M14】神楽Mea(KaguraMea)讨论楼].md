@@ -1620,3 +1620,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 艰难战斗40分钟赢了，88胜点了，加把劲，今天能黄金。
 
+
+
+*****
+
+####  Klience  
+##### 7694#       发表于 2022-1-12 23:05
+
+打到95胜点就不敢打了 这人怂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

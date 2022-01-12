@@ -10144,3 +10144,13 @@ GOD说的话倒是很有讽刺效果啊
 
 b漫的海贼能不能买，有无和谐啥的？<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天使的日曜日  
+##### 56302#       发表于 2022-1-12 22:53
+
+凯多这台词太可怜了，对面已经开始锁血了，我已经尽力了
+他才是动物系幻兽种他才是最强生物<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
