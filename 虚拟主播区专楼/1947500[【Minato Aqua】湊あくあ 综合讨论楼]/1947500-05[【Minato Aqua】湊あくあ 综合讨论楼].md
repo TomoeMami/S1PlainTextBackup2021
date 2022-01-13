@@ -17243,3 +17243,17 @@ twitter不给认证标志。很懂嘛<img src="https://static.saraba1st.com/imag
 现在的4chan真的有点乐</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">低情商：awwbwg
 
+
+
+*****
+
+####  面具13  
+##### 7423#       发表于 2022-1-13 12:12
+
+相关信息 <blockquote>東京都はコロナ感染状況の警戒レベルを
+
+現在の「感染拡大の兆候がある」から
+
+「感染が拡大している」に変更すると発表。</blockquote>
+感觉真要走live前几天取消的剧本了
+
