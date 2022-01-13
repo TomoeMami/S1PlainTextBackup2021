@@ -10353,3 +10353,226 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 看看路飞就知道霸缠这个技能加成太厉害了</blockquote>
 有了这个 2档 3档路飞 就能和被消耗的凯多打的五五开 这个加成真的猛
 
+
+
+*****
+
+####  Supermangunv3  
+##### 56322#       发表于 2022-1-14 03:45
+
+<img src="https://img.saraba1st.com/forum/202201/14/034540ab5ww4fbufffkffc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034157_com.zhihu.android.jpg</strong> (172.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034541ys6s6tqs7frcfitc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034202_com.zhihu.android.jpg</strong> (172.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034541jk838oaaak1ax8aj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034207_com.zhihu.android.jpg</strong> (204.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034542yllht7d2ele700ut.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034215_com.zhihu.android.jpg</strong> (197.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034542ejpy5kuk1j2z1pnw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034220_com.zhihu.android.jpg</strong> (210.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034542rt069tt9ctg8w8gu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034229_com.zhihu.android.jpg</strong> (256.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034543xak602x359h99ktg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034234_com.zhihu.android.jpg</strong> (216.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034543akyxkvx55ardv5m4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034240_com.zhihu.android.jpg</strong> (231.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034543sznti7e4e79it7is.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034244_com.zhihu.android.jpg</strong> (247.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034544go337z3h424b4pa7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034248_com.zhihu.android.jpg</strong> (162.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034544ksgz59wd5z5gaajd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034252_com.zhihu.android.jpg</strong> (177.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034544palaaqylht1rely0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034256_com.zhihu.android.jpg</strong> (211.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034545zo3ki93dkdfwdwo3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034301_com.zhihu.android.jpg</strong> (223.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034545vaxblcbmmmctba6a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034308_com.zhihu.android.jpg</strong> (196.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034545qeew9et80wujzujm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034312_com.zhihu.android.jpg</strong> (160.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034545aubjbiu0xdl8lhcb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034318_com.zhihu.android.jpg</strong> (217.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034546gg4245v3sfviqfsq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034325_com.zhihu.android.jpg</strong> (240.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034546bylpcca9e5qy9cyn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034330_com.zhihu.android.jpg</strong> (185.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034546sb0wmwdwbud1qirb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034335_com.zhihu.android.jpg</strong> (164.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034546tss0c00cbu8s9b8u.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034341_com.zhihu.android.jpg</strong> (216.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034547ftxfiea4eufl4tl4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034347_com.zhihu.android.jpg</strong> (219.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034547hghhhjfgh26lb9gm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034352_com.zhihu.android.jpg</strong> (195.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034547mhpttrzi6pr3u3ha.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034356_com.zhihu.android.jpg</strong> (202.28 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/034548wdx3jx3xp77j4pq4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_034400_com.zhihu.android.jpg</strong> (167.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-14 03:45 上传
+

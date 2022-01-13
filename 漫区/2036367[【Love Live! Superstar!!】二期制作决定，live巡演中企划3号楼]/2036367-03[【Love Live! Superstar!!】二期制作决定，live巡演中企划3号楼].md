@@ -13360,3 +13360,15 @@ Liyuu STAFF
 
 李艺彤居然还发了唱小星星和nonfiction的投稿
 
+
+
+*****
+
+####  cat1230  
+##### 4157#       发表于 2022-1-14 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54280164&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-13 23:48</a>
+
+李艺彤居然还发了唱小星星和nonfiction的投稿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">唱的真好听啊，还特意模仿了5个人的声线来唱。星团动画没少追。内娱正统偶像的实力啊。
+

@@ -5229,3 +5229,40 @@ U.S. COVID update: Cases and hospitalizations at record-high, deaths rising</blo
 还没到冷藏车环节，形势还不严峻</blockquote>
 [Eskenazi using refrigerated truck to store the dead](https://cbs4indy.com/news/eskenazi-using-refrigerated-truck-to-store-the-dead-as-covid-19-hospitalizations-reach-record-levels/)
 
+
+
+*****
+
+####  Alexmacau8  
+##### 3410#       发表于 2022-1-14 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54280699&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-14 00:35</a>
+ny和英国看起来高峰已经过去了
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求别奶，隔壁魔都就是被奶出事了。这两天数据来看，怎么都是到检测极限了。
+
+*****
+
+####  烦死了  
+##### 3411#       发表于 2022-1-14 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54281366&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-14 01:57</a>
+求别奶，隔壁魔都就是被奶出事了。这两天数据来看，怎么都是到检测极限了。 ...</blockquote>
+无可置疑的好消息： 波士顿地区下水道新冠断崖下降<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+'Unambiguously good news': Sharp decline in COVID wastewater levels in Boston area
+
+[https://www.wbur.org/news/2022/0 ... el-decline-new-data](https://www.wbur.org/news/2022/01/12/wastewater-covid-level-decline-new-data)
+
+*****
+
+####  vimisbesteditor  
+##### 3412#       发表于 2022-1-14 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54281366&amp;ptid=2039422" target="_blank">Alexmacau8 发表于 2022-1-14 01:57</a>
+求别奶，隔壁魔都就是被奶出事了。这两天数据来看，怎么都是到检测极限了。 ...</blockquote>
+ny下降的是检测阳性率，难道还有其他解释不成？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
