@@ -5178,3 +5178,42 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 
 2022-1-13 13:23 上传
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3406#       发表于 2022-1-14 00:35
+
+ny和英国看起来高峰已经过去了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  pushare  
+##### 3407#       发表于 2022-1-14 00:35
+
+住院15万了
+
+U.S. COVID update: Cases and hospitalizations at record-high, deaths rising
+
+- New cases: 908,916
+- Average: 791,803 (+27,457)
+- States reporting: 50/50
+- In hospital: 150,119 (+4,247)
+- ICU: 25,170 (+557)
+- New deaths: 2,665
+- Average: 1,817 (+95)
+
+*****
+
+####  最好不说  
+##### 3408#       发表于 2022-1-14 00:39
+
+<blockquote>pushare 发表于 2022-1-14 00:35
+住院15万了
+
+U.S. COVID update: Cases and hospitalizations at record-high, deaths rising</blockquote>
+还没到冷藏车环节，形势还不严峻
+
