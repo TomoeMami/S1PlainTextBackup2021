@@ -1850,3 +1850,29 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 这人头数，我一个看不懂的都只能说建议15投了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冬瓜饭  
+##### 7721#       发表于 2022-1-13 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54274641&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2022-1-13 16:22</a>
+
+这人头数，我一个看不懂的都只能说建议15投了
+
+结果还是打了差不多半小时，什么顽强精神
+
+ ...</blockquote>
+水友赛不就是看能不能多打咩么
+
+*****
+
+####  时间在我手中  
+##### 7722#       发表于 2022-1-13 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54274824&amp;ptid=2018830" target="_blank">冬瓜饭 发表于 2022-1-13 16:37</a>
+
+水友赛不就是看能不能多打咩么</blockquote>
+我还以为直播打排位呢，原来是水友赛啊，那给老子往死里打<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">打到哭最好
+
