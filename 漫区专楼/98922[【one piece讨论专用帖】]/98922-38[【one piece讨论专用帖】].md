@@ -10310,3 +10310,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 如果象主真吃果实那是怎么在海里走的
 
+
+
+*****
+
+####  24k纯帅  
+##### 56318#       发表于 2022-1-13 20:10
+
+万一是锦卫门的果实呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，就不能娱乐一点吗，
+
