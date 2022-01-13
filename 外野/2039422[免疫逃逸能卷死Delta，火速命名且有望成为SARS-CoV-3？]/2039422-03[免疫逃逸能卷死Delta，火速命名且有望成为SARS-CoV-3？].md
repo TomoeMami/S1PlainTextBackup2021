@@ -5217,3 +5217,15 @@ U.S. COVID update: Cases and hospitalizations at record-high, deaths rising
 U.S. COVID update: Cases and hospitalizations at record-high, deaths rising</blockquote>
 还没到冷藏车环节，形势还不严峻
 
+
+
+*****
+
+####  jxwats1  
+##### 3409#       发表于 2022-1-14 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54280740&amp;ptid=2039422" target="_blank">最好不说 发表于 2022-1-14 00:39</a>
+
+还没到冷藏车环节，形势还不严峻</blockquote>
+[Eskenazi using refrigerated truck to store the dead](https://cbs4indy.com/news/eskenazi-using-refrigerated-truck-to-store-the-dead-as-covid-19-hospitalizations-reach-record-levels/)
+
