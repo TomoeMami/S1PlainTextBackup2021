@@ -1817,3 +1817,36 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 狂小麻出道了
 
+
+
+*****
+
+####  T_Hb  
+##### 7717#       发表于 2022-1-13 16:09
+
+有点惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7718#       发表于 2022-1-13 16:14
+
+主要问题是腰子确实不太好打盖伦……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">盖伦朴实无华的技能
+
+*****
+
+####  T_Hb  
+##### 7719#       发表于 2022-1-13 16:16
+
+ 本帖最后由 T_Hb 于 2022-1-13 16:24 编辑 
+
+已经不想玩了，只有波比是永远的家
+追了半条街，给别人刮了一下血皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 7720#       发表于 2022-1-13 16:22
+
+这人头数，我一个看不懂的都只能说建议15投了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

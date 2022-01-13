@@ -10220,3 +10220,17 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 对面可是四皇啊,这都没让路飞憋出觉醒吗?那看来真的要面子果实来激发吗 ...</blockquote>
 路飞现在可以拿回以前还没想搞大长篇前一拳超人的形态了
 
+
+
+*****
+
+####  fmchar  
+##### 56310#       发表于 2022-1-13 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54267994&amp;ptid=98922" target="_blank">萝卜roto 发表于 2022-1-13 00:30</a>
+
+刚开始雷鸣八卦直接秒4档，现在无档硬抗毛事没有。。这个lv是开了金手指升级的吧
+
+—— 来自 Xiaomi M2007J ...</blockquote>
+难道霸缠也加防御？那么就是霸王色+武装色双层魔法护盾，外加路飞橡胶果实高钝击抗性以及开挂似的长血条，这防御的确IMBA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
