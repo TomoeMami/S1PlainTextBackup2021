@@ -13008,3 +13008,76 @@ PAY（模仿锦鲤长谷川）:KONNICHIWAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<img
 
 她们肯定经常捏经常抱的啦，有镜头都不在意的
 
+
+
+*****
+
+####  saya1892  
+##### 4130#       发表于 2022-1-13 09:47
+
+<blockquote>0029 名無しで叶える物語(SB-iPhone) 2022/01/13 01:35:16
+
+ラ板民
+
+身長
+
+学歴
+
+美貌
+
+年収
+
+歌唱力
+
+身体能力
+
+コミュ力
+
+語学力
+
+何一つLiyuuに勝てるところがない
+
+0031 名無しで叶える物語(しまむら) 2022/01/13 02:31:00
+
+体重と胸囲では勝ってるわ
+
+0033 名無しで叶える物語(ささかまぼこ) 2022/01/13 02:57:33
+
+&gt;&gt;29
+
+ライバー歴も
+
+0038 名無しで叶える物語(茸) 2022/01/13 08:23:17
+
+日本語力が最後の砦
+
+ 1
+
+ID:4YqX3nz3
+
+0039 名無しで叶える物語(光) 2022/01/13 08:25:50
+
+&gt;&gt;38
+
+ラ板民なら日本語力も負けてるかもしれない…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4131#       发表于 2022-1-13 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54266857&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-12 22:51</a>
+
+群里的回复是：树袋熊抱树</blockquote>
+图来了
+
+85544D5F-5C1B-4B10-A409-829A4E982AEA.jpeg
+(101.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 09:50 上传
+
+<img src="https://img.saraba1st.com/forum/202201/13/095047fgcpx7ymokchmzzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
