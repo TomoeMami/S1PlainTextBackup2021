@@ -1645,3 +1645,27 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 开始了就是不会图奇了，安心睡觉
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7697#       发表于 2022-1-13 08:15
+
+两个小时前黄金4了……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/13/081503xnn88a5l5636a1nq.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220113081452244.jpg</strong> (5.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 08:15 上传
+
+*****
+
+####  T_Hb  
+##### 7698#       发表于 2022-1-13 08:18
+
+牛
+
