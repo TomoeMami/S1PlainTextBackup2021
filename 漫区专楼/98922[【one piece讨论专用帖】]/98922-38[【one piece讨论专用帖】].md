@@ -10183,3 +10183,14 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Algie  
+##### 56306#       发表于 2022-1-13 15:04
+
+画的是个啥啊，路飞凭什么赢啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

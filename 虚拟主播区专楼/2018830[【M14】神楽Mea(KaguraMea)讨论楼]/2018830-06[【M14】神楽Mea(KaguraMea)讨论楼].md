@@ -1730,3 +1730,42 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 也可能是假期结束前的狂欢
 
+
+
+*****
+
+####  T_Hb  
+##### 7706#       发表于 2022-1-13 15:14
+
+ 本帖最后由 T_Hb 于 2022-1-13 15:15 编辑 
+
+图奇了，一天要打10个小时101,睡醒了就开始101<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 7707#       发表于 2022-1-13 15:16
+
+炒鸡上瘾啊，看来过个元旦爹妈+亲戚过来一趟什么游戏都没玩上憋坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7708#       发表于 2022-1-13 15:17
+
+黄金也要拿出来晒一晒
+
+*****
+
+####  2014720  
+##### 7709#       发表于 2022-1-13 15:18
+
+游戏废人真是…
+
+*****
+
+####  时间在我手中  
+##### 7710#       发表于 2022-1-13 15:19
+
+该死的撸狗肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">当工作BGM了啧
+
