@@ -7880,3 +7880,17 @@ TV结局光恋共同闪耀以外还有一点是实际上没有任何人的闪耀
 
 原以为会有戒断反应，拖到今天才补完，看完感觉就像是喝了很烈的酒，变成了一只完全燃尽的蔬菜长颈鹿<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ardito  
+##### 601#       发表于 2022-1-13 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54266554&amp;ptid=2043629" target="_blank">pokemon最爱 发表于 2022-1-12 22:29</a>
+
+我也这么觉得，其他4场1对1Revue其实本质也是在暗喻光恋之间的事。
+
+进一步猜想，会不会剧场版里99组一开 ...</blockquote>
+说摆烂的话，这6个人除了蕉纯志愿都没变啊，要算被阿蕉打了才能录取么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
