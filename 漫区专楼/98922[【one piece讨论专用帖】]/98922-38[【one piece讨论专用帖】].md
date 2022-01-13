@@ -10234,3 +10234,44 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 —— 来自 Xiaomi M2007J ...</blockquote>
 难道霸缠也加防御？那么就是霸王色+武装色双层魔法护盾，外加路飞橡胶果实高钝击抗性以及开挂似的长血条，这防御的确IMBA<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  proselyte  
+##### 56311#       发表于 2022-1-13 17:07
+
+象主是不是真吃了果实啊
+
+*****
+
+####  蔺无双  
+##### 56312#       发表于 2022-1-13 17:41
+
+路飞还好了，霸缠学会至少某种意义上可以抵挡或者减轻对面霸缠的伤害，可以抗这么久不算太离谱，而且凯老师明显打了这么久体力跟不上了
+
+要说离谱，还得是山治和索隆，尤其是索隆，有点机械降神的意思了
+
+*****
+
+####  天使的日曜日  
+##### 56313#       发表于 2022-1-13 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54273887&amp;ptid=98922" target="_blank">Freemasons 发表于 2022-1-13 15:20</a>
+
+路飞战力学且不讨论，和之国到现在到底是挖的坑多还是填的坑多？最近几话看下来感觉还是全员谜语人 ...</blockquote>
+本来以为五老星已经是政府高层了
+
+结果这话才得知原来连他们都不知道政府为什么要这么做balabala
+
+合着也只是个传话筒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陶矢  
+##### 56314#       发表于 2022-1-13 17:47
+
+ 本帖最后由 陶矢 于 2022-1-13 17:48 编辑 
+
+索隆先干基拉，后面联手超新星抗二皇怒斩凯多，砍了大妈的云彩，秒杀烬这个战绩我方阵营第一了应该是
+
