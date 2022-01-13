@@ -11011,3 +11011,22 @@ c妈带个强解，还是重要的
 一页之内三个欧皇，请问这里就是欧洲么？</blockquote>
 这里都是欧狗，只有我一个非洲难民<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 86570#       发表于 2022-1-13 19:18
+
+海豹专楼就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86571#       发表于 2022-1-13 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54276771&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-1-13 19:18</a>
+
+海豹专楼就是这样的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">笑什么笑你也是豹豹
+
