@@ -10963,3 +10963,15 @@ faker这个120自冲也夸张了，我印象里只有部分caster职介的从者
 faker这个120自冲也夸张了，我印象里只有部分caster职介的从者有这种巨额自冲 ...</blockquote>
 然而本质不就是个伤害正常的大号c妈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 86565#       发表于 2022-1-13 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54268673&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-1-13 03:37</a>
+然而本质不就是个伤害正常的大号c妈</blockquote>
+c妈带个强解，还是重要的
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
