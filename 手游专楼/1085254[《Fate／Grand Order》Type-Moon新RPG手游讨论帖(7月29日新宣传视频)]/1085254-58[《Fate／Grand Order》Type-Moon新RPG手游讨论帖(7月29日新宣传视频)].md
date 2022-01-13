@@ -11030,3 +11030,15 @@ c妈带个强解，还是重要的
 海豹专楼就是这样的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">笑什么笑你也是豹豹
 
+
+
+*****
+
+####  rooarr  
+##### 86572#       发表于 2022-1-13 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54276851&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-13 19:26</a>
+
+笑什么笑你也是豹豹</blockquote>
+我是保底的海豹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
