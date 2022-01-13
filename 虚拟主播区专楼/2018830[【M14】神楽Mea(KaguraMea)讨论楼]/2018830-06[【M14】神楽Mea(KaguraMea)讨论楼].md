@@ -1712,3 +1712,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 一晚上又打了9局，难以想象她的作息
 
+
+
+*****
+
+####  rosevalley46  
+##### 7704#       发表于 2022-1-13 12:30
+
+不是,当时都说那个企划起码能让这吊人半年忙一点规律一点,怎么反而变成专业电竞选手作息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
