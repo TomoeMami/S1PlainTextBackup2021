@@ -10975,3 +10975,12 @@ faker这个120自冲也夸张了，我印象里只有部分caster职介的从者
 c妈带个强解，还是重要的
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86566#       发表于 2022-1-13 10:05
+
+不抽了，攒石等周年，现在攒石到周年怕是能凑够一井，看看到时候到底会不会出人王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
