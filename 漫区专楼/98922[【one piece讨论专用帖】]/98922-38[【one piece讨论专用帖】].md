@@ -10194,3 +10194,29 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Freemasons  
+##### 56307#       发表于 2022-1-13 15:20
+
+路飞战力学且不讨论，和之国到现在到底是挖的坑多还是填的坑多？最近几话看下来感觉还是全员谜语人
+
+*****
+
+####  owada  
+##### 56308#       发表于 2022-1-13 15:21
+
+对面可是四皇啊,这都没让路飞憋出觉醒吗?那看来真的要面子果实来激发吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  武男  
+##### 56309#       发表于 2022-1-13 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54273897&amp;ptid=98922" target="_blank">owada 发表于 2022-1-13 15:21</a>
+
+对面可是四皇啊,这都没让路飞憋出觉醒吗?那看来真的要面子果实来激发吗 ...</blockquote>
+路飞现在可以拿回以前还没想搞大长篇前一拳超人的形态了
+
