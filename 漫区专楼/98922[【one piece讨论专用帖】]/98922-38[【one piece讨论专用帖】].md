@@ -10275,3 +10275,29 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 索隆先干基拉，后面联手超新星抗二皇怒斩凯多，砍了大妈的云彩，秒杀烬这个战绩我方阵营第一了应该是
 
+
+
+*****
+
+####  svmkty  
+##### 56315#       发表于 2022-1-13 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54275714&amp;ptid=98922" target="_blank">蔺无双 发表于 2022-1-13 17:41</a>
+
+路飞还好了，霸缠学会至少某种意义上可以抵挡或者减轻对面霸缠的伤害，可以抗这么久不算太离谱，而且凯老师 ...</blockquote>
+看看路飞就知道霸缠这个技能加成太厉害了
+
+*****
+
+####  yario  
+##### 56316#       发表于 2022-1-13 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54275781&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2022-1-13 17:45</a>
+
+本来以为五老星已经是政府高层了
+
+结果这话才得知原来连他们都不知道政府为什么要这么做balabala
+
+合着也只 ...</blockquote>
+从上次跪那个伊姆就感觉他们逼格下来了。。。
+

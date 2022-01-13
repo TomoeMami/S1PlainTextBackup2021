@@ -13201,3 +13201,17 @@ ins发了个sunnypa追加演出的预热小视频，她们两个手里的应援�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  名津流  
+##### 4141#       发表于 2022-1-13 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54270976&amp;ptid=2036367" target="_blank">你妈的为什么 发表于 2022-1-13 11:13</a>
+
+communication力
+
+commu力</blockquote>
+意译来讲的话应该翻译成社交能力吧
+
