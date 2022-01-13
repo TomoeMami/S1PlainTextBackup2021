@@ -13097,3 +13097,50 @@ ID:4YqX3nz3
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  优妮可  
+##### 4133#       发表于 2022-1-13 11:08
+
+<img src="https://img.saraba1st.com/forum/202201/13/110851y403jzze3pyft3mh.jpg" referrerpolicy="no-referrer">
+
+<strong>20220113_110554.jpg</strong> (78.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 11:08 上传
+
+*****
+
+####  Karin11974  
+##### 4134#       发表于 2022-1-13 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54270615&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-13 10:46</a>
+@saya1892
+
+语学力上面那个片假名是啥力？</blockquote>
+コミュニケション
+沟通能力吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  你妈的为什么  
+##### 4135#       发表于 2022-1-13 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54270615&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-13 10:46</a>
+
+@saya1892
+
+语学力上面那个片假名是啥力？</blockquote>
+communication力
+
+commu力
+
+沟通能力
+
+片假名，很奇妙吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
