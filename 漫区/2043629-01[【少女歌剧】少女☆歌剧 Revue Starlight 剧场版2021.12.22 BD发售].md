@@ -7777,3 +7777,17 @@ TV结局华恋也只是和光互为闪耀而已，其他人从始至终都没能
 
 实际上只是电影的穿插和叙述，并不存在wild screen baroque被真的打断了，因为没有幕间，也没有打断（x
 
+
+
+*****
+
+####  pokemon最爱  
+##### 596#       发表于 2022-1-13 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54268173&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-13 01:01</a>
+
+TV结局华恋也只是和光互为闪耀而已，其他人从始至终都没能介入进去。而且剧场版也并非人人都摆烂的局面， ...</blockquote>
+TV结局光恋共同闪耀以外还有一点是实际上没有任何人的闪耀被Revue夺走啊。
+
+我是基于这点认为99组的闪耀被绑定在了一起，因此其他人会受到光恋状态的影响。
+
