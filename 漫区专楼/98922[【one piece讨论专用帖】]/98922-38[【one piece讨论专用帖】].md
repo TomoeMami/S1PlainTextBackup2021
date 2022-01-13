@@ -10319,3 +10319,16 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 万一是锦卫门的果实呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，就不能娱乐一点吗，
 
+
+
+*****
+
+####  zxzx7753  
+##### 56319#       发表于 2022-1-13 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54276788&amp;ptid=98922" target="_blank">chaoslee 发表于 2022-1-13 19:21</a>
+如果象主真吃果实那是怎么在海里走的</blockquote>
+没游泳只是走而已
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
