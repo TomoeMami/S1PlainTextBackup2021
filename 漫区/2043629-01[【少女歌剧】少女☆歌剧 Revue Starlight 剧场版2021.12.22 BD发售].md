@@ -7837,3 +7837,21 @@ TV结局光恋共同闪耀以外还有一点是实际上没有任何人的闪耀
 
 虽然我不是迷宫人，不过这两句双关歌词也真的很喜欢，好像到现在也没见专楼有人专门提，坛友一起吹爆啊啊啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  钱如命  
+##### 599#       发表于 2022-1-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54273918&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-13 15:22</a>
+
+如果你玩手游的话就会知道，克洛之前和光打过一场，那时候光已经像露光战的时候一样梦游了。
+
+打完之后克 ...</blockquote>
+我觉得手游大主线不太能和剧场版算在一个世界线吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+好像手游的主线就是从恋哥演完starlight以后陷入空虚开始的，我印象里这个问题应该已经解决过了（）
+
+现在塔罗主线里恋哥不是无比坚定地要在舞台等待阿露露的超人吗，感觉和剧场版塑造不太对得上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
