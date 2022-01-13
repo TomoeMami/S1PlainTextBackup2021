@@ -7855,3 +7855,28 @@ TV结局光恋共同闪耀以外还有一点是实际上没有任何人的闪耀
 
 现在塔罗主线里恋哥不是无比坚定地要在舞台等待阿露露的超人吗，感觉和剧场版塑造不太对得上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 600#       发表于 2022-1-13 22:40
+
+<img src="https://img.saraba1st.com/forum/202201/13/223637l4n724gmxsz7wx3g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202201/13/223727auor0wxzq1asecry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 22:37 上传
+
+原以为会有戒断反应，拖到今天才补完，看完感觉就像是喝了很烈的酒，变成了一只完全燃尽的蔬菜长颈鹿<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
