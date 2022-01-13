@@ -5153,3 +5153,28 @@ pfizer说三月能生产出一亿疫苗，可是到那时候大流行已经结�
 — from Google Pixel 3 XL, Android ...</blockquote>
 打一针没啥坏处
 
+
+
+*****
+
+####  Alexmacau8  
+##### 3405#       发表于 2022-1-13 13:24
+
+才一个月，Delta基本上被卷没了。
+
+<img src="https://img.saraba1st.com/forum/202201/13/132335c9v9uyvyjr5lcyjj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AB5A0842-91D9-49A0-A662-E382030078CB.jpeg</strong> (226.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 13:23 上传
+
+<img src="https://img.saraba1st.com/forum/202201/13/132335t3cppnlgv17nwd33.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>634E1342-CC3D-4E82-AA05-549C3EEF3157.jpeg</strong> (74.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-13 13:23 上传
+
