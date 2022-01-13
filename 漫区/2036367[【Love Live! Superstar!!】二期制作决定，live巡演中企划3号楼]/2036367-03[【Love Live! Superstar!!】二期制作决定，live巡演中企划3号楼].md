@@ -13190,3 +13190,14 @@ commu力
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54270913&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-13 11:08</a></blockquote>
 这衣服也太鲤鱼
 
+
+
+*****
+
+####  竹筷  
+##### 4140#       发表于 2022-1-13 17:39
+
+ins发了个sunnypa追加演出的预热小视频，她们两个手里的应援棒是可可的应援色诶
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
