@@ -12524,3 +12524,17 @@ luca怎么也菲裔了，我塔照都还没看到呢syl
 
 V活相关
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 10073#       发表于 2022-1-13 14:32
+
+ 本帖最后由 酒瓶止迁 于 2022-1-13 14:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54257177&amp;ptid=1972669" target="_blank">free 发表于 2022-1-12 11:25</a>
+[https://www.youtube.com/channel/UCIAwxJQrK-sQA74L5ycKv9g](https://www.youtube.com/channel/UCIAwxJQrK-sQA74L5ycKv9g)
+
+这位是PPH吗，怎么转行搞奥术魔刃了</blockquote>
+消息来源可靠吗= =感觉不太听的出来——好吧第一个还是挺明显的。
+
