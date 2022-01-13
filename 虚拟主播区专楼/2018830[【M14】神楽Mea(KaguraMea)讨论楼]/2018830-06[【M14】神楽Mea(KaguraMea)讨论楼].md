@@ -1694,3 +1694,12 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 这就是电竞玩家的魅力，你们不懂的
 
+
+
+*****
+
+####  时间在我手中  
+##### 7702#       发表于 2022-1-13 10:27
+
+不懂个几把，我在她这年纪一天打个10几小时又不是没试过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在非要说也不是不能做到，但是没必要，因为我想不到有啥奖励或者需要肝的目标了
+
