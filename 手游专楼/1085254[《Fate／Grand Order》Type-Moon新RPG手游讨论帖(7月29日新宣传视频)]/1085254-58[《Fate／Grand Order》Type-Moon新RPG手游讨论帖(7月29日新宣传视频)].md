@@ -10993,3 +10993,21 @@ c妈带个强解，还是重要的
 
 这次增量版应该会加90++的柱子吧 原先的50w在现在的环境已经完全不够看了 随便组了一下 蛾子黑杯三藏枪奶光极地服就80w了 而且感觉伪典那边可能还会加根柱子
 
+
+
+*****
+
+####  holyblood  
+##### 86568#       发表于 2022-1-13 16:52
+
+一页之内三个欧皇，请问这里就是欧洲么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 86569#       发表于 2022-1-13 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54275067&amp;ptid=1085254" target="_blank">holyblood 发表于 2022-1-13 16:52</a>
+一页之内三个欧皇，请问这里就是欧洲么？</blockquote>
+这里都是欧狗，只有我一个非洲难民<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

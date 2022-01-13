@@ -1876,3 +1876,19 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 水友赛不就是看能不能多打咩么</blockquote>
 我还以为直播打排位呢，原来是水友赛啊，那给老子往死里打<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">打到哭最好
 
+
+
+*****
+
+####  T_Hb  
+##### 7723#       发表于 2022-1-13 16:52
+
+还是瓦洛兰特好，打的时候比较温柔，打101就乱怪叫
+
+*****
+
+####  yywzjsw  
+##### 7724#       发表于 2022-1-13 16:52
+
+耳朵要聋了
+
