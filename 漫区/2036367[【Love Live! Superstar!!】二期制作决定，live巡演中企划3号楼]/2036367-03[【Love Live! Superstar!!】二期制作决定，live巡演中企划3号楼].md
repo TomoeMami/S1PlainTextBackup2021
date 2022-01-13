@@ -13081,3 +13081,19 @@ ID:4YqX3nz3
 
 <img src="https://img.saraba1st.com/forum/202201/13/095047fgcpx7ymokchmzzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 4132#       发表于 2022-1-13 10:46
+
+<blockquote>引用第4129楼saya1892于2022-01-13 09:47发表的  :
+
+引用:0029 名無しで叶える物語(SB-iPhone) 2022/01/13 01:35:16ラ板......</blockquote>
+@saya1892
+
+语学力上面那个片假名是啥力？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
