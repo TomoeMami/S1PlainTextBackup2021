@@ -10341,3 +10341,15 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 凯老师真的尽力了，车轮战这么多人还要亲传五黄霸缠，手下又都是些酒囊饭袋，都走不过敌方三个回合，唯一有前途的女儿还是个带孝子，可以说百兽团是凯老师一人成军了
 
+
+
+*****
+
+####  yario  
+##### 56321#       发表于 2022-1-13 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54276109&amp;ptid=98922" target="_blank">svmkty 发表于 2022-1-13 18:16</a>
+
+看看路飞就知道霸缠这个技能加成太厉害了</blockquote>
+有了这个 2档 3档路飞 就能和被消耗的凯多打的五五开 这个加成真的猛
+
