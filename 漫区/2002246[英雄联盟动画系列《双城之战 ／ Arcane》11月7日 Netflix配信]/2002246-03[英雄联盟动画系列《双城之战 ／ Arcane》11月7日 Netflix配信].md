@@ -1288,3 +1288,12 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 <img src="https://p.sda1.dev/4/ddc899ada4608a681eacc9862dfdf72c/thibaut-granet-jinx-turn-gun.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/4/f07184ad7a32a3d0290f6de70a0bebb4/thibaut-granet-jinx-turn-clay-gun.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tide777  
+##### 3106#       发表于 2022-1-14 14:48
+
+这不看白模根本看不出是3d模型啊
+

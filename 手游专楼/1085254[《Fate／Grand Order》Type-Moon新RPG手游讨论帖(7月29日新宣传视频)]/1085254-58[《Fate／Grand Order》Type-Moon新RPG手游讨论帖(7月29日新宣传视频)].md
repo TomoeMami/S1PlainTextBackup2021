@@ -11233,3 +11233,16 @@ t2摩根/暗兔/光兔进场50/105/25
 大概绿卡再出一两个高额自冲或者群冲带伤害宝具的，太公望就能起飞了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86589#       发表于 2022-1-14 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54288015&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-14 14:27</a>
+通古斯的俩人，太公望和暗兔子用下来都挺好使的，我都有点后悔没给太公望捞个2宝
+
+太公望比暗兔子输在绿卡 ...</blockquote>
+常驻等歪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
