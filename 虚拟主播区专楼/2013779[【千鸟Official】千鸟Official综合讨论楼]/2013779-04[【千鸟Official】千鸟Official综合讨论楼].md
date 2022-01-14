@@ -5604,3 +5604,13 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 莫子人寄了，别的也没见你们写<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">主要是想不到有趣的题材也是一点，不要总想着冒菜啦
 
+
+
+*****
+
+####  rgauss  
+##### 5079#       发表于 2022-1-14 09:31
+
+文静:琳，你起床了吗
+琳反手挂断电话
+
