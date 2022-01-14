@@ -12808,3 +12808,14 @@ Vtuber花たんお披露目配信だ〜〜！！
 hnn太难了，三局掉两局，还得关直播
 明明刚换pc没多久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10095#       发表于 2022-1-14 22:25
+
+<blockquote>にじクイとレバガチャの監督って孤独のグルメの人なんだ</blockquote>
+
+阿花说虹机台和quiz的监督是孤独的美食家的监督<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
