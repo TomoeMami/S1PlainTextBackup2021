@@ -12557,3 +12557,22 @@ V活相关
 hnn休息回来菜的一腿
 盾战甚至打不过towa
 
+
+
+*****
+
+####  winda  
+##### 10076#       发表于 2022-1-14 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ras队第一天练习赛0人头进账
+
+<img src="https://img.saraba1st.com/forum/202201/14/114232wcj11t77k9kuj71p.png" referrerpolicy="no-referrer">
+
+<strong>113.png</strong> (276.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 11:42 上传
+
+nrk的直布罗陀一如既往的菜wokka和白馒老师应该深有同感
+

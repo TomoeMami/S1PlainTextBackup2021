@@ -5644,3 +5644,21 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 真的是中国运动服吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 5083#       发表于 2022-1-14 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54284899&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-1-14 11:41</a>
+真的是中国运动服吗</blockquote>
+估计是表情包同款
+
+*****
+
+####  T型钉宫病毒  
+##### 5084#       发表于 2022-1-14 11:58
+
+怎么选了个周一晚上7点，是申请到推荐位了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

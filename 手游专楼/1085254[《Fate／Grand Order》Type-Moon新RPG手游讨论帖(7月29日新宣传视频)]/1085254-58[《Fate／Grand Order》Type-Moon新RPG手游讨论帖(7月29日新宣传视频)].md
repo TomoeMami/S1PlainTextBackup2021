@@ -11042,3 +11042,34 @@ c妈带个强解，还是重要的
 笑什么笑你也是豹豹</blockquote>
 我是保底的海豹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86573#       发表于 2022-1-14 11:51
+
+我发现lga那边的G点了，你只要吹了一个在他们脑内拟定的抽卡计划之外的从者强度，就必定会被喷死，认为你是在逼氪，并想出一万种歪理来反驳推翻你的观点，顺便安慰自己<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 86574#       发表于 2022-1-14 11:56
+
+ 本帖最后由 exiaexa 于 2022-1-14 12:01 编辑 
+
+为了这堆职阶混合本，折腾出了一个，快乐的0礼装不用好友还勉强保证了增伤的阵容
+
+摩根（20）+暗兔（20）+光兔（20）+鹤
+
+t1进场三个打手20/20/20
+
+开暗兔和光兔的技能，OC提升给光兔，摩根和鹤换人，此时鹤/暗兔/光兔 100/50/100
+
+t2摩根/暗兔/光兔进场50/105/25
+
+好处是光兔的红魔放、摩根和暗兔的宝具顺序、衣服增伤都可以随便调整
+
+缺点就是指向性技能太多
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
