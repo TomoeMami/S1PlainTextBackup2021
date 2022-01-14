@@ -12743,3 +12743,31 @@ IMAGINATION vol.4参加者全員『虹色のフリューゲル』
 
 vdk老八+指挥，おばくん密客かせん轰哥打得确实挺有水平的
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10089#       发表于 2022-1-14 20:01
+
+草，又被精准对位到，战姬绝唱翻唱砖是有点香的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  free  
+##### 10090#       发表于 2022-1-14 20:01
+
+ 本帖最后由 free 于 2022-1-14 20:16 编辑 
+
+[https://www.youtube.com/watch?v=0c62htyEVtE](https://www.youtube.com/watch?v=0c62htyEVtE)
+
+Vtuber花たんお披露目配信だ〜〜！！
+
+<img src="https://img.saraba1st.com/forum/202201/14/201609z33z59f89lwa8zwe.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (76.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 20:16 上传
+
