@@ -10585,3 +10585,13 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 答案是御田果实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  懒残和尚  
+##### 56324#       发表于 2022-1-14 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54281688&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-1-14 03:45</a></blockquote>
+这个好多年前在海贼王论坛看过了，这个作者搞了一个系列预测，然后一群人骂作者神经病。
+

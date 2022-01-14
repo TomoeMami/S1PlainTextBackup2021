@@ -7986,3 +7986,15 @@ merge_out.xml
 
 再次感谢您的长文回复分享
 
+
+
+*****
+
+####  堆雪若叶  
+##### 606#         楼主| 发表于 2022-1-14 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54281733&amp;ptid=2043629" target="_blank">unnilennium 发表于 2022-1-14 04:22</a>
+
+百合熊开播当时错过同步追，就一直放着没看，虽然您写这么多但没法参与讨论，挺抱歉于是给您加鹅了[f:135 ...</blockquote>
+啊那剧透了不好意思多写了点其实只是又发病了，不在意也没什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 不过确实少歌是不怎么需要多想就能享受的作品，如何去解读都是出于个人兴趣而已。
+

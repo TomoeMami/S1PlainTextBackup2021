@@ -13372,3 +13372,12 @@ Liyuu STAFF
 李艺彤居然还发了唱小星星和nonfiction的投稿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">唱的真好听啊，还特意模仿了5个人的声线来唱。星团动画没少追。内娱正统偶像的实力啊。
 
+
+
+*****
+
+####  优妮可  
+##### 4158#       发表于 2022-1-14 09:23
+
+李艺彤啊，之前那啥我爱二次元的节目关注过，后来是因为她和粉丝出了什么事取关了。
+
