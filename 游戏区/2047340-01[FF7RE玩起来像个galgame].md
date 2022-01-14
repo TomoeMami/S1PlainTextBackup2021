@@ -578,3 +578,63 @@ SE这个本事还是有的，所以说难听点真就是演出的美学取向问
 我现在的感觉就是台词和演出还好，虽然可能会让布莱希特在坟里转得比克劳德摩托车的轮子还快，但主要还是关卡设计毁了一切
 至于党派问题，我一直觉得爱丽丝是大哥那边的，朋友妻不可欺
 
+
+
+*****
+
+####  hkguty  
+##### 65#       发表于 2022-1-14 23:42
+
+啊这，现在黑tifa的方式还挺新奇的
+
+*****
+
+####  mithralmask  
+##### 66#       发表于 2022-1-14 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54294200&amp;ptid=2047340" target="_blank">处男鉴黄师 发表于 2022-1-14 22:55</a>
+
+你要代入克劳德的话，从五号炉那么高的地方掉下来你的大奶青梅竹马都没在意去找你而是盛装打扮去参加黑佬 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/14/234313zigg3xtt37ygtvy8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220114234143.png</strong> (78.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 23:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/234319sb8b08beo3rw5noe.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220114234203.png</strong> (79.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 23:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/234325h5ff1b8gs8e3eezg.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220114234219.png</strong> (85.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 23:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/234335q6k9klkdd9dluxlk.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220114234235.png</strong> (91.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 23:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/234340flipmk1kutpbt0dz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220114234250.png</strong> (62.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 23:43 上传
+
+相信Cloud的能力就是不在意可还行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

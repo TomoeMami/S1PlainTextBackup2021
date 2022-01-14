@@ -11264,3 +11264,12 @@ t2摩根/暗兔/光兔进场50/105/25
 
 满破出现率上次就自带1张+助战1张都毕业了 这次活动时间长着呢 一直到下月2号 怎么都够了
 
+
+
+*****
+
+####  eyeego  
+##### 86592#       发表于 2022-1-14 23:47
+
+我已经是c狗废人了 闭着眼睛不用选助战实在太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

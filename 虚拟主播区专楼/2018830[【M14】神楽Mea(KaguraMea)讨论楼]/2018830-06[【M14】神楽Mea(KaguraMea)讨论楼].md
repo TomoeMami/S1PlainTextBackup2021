@@ -2414,3 +2414,21 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 wow，这有心论完成度高啊</blockquote>
 慢版月兔 命嫌也很屌
 
+
+
+*****
+
+####  T_Hb  
+##### 7786#       发表于 2022-1-14 23:27
+
+ 本帖最后由 T_Hb 于 2022-1-14 23:29 编辑 
+
+哇，可惜拉了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 7787#       发表于 2022-1-14 23:29
+
+有必要调子弄那么高吗……
+
