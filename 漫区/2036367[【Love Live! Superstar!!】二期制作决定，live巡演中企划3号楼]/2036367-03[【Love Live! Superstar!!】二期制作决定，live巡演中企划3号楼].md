@@ -13965,3 +13965,41 @@ https://www.bilibili.com/video/BV1ES4y1f7UX
 小百合联动LTA的宣传片</blockquote>
 看上去比liyuu有料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 4214#       发表于 2022-1-14 18:49
+
+ 本帖最后由 stygian 于 2022-1-14 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291487&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-1-14 18:42</a>
+
+感觉我们在绕圈子 的确是SME子公司 但是业务不一样 您上面楼可是写的SMA在音乐方面而不是SACRA MU ...</blockquote>
+sma的音乐资源那意思不就是索尼自家的东西么。。。比如说楠木一直那个制作人也不是sacra是sme另外一个子厂牌的
+
+反正意思到就行了，车半小时了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4215#       发表于 2022-1-14 18:50
+
+鱼哭的整个脸都红了
+
+*****
+
+####  cat1230  
+##### 4216#       发表于 2022-1-14 19:01
+
+来自果皇的肯定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 4217#       发表于 2022-1-14 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">鲤鱼铁血缪斯林 肯定很激动啦
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
