@@ -14003,3 +14003,32 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 —— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+
+*****
+
+####  iuhehc  
+##### 4218#       发表于 2022-1-14 19:11
+
+真·私を叶える物語
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 4219#       发表于 2022-1-14 19:29
+
+真好啊
+
+*****
+
+####  saglork  
+##### 4220#       发表于 2022-1-14 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291831&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-1-14 19:07</a>
+鲤鱼铁血缪斯林 肯定很激动啦
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+算不上吧，她还喜欢mari和爱喵，真缪斯林哪可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

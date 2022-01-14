@@ -5726,3 +5726,14 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 我怎么有20张贴纸啊 有这么多吗</blockquote>
 一期后面绝版了 剩下的陪货全塞补货的这档了 当然其他值点钱的也不兴多塞.
 
+
+
+*****
+
+####  藤原银  
+##### 5091#       发表于 2022-1-14 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">文静居然玩魔塔
+
+不知道文静是不是在圈子里。如果在圈子里的话那可能这是我离静姨最近的一次<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
