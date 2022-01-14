@@ -12689,3 +12689,57 @@ vshojo现在皮套已经比虹杏都好看了啊
 
 肆ノ島來世这个v得播多久能回本<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 10087#       发表于 2022-1-14 19:49
+
+[https://twitter.com/RKMusic_inc/status/1481944221531602945](https://twitter.com/RKMusic_inc/status/1481944221531602945)
+
+参加アーティスト・収録曲
+
+獅子神レオナ『正義を信じて、握り締めて』
+
+道明寺ここあ『月煌ノ剣』
+
+Kotone(天神子兎音)『Bye-Bye Lullaby』
+
+朝ノ瑠璃『銀腕・アガートラーム』
+
+MaiR『ジェノサイドソウ・ヘブン』
+
+VESPERBELL カスカ『デンジャラス・サンシャイン』
+
+凪原涼菜『歪鏡・シェンショウジン』
+
+VESPERBELL ヨミ『殲琴・ダウルダブラ』
+
+おめがシスターズ『不死鳥のフランメ』
+
+朝ノ瑠璃 ＆ MaiR『星天ギャラクシィクロス』
+
+道明寺ここあ ＆ VESPERBELL『RADIANT FORCE』
+
+Kotone(天神子兎音) ＆ 獅子神レオナ ＆ 凪原涼菜『旋律ソロリティ』
+
+IMAGINATION vol.4参加者全員『虹色のフリューゲル』
+
+<img src="https://img.saraba1st.com/forum/202201/14/194931zajqafzjilzdm7n7.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (460.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 19:49 上传
+
+*****
+
+####  alcoholic1000  
+##### 10088#       发表于 2022-1-14 19:52
+
+有点看够cr了，昨天就跟了一局おばくん、vdk和かせん的吃鸡局
+
+vdk老八+指挥，おばくん密客かせん轰哥打得确实挺有水平的
+
