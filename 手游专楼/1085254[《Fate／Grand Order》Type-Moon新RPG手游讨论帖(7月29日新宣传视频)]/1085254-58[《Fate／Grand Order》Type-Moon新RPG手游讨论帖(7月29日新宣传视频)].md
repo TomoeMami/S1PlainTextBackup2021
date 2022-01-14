@@ -11215,3 +11215,21 @@ t2摩根/暗兔/光兔进场50/105/25
 
 话说暗狐是真的越用越觉得好用，和道满一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86588#       发表于 2022-1-14 14:27
+
+ 本帖最后由 exiaexa 于 2022-1-14 14:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54287537&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-14 14:05</a>
+
+话说暗狐是真的越用越觉得好用，和道满一样</blockquote>
+通古斯的俩人，太公望和暗兔子用下来都挺好使的，我都有点后悔没给太公望捞个2宝
+
+太公望比暗兔子输在绿卡强力的高额自冲实在是太少了
+
+大概绿卡再出一两个高额自冲或者群冲带伤害宝具的，太公望就能起飞了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
