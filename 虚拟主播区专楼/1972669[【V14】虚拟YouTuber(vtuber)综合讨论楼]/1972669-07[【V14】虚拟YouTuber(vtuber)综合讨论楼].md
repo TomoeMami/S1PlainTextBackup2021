@@ -12837,3 +12837,14 @@ hnn太难了，三局掉两局，还得关直播
 
 老伦敦地道熊猫B站快银盾了，中国市场还是大。
 
+
+
+*****
+
+####  cyanwow  
+##### 10098#       发表于 2022-1-15 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295058&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-15 00:27</a>
+肆ノ島來世今天首播就差不多要万粉了，名画师+精致皮还是顶啊。不知道特出来没，虽然皮确实色但中之人是女 ...</blockquote>
+首播听着中之人像是女的，尤其轻笑的时候非常女性化。最主要是我看首播没有感受到看他小视频时候的冲动感，可能大脑也认为他其实不是男的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

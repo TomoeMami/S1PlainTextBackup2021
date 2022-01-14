@@ -14137,3 +14137,17 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 求个链接，对管人完全不懂怎么搜都不知道。</blockquote>
 原视频已经删了，不想给这玩意引流就不发名字了，可以看看这个部分对比视频BV1oq4y1y7Va
 
+
+
+*****
+
+####  cat1230  
+##### 4231#       发表于 2022-1-15 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295366&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-15 01:08</a>
+
+原视频已经删了，不想给这玩意引流就不发名字了，可以看看这个部分对比视频BV1oq4y1y7Va ...</blockquote>
+感谢。
+
+顺便刚刚刷B站看到有人上传了个老视频，以前鲤鱼在国内舞台上唱歌[[https://www.bilibili.com/video/BV11r4y1Y7gV](https://www.bilibili.com/video/BV11r4y1Y7gV)]▸，喊着跟我HIGH起来好吗。导播很专业的切到台下画面，结果下面都没人理她，应援棒都没有几根。想想现在都能在生日当天live上玩荧光棒吹蜡烛了，真是感慨啊。 
+
