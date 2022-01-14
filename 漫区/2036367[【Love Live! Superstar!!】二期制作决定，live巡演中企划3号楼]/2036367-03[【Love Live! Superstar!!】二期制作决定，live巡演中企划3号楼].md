@@ -13672,3 +13672,21 @@ sayu的服装联动图出了，感觉男生穿也没什么问题，想 ...</bloc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">裤袜原设没必要中之人也走这种路线啊
 
+
+
+*****
+
+####  chenflyyy  
+##### 4187#       发表于 2022-1-14 16:51
+
+我也觉得sayu不太适合走中性风，她这身材和肉脸帅起来有点难，不过中性风也有好处，就是联动出的衣服我这种宅男买来穿也问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4188#       发表于 2022-1-14 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nako明明有nakosuki火火火的串，也盖了好几串了
+
+虽然初衷是甲鱼串后面变成DD串，但总归还是以nako为主的
+
