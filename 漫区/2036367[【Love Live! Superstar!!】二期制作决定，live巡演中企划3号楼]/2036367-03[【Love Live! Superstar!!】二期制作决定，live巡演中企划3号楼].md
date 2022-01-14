@@ -13506,3 +13506,63 @@ Liyuu STAFF
 
 但横向对比下爱回美人谷懒女士还是要感叹下酬勤这个说法总归是有意义的
 
+
+
+*****
+
+####  cat1230  
+##### 4171#       发表于 2022-1-14 15:46
+
+<blockquote>引用第4169楼stygian于2022-01-14 15:27发表的  :
+
+虽然说混艺能界努力这词听的耳朵都能起茧子但横向对比下爱回美人谷懒女士还是要感叹下酬勤这个说法总归是有......</blockquote>
+@stygian
+
+阿兰就是家庭太好+运气太好+自身条件太好。小公主躺着也有富足的生活何必刻苦拼命在娱乐圈摸爬呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能说人各有志，她自己过得开心就好。鲤鱼条件各方面没得比。运气勉强算抓住末班车了，真是万幸啊。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 4172#       发表于 2022-1-14 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54288854&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-14 15:12</a>
+鲤鱼开盘前黑子多也就论坛贴吧，这些地方基本不待见cos
+虽然明明我看泥潭对一只萌撸的飞起。欧金金的每周瑟 ...</blockquote>
+恰恰相反吧，要是一个走卖肉风格的coser要入偶像企划那哪怕是我也会犯嘀咕。
+（其实enako配过音，和伊织萌一样都在漫改真人跑过龙套）
+
+*****
+
+####  cat1230  
+##### 4173#       发表于 2022-1-14 15:51
+
+卖肉cos只要该有的业务能力足够就没问题吧，小鹿不是进组前也是拍写真的么，尺度也非常大。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  仟音一心  
+##### 4174#       发表于 2022-1-14 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289475&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-14 15:51</a>
+卖肉cos只要该有的业务能力足够就没问题吧，小鹿不是进组前也是拍写真的么，尺度也非常大。
+
+----发送自 Xi ...</blockquote>
+不完全是尺度和业务能力的问题，做到enako和伊织萌这个级别的coser你会发现她们是非常忙的，各种场来回跑，要是入企划等于要舍弃相当多的时间去练歌舞配音，对本人来说无疑是亏的。
+
+*****
+
+####  优妮可  
+##### 4175#       发表于 2022-1-14 16:09
+
+<img src="https://img.saraba1st.com/forum/202201/14/160915uoporhr38plqhffr.jpg" referrerpolicy="no-referrer">
+
+<strong>20220114_160525.jpg</strong> (459.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 16:09 上传
+
