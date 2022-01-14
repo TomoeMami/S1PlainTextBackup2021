@@ -14041,3 +14041,14 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎呀 毕竟是dd嘛
 
+
+
+*****
+
+####  chenflyyy  
+##### 4222#       发表于 2022-1-14 21:13
+
+明后的追加场应该是能正常开的吧，这么看星1st相对来说比较幸运，在日本疫情相对缓和下开展，期间没有被取消的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+按这个趋势估计没几天就又要紧急事态了，那下周的菜宝的r3怕是要没了，星2nd离得比较久难说，但大概也危了
+
