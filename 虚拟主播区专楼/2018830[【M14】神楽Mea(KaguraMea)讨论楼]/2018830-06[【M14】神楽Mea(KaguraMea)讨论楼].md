@@ -2192,3 +2192,28 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 但是这人不练啊 另一个号一眼过去排位和匹配基本都是波比 然后日服opgg波比现在又是T1 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是看打野，打野不行输一半
 
+
+
+*****
+
+####  汇聚群光  
+##### 7759#       发表于 2022-1-14 17:31
+
+下周中午播啥？
+
+*****
+
+####  时间在我手中  
+##### 7760#       发表于 2022-1-14 17:35
+
+打撸啊，这东西我是真的不懂，偶尔播播还能看看或者挂着听，这周这种强度我是真的顶不住
+
+*****
+
+####  T_Hb  
+##### 7761#       发表于 2022-1-14 17:41
+
+ 本帖最后由 T_Hb 于 2022-1-14 17:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时间看看，没时间不看了呗，101又没啥不血亏的内容
+
