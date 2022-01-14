@@ -13585,3 +13585,90 @@ Liyuu STAFF
 刚好昨天爬了1号楼，前面十几二十页真是群魔乱舞</blockquote>
 同好奇去爬了前面20楼，好有意思的感觉，抽空慢慢爬完。谢推荐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 4178#       发表于 2022-1-14 16:30
+
+打铁也开始接工商了，可以可以，团里好像就nako没什么活啊，这事务所不太行啊
+
+*****
+
+####  lj205  
+##### 4179#       发表于 2022-1-14 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289713&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-14 16:09</a></blockquote>
+星团的私服设定是真不错
+
+*****
+
+####  星降る森  
+##### 4180#       发表于 2022-1-14 16:31
+
+星团中之人几乎都是素人哪能传出什么风评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鲤鱼一是coser二是外国人年龄相对于企划还偏大（而且还是企划第一个直接确定的成员，其他四人都是参加终选的），所以集中了最多的质疑。
+
+现在鲤鱼现场无修唱歌稳定度碾压大量声优，算是打了很多人的脸，配音表现也不错，可以说是远超预期，也扭转了很多人的看法。
+
+5ch，串最长的就鲤鱼和小百合，其他3人几乎可以忽略不计。那边对小百合非常苛刻，对鲤鱼评价倒比国内某些人还正常（除去个别中国黑以外，都是被鲤鱼表现折服的），上次微博那个撕逼，评论毒的可以说5ch都没出现过。
+
+现在看星团，就是觉得运营是积了几辈子德，能抽到5张UR的
+
+*****
+
+####  stygian  
+##### 4181#       发表于 2022-1-14 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289965&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-14 16:30</a>
+
+打铁也开始接工商了，可以可以，团里好像就nako没什么活啊，这事务所不太行啊 ...</blockquote>
+之前5ch就一直在说建议赶紧和sks一起跑路
+
+*****
+
+####  cybernetics31  
+##### 4182#       发表于 2022-1-14 16:32
+
+毕竟holy pig…………他们家资源着实不多
+
+*****
+
+####  chenflyyy  
+##### 4183#       发表于 2022-1-14 16:36
+
+就香音穿的裤子，站在中间有种帅气的后宫男主感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+sayu的服装联动图出了，感觉男生穿也没什么问题，想买了
+
+*****
+
+####  player3960  
+##### 4184#       发表于 2022-1-14 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289991&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-14 16:32</a>
+
+之前5ch就一直在说建议赶紧和sks一起跑路</blockquote>
+确实，开个个人广播也好啊，除了星团活动赶紧就查无此人一样，赶紧和咻卡一起移籍算了
+
+*****
+
+####  player3960  
+##### 4185#       发表于 2022-1-14 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290045&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-14 16:36</a>
+
+就香音穿的裤子，站在中间有种帅气的后宫男主感
+
+sayu的服装联动图出了，感觉男生穿也没什么问题，想 ...</blockquote>
+连打铁的工商都要学香音这样偏中性打扮吗，我想看打铁穿小短裙啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4186#       发表于 2022-1-14 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">裤袜原设没必要中之人也走这种路线啊
+
