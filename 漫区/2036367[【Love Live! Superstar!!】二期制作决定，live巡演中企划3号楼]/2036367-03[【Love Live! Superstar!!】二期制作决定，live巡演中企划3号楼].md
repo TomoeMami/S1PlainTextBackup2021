@@ -14178,3 +14178,15 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 动画里完全没高光，中之人又太现充……还有啥新鲜说法？</blockquote>
 提议和可可的娃娃绑定卖<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 4235#       发表于 2022-1-15 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295964&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-01-15 04:23:35</a>
+提议和可可的娃娃绑定卖</blockquote>可恋好耶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
