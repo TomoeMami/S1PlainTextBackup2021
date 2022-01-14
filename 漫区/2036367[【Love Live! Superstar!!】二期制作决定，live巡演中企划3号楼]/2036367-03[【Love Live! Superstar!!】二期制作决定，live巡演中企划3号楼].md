@@ -14052,3 +14052,18 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 按这个趋势估计没几天就又要紧急事态了，那下周的菜宝的r3怕是要没了，星2nd离得比较久难说，但大概也危了
 
+
+
+*****
+
+####  ads147147  
+##### 4223#       发表于 2022-1-14 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54292098&amp;ptid=2036367" target="_blank">saglork 发表于 2022-1-14 19:29</a>
+算不上吧，她还喜欢mari和爱喵，真缪斯林哪可能</blockquote>
+只选一个做不到啊jpg
+
+没有一个阿宅不是dd的--菜宝
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

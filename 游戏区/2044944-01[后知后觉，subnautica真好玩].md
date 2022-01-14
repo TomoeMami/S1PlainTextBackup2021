@@ -643,3 +643,14 @@ Subnautica一周目是真心神作
 
 —— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ground0  
+##### 68#       发表于 2022-1-14 21:31
+
+零度之下是真的不行，把前作的精髓都丢干净了，真要玩单纯的异星探索玩你这玩意儿干嘛
+
+玩的就是深海潜航和水下盖房子，结果二代整个雪原开摩托
+

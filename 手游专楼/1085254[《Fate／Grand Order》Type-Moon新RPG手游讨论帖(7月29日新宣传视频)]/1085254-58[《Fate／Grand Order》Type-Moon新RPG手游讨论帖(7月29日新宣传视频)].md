@@ -11246,3 +11246,12 @@ t2摩根/暗兔/光兔进场50/105/25
 太公望比暗兔子输在绿卡 ...</blockquote>
 常驻等歪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空气蛹  
+##### 86590#       发表于 2022-1-14 21:44
+
+这次活动的出现率礼装要带三张满破么
+

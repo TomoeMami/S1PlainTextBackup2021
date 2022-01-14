@@ -12798,3 +12798,13 @@ Vtuber花たんお披露目配信だ〜〜！！
 
 看过花碳线下live，很歌唱家既视感的体态，人好可爱，请她签名的时候还夸我可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 10094#       发表于 2022-1-14 21:24
+
+hnn太难了，三局掉两局，还得关直播
+明明刚换pc没多久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
