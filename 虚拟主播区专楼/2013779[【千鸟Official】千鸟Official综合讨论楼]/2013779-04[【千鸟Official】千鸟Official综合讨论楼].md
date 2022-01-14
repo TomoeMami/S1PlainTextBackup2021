@@ -5678,3 +5678,15 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 这就是国风新衣装吗，也太 中 国 风 了吧
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5087#       发表于 2022-1-14 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54285192&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2022-1-14 11:58</a>
+
+怎么选了个周一晚上7点，是申请到推荐位了吗</blockquote>
+应该是的，之前不说了忘了申请推荐位给推迟了么
+

@@ -13465,3 +13465,14 @@ Liyuu STAFF
 
 这有什么回顾的必要吗，除了锻炼血压外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4167#       发表于 2022-1-14 14:34
+
+我从星的一巡开始才关注这企划中之人的活动，好奇一开始的风评（上班摸鱼得找点乐子<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">）
+
+缪虹都只看了动画，关注了中之人的活动后才慢慢把以前的活动视频都看一点（缪水虹星的都看）
+
