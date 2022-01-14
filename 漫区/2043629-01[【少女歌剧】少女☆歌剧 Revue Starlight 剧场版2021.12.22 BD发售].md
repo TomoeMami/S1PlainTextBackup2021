@@ -8101,3 +8101,27 @@ merge_out.xml
 
 ……。
 
+
+
+*****
+
+####  钱如命  
+##### 609#       发表于 2022-1-14 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289158&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-14 15:32</a>
+
+剧场版电车彩蛋已经写明了，夏季的时候四校合演的戏剧庆典就是手游的塔罗篇。
+
+所以手游和剧场版是同一个 ...</blockquote>
+其实我主要想说的还是人物塑造对不上的问题233
+
+阿露露线的情况其实某种角度和剧场版光恋遇到的问题有共通之处（当然我认为处理得很有问题）
+
+就是当你是为了对某人的感情踏上舞台（对阿露露来说是被她当做家人的剧团，对恋来说就是光），而那个舞台结束了之后该怎么办。
+
+华恋作为开导角色，没能开导成功，但是给阿露露提供了自己的答案：“我会在舞台上等你。”（然后就把双叶秒了）
+
+我觉得这句话的意思就是恋哥已经想通了，这一切已经结束，接下来追求的依然是舞台本身<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+当然，你列出来的这段确实也能和剧场版的情况有所对应，我承认可能只是我个人的理解问题<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
