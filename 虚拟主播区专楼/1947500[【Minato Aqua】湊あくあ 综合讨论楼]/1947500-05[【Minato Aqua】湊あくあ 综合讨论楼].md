@@ -17304,3 +17304,15 @@ twitter不给认证标志。很懂嘛<img src="https://static.saraba1st.com/imag
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  超紳士  
+##### 7429#       发表于 2022-1-14 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290330&amp;ptid=1947500" target="_blank">面具13 发表于 2022-1-14 17:01</a>
+
+炸床的哭感觉是真的，后面还有鼻塞音。应该是马内甲让做好心理准备，线下很可能要没了吧。没想到这么快就有 ...</blockquote>
+哭成这样，不会是假的………………
+
