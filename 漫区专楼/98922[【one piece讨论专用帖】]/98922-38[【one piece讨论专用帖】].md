@@ -10595,3 +10595,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54281688&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2022-1-14 03:45</a></blockquote>
 这个好多年前在海贼王论坛看过了，这个作者搞了一个系列预测，然后一群人骂作者神经病。
 
+
+
+*****
+
+####  羲和  
+##### 56325#       发表于 2022-1-15 02:31
+
+看那个说话的意思还是橡胶果实啊…还有之前刚打了一个cp0送果实被抢的补丁设定……不过这样真的很俗套，宁可是别的果实
+

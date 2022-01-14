@@ -5746,3 +5746,17 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 千鸟战队吧咋被堵了，鸟p被高度针对是吧
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5093#       发表于 2022-1-15 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54293618&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-1-14 21:55</a>
+不是 千鸟战队吧咋被堵了，鸟p被高度针对是吧</blockquote>
+有个p图p炸了
+在电报群看到
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

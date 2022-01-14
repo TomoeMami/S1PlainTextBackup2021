@@ -12857,3 +12857,30 @@ hnn太难了，三局掉两局，还得关直播
 
 别问脑子，问牛子
 
+
+
+*****
+
+####  OldGlory  
+##### 10100#       发表于 2022-1-15 02:06
+
+哪有那么多九血鬼
+
+*****
+
+####  硫黄  
+##### 10101#       发表于 2022-1-15 02:09
+
+首播完就准备asmr，上道
+
+*****
+
+####  北山玖公  
+##### 10102#       发表于 2022-1-15 02:24
+
+ 本帖最后由 北山玖公 于 2022-1-15 02:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">九血鬼可太少见了，上次看他cos玛奇玛差点入脑，只能说中性实在太对我性癖。
+
+业界大部分中性都和什么绿仙aki 铃木胜差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">。
+

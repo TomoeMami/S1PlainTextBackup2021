@@ -14151,3 +14151,30 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 顺便刚刚刷B站看到有人上传了个老视频，以前鲤鱼在国内舞台上唱歌[[https://www.bilibili.com/video/BV11r4y1Y7gV](https://www.bilibili.com/video/BV11r4y1Y7gV)]▸，喊着跟我HIGH起来好吗。导播很专业的切到台下画面，结果下面都没人理她，应援棒都没有几根。想想现在都能在生日当天live上玩荧光棒吹蜡烛了，真是感慨啊。 
 
+
+
+*****
+
+####  黑雪姫  
+##### 4232#       发表于 2022-1-15 04:12
+
+那个op1的娃娃其他四人补货了(可可依然第一个卖光)，恋的第一波库存还没卖完....
+
+拉版现在又在讨论恋的人气问题，我看都快成日常了
+
+*****
+
+####  DarthAka  
+##### 4233#       发表于 2022-1-15 04:16
+
+动画里完全没高光，中之人又太现充……还有啥新鲜说法？
+
+*****
+
+####  黑雪姫  
+##### 4234#       发表于 2022-1-15 04:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295947&amp;ptid=2036367" target="_blank">DarthAka 发表于 2022-1-15 04:16</a>
+动画里完全没高光，中之人又太现充……还有啥新鲜说法？</blockquote>
+提议和可可的娃娃绑定卖<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
