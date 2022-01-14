@@ -11073,3 +11073,23 @@ t2摩根/暗兔/光兔进场50/105/25
 缺点就是指向性技能太多
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86575#       发表于 2022-1-14 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要这么麻烦 直接蓝卡无脑冲不就完了
+
+*****
+
+####  exiaexa  
+##### 86576#       发表于 2022-1-14 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54285575&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-14 12:20</a>
+
+为什么要这么麻烦 直接蓝卡无脑冲不就完了</blockquote>
+因为抓好友太麻烦，我直接锁礼装的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
