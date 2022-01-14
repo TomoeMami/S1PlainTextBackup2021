@@ -5737,3 +5737,12 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 不知道文静是不是在圈子里。如果在圈子里的话那可能这是我离静姨最近的一次<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 5092#       发表于 2022-1-14 21:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 千鸟战队吧咋被堵了，鸟p被高度针对是吧
+
