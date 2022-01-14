@@ -2381,3 +2381,36 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 嗓子有点干啊，好明显
 
+
+
+*****
+
+####  ashero  
+##### 7782#       发表于 2022-1-14 23:15
+
+最近这歌力就像开了挂
+
+*****
+
+####  古战场亡魂  
+##### 7783#       发表于 2022-1-14 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">wow，这有心论完成度高啊
+
+*****
+
+####  T_Hb  
+##### 7784#       发表于 2022-1-14 23:21
+
+今天有点卖力
+
+*****
+
+####  ashero  
+##### 7785#       发表于 2022-1-14 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54294476&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-1-14 23:20</a>
+
+wow，这有心论完成度高啊</blockquote>
+慢版月兔 命嫌也很屌
+
