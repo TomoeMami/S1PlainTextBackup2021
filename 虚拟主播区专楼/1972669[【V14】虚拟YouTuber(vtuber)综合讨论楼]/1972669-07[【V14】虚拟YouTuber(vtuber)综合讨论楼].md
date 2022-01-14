@@ -12656,3 +12656,27 @@ Amalis属实有意思，能在b站复刻一下p1箱的奇迹吗？
 
 唐氏玲光看那弱智l2d晃来晃去都笑死了。
 
+
+
+*****
+
+####  OldGlory  
+##### 10084#       发表于 2022-1-14 16:16
+
+vshojo现在皮套已经比虹杏都好看了啊
+
+<img src="https://img.saraba1st.com/forum/202201/14/161602zlrlf89favq9n6ja.jpg" referrerpolicy="no-referrer">
+
+<strong>FI5CRQUX0AYqpfp.jpg</strong> (229.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 16:16 上传
+
+*****
+
+####  poipanchao  
+##### 10085#       发表于 2022-1-14 16:18
+
+虹杏什么cylx，不过这个有点圆啊
+
