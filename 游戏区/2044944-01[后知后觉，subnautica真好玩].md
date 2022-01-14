@@ -630,3 +630,16 @@ Subnautica一周目是真心神作
 
 这游戏NS版体验咋样？
 
+
+
+*****
+
+####  abc12354a  
+##### 67#       发表于 2022-1-14 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54230135&amp;ptid=2044944" target="_blank">哈哈哈就 发表于 2022-1-10 09:36</a>
+这游戏NS版体验咋样？</blockquote>
+不咋样，而且之前有bug。对自己好点
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

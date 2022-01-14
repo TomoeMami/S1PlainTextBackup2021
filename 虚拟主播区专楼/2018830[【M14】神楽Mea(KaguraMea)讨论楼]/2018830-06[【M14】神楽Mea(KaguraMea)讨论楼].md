@@ -2180,3 +2180,15 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 波比打狗头本来也能打，但是对面打野帮疯了，让狗头度过了最危险的时间……mea出装也不对，你这出女神泪还 ...</blockquote>
 但是这人不练啊 另一个号一眼过去排位和匹配基本都是波比 然后日服opgg波比现在又是T1<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7758#       发表于 2022-1-14 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54288459&amp;ptid=2018830" target="_blank">Klience 发表于 2022-1-14 14:51</a>
+
+但是这人不练啊 另一个号一眼过去排位和匹配基本都是波比 然后日服opgg波比现在又是T1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是看打野，打野不行输一半
+
