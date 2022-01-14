@@ -14113,3 +14113,27 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 炒作引流的，去年年底发的视频没一点水花，明天直播了就突然爆出抄袭。把大伙都引过去送热度，然后改简介删视频，它们目的达到了。
 
+
+
+*****
+
+####  cat1230  
+##### 4229#       发表于 2022-1-15 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54294727&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-14 23:46</a>
+
+在微博看到有人扒叔叔家的新管人偶像团直接抄星的op舞的，有点难绷，陈睿柠檬什么酸啊
+
+ ...</blockquote>
+求个链接，对管人完全不懂怎么搜都不知道。
+
+*****
+
+####  chenflyyy  
+##### 4230#       发表于 2022-1-15 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295325&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-15 01:02</a>
+
+求个链接，对管人完全不懂怎么搜都不知道。</blockquote>
+原视频已经删了，不想给这玩意引流就不发名字了，可以看看这个部分对比视频BV1oq4y1y7Va
+
