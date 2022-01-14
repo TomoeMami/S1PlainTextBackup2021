@@ -11093,3 +11093,57 @@ t2摩根/暗兔/光兔进场50/105/25
 因为抓好友太麻烦，我直接锁礼装的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86577#       发表于 2022-1-14 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54285674&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-14 12:24</a>
+
+因为抓好友太麻烦，我直接锁礼装的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得选C呆比你这个舒服太多了 看着操作量就很麻烦
+
+*****
+
+####  exiaexa  
+##### 86578#       发表于 2022-1-14 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54286638&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-14 13:19</a>
+
+我觉得选C呆比你这个舒服太多了 看着操作量就很麻烦</blockquote>
+因为我是边看别的边刷，经常选错人
+
+所以干脆就放弃治疗自力更生了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86579#       发表于 2022-1-14 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54286665&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-14 13:20</a>
+
+因为我是边看别的边刷，经常选错人
+
+所以干脆就放弃治疗自力更生了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得还好 只要看一眼C呆 进去后就开启操作录制
+
+*****
+
+####  exiaexa  
+##### 86580#       发表于 2022-1-14 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54286691&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-14 13:22</a>
+
+我觉得还好 只要看一眼C呆 进去后就开启操作录制</blockquote>
+就是因为用录制所以才出错啊，每个人犯蠢的地方是不一样的
+
+我经常是抓一个人然后
+
+卧槽怎么就进去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
