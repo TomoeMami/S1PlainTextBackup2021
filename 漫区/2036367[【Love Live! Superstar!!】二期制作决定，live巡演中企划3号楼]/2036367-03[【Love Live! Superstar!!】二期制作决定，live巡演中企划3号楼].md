@@ -13849,3 +13849,119 @@ amuse在业界的确是特别存在 不过本身资源也不是很多..搞活一
 
 跟emi也不是第一次互动了，号泣还是有点夸张了，不过也能理解<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 4203#       发表于 2022-1-14 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291213&amp;ptid=2036367" target="_blank">kata魂 发表于 2022-01-14 18:21:23</a>
+嘉宾居然是emi…怪不得</blockquote>艹，难怪要号泣，鲤鱼最强拉拉人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  梶原ひかり  
+##### 4204#       发表于 2022-1-14 18:26
+
+Emi也见过好几次了吧..果皇钦点正统
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  竹筷  
+##### 4205#       发表于 2022-1-14 18:27
+
+emi还经常给鲤鱼的推特点赞来着
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 4206#       发表于 2022-1-14 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291077&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-1-14 18:08</a>
+
+音乐是Sacra Music呀..现在不是SMA搞独立音乐的时候..编曲大部分请的是灯露熟人 或者 Sacra Muisc ...</blockquote>
+sacra不就是索尼的么。。。个人审美和取向方面的确是要高出一般anisong不少，不过事务所既然给安了个singer song writer的名头那要受更多质疑也很正常
+
+syl果然是新田，之前看推特互动就有点会交集的预感了
+
+*****
+
+####  cybernetics31  
+##### 4207#       发表于 2022-1-14 18:27
+
+难怪啊 哎 也是感慨
+
+*****
+
+####  lj205  
+##### 4208#       发表于 2022-1-14 18:27
+
+鲤鱼，这几天各种幸福的眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 4209#       发表于 2022-1-14 18:31
+
+ 本帖最后由 梶原ひかり 于 2022-1-14 18:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291300&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-14 18:27</a>
+sacra不就是索尼的么。。。个人审美和取向方面的确是要高出一般anisong不少，不过事务所既然给安了个sing ...</blockquote>
+SMA是艺人事务所...SACRA MUSIC才是唱片公司专管音乐的
+不然因为音雨也是Sony的事务所 总不能也等于SMA和SACRA MUSIC吧
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  优妮可  
+##### 4210#       发表于 2022-1-14 18:33
+
+<img src="https://img.saraba1st.com/forum/202201/14/183344tl4ktl3cs34zc466.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220114_183128_com.twitter.android_edit_17721344424899.jpg</strong> (146.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 18:33 上传
+
+*****
+
+####  stygian  
+##### 4211#       发表于 2022-1-14 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291358&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-1-14 18:31</a>
+
+SMA是艺人事务所...跟SACRA MUSIC才是唱片公司专管音乐的
+
+不然因为音雨也是Sony的事务所 总不能也等于SMA ...</blockquote>
+sma和sacra都是sme旗下子公司啊。。
+
+*****
+
+####  梶原ひかり  
+##### 4212#       发表于 2022-1-14 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54291424&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-14 18:37</a>
+sma和sacra都是sme旗下子公司啊。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉我们在绕圈子 的确是SME子公司 但是业务不一样 您上面楼可是写的SMA在音乐方面而不是SACRA MUSIC或者Sony
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  saglork  
+##### 4213#       发表于 2022-1-14 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290930&amp;ptid=2036367" target="_blank">CAserlumos 发表于 2022-1-14 17:52</a>
+https://www.bilibili.com/video/BV1ES4y1f7UX
+
+小百合联动LTA的宣传片</blockquote>
+看上去比liyuu有料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
