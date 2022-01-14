@@ -2082,3 +2082,19 @@ mea白银1胜点18，Nagi白银3胜点0，要掉级了。<img src="https://stati
 
 辅助露露 这黑暗收割女警该不会是大招秒人流的吧
 
+
+
+*****
+
+####  makourisu-2  
+##### 7747#       发表于 2022-1-14 11:20
+
+什么游戏废人，怎么又开始播LOL了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 7748#       发表于 2022-1-14 11:20
+
+先拿下首败
+

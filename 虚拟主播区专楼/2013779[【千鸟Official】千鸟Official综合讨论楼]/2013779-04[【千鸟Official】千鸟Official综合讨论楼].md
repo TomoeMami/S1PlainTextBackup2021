@@ -5614,3 +5614,17 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 文静:琳，你起床了吗
 琳反手挂断电话
 
+
+
+*****
+
+####  人民de救星  
+##### 5080#       发表于 2022-1-14 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54282753&amp;ptid=2013779" target="_blank">rgauss 发表于 2022-1-14 09:31</a>
+文静:琳，你起床了吗
+琳反手挂断电话</blockquote>
+上次关白白，这下孽力反馈了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
