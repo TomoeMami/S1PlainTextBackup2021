@@ -647,3 +647,14 @@ SE这个本事还是有的，所以说难听点真就是演出的美学取向问
 
 不是代入角色吗，上帝视角有什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  疼子  
+##### 68#       发表于 2022-1-15 06:54
+
+可能我只看过ac吧，不清楚爱丽丝到底啥性格，一接触就觉得好喜欢，然后一路打完爱上她了，倒是tifa感觉比起ac无趣多了
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
