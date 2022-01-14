@@ -638,3 +638,12 @@ SE这个本事还是有的，所以说难听点真就是演出的美学取向问
 
 相信Cloud的能力就是不在意可还行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rainsheep  
+##### 67#       发表于 2022-1-15 00:04
+
+不是代入角色吗，上帝视角有什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

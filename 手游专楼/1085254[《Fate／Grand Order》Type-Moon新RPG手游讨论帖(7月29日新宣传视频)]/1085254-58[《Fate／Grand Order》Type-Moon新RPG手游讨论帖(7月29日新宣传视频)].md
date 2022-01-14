@@ -11273,3 +11273,16 @@ t2摩根/暗兔/光兔进场50/105/25
 
 我已经是c狗废人了 闭着眼睛不用选助战实在太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86593#       发表于 2022-1-14 23:55
+
+ 本帖最后由 alucardcz 于 2022-1-14 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54294729&amp;ptid=1085254" target="_blank">eyeego 发表于 2022-1-14 23:47</a>
+
+我已经是c狗废人了 闭着眼睛不用选助战实在太爽了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">圣杯给了吗！ 不过现在有新衣服了 c狗哭了
+
