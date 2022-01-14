@@ -1274,3 +1274,17 @@ NGA年度动画选双城的人也不多，可能大家觉得这片并没有那�
 有啊，第一次纯属倒霉就不说了，第二次精神不稳定觉得必须证明自己炸死6个警探，把剧情推了一大步，直接 ...</blockquote>
 金克斯算不算皮城小吕布
 
+
+
+*****
+
+####  Piano-Forest  
+##### 3105#         楼主| 发表于 2022-1-14 13:49
+
+[https://www.artstation.com/artwork/X1aWVw](https://www.artstation.com/artwork/X1aWVw)
+<img src="https://p.sda1.dev/4/4118b898db085381f44ceb8b4f3df505/thibaut-granet-jinx-turn-hex.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/a56b070b46af365fd44efd041e950931/thibaut-granet-jinx-turn2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/495f8615b311659bf828a563fb9ce63a/thibaut-granet-jinx-turn-clay.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/ddc899ada4608a681eacc9862dfdf72c/thibaut-granet-jinx-turn-gun.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/f07184ad7a32a3d0290f6de70a0bebb4/thibaut-granet-jinx-turn-clay-gun.jpg" referrerpolicy="no-referrer">
+

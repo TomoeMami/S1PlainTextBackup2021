@@ -11197,3 +11197,21 @@ t2摩根/暗兔/光兔进场50/105/25
 所以快来一起自力更生，再也没有好友能坑到你了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86586#       发表于 2022-1-14 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54287088&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-14 13:42</a>
+所以快来一起自力更生，再也没有好友能坑到你了</blockquote>
+没有鹤小姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86587#       发表于 2022-1-14 14:05
+
+话说暗狐是真的越用越觉得好用，和道满一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
