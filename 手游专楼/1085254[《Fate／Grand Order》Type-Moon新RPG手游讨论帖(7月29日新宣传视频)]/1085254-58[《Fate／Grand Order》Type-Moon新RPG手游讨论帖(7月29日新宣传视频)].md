@@ -11147,3 +11147,53 @@ t2摩根/暗兔/光兔进场50/105/25
 卧槽怎么就进去了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86581#       发表于 2022-1-14 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54286715&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-14 13:23</a>
+
+就是因为用录制所以才出错啊，每个人犯蠢的地方是不一样的
+
+我经常是抓一个人然后</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">只能说继续战斗不能自动接着用之前的助战这设计太** 
+
+*****
+
+####  zakki  
+##### 86582#       发表于 2022-1-14 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54285142&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-14 11:56</a>
+为了这堆职阶混合本，折腾出了一个，快乐的0礼装不用好友不用奥伯龙还勉强保证了增伤的阵容
+
+摩根（20）+暗 ...</blockquote>
+直接双暗狐摩根充能服不挺好的，我就是这么刷的，不过老是被好友的18np被动坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86583#       发表于 2022-1-14 13:41
+
+翻页
+
+*****
+
+####  zakki  
+##### 86584#       发表于 2022-1-14 13:41
+
+翻页
+
+*****
+
+####  exiaexa  
+##### 86585#       发表于 2022-1-14 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54287064&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-14 13:41</a>
+
+直接双暗狐摩根充能服不挺好的，我就是这么刷的，不过老是被好友的18np被动坑 ...</blockquote>
+所以快来一起自力更生，再也没有好友能坑到你了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
