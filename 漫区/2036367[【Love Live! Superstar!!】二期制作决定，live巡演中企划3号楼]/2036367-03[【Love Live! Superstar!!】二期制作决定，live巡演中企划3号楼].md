@@ -13722,3 +13722,130 @@ sayu的服装联动图出了，感觉男生穿也没什么问题，想 ...</bloc
 
 给不知道的人说她们是姐妹我觉得真有人信
 
+
+
+*****
+
+####  kata魂  
+##### 4191#       发表于 2022-1-14 17:43
+
+北原居然也对后期香音无法共鸣，有点意外
+
+1.png
+(11.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202201/14/174102if4g25nod6zfiglp.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 4192#       发表于 2022-1-14 17:48
+
+咻歌手出道抱上索尼大腿后资源强了不少，holy peak对粉丝来说一是对外国人极度不友好，二是吃相太难看，当初订咻FC看到写粉丝信还要交钱真的是看的吐血，也就叫咻是水团人气王能hold住了，如果能移籍我肯定是欢迎的。
+
+sma在屑和不那么屑之间横跳，FC最便宜还可以DD，资源尽管大多是厕纸但是给的还算充足，就是不知道为什么对肖像权执着度这么病态（主要是楠木），不过目前对佩顿管的很少。
+
+从这些层面上说，小百合和青山安排到amuse下的事务所我还挺满意的
+
+*****
+
+####  CAserlumos  
+##### 4193#       发表于 2022-1-14 17:52
+
+[https://www.bilibili.com/video/BV1ES4y1f7UX](https://www.bilibili.com/video/BV1ES4y1f7UX)
+
+小百合联动LTA的宣传片<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4194#       发表于 2022-1-14 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290839&amp;ptid=2036367" target="_blank">kata魂 发表于 2022-1-14 17:43</a>
+
+北原居然也对后期香音无法共鸣，有点意外</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">人的意思只是说他不像后期香音那么坚强……
+
+*****
+
+####  stygian  
+##### 4195#       发表于 2022-1-14 17:55
+
+sma音乐方面还是靠谱，你灯那几张solo说是自作曲说实话旋律都写得蛮一般的，但是很明显听得出编曲花了价钱和心思去弄效果就很不错，5ch天天黑アーティスト気取り也是有一定道理的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 4196#       发表于 2022-1-14 18:08
+
+ 本帖最后由 梶原ひかり 于 2022-1-14 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290976&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-14 17:55</a>
+sma音乐方面还是靠谱，你灯那几张solo说是自作曲说实话旋律都写得蛮一般的，但是很明显听得出编曲花了价钱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">音乐是Sacra Music呀..现在不是SMA搞独立音乐的时候..编曲大部分请的是灯露熟人 或者 Sacra Muisc的相关人比较多..说大价钱什么也谈不上 大部分本来就给SC相关歌手作词作曲
+虽然说不上神曲什么 灯露写得歌跟anisong界那些比还是非常有自己的想法的..
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  lj205  
+##### 4197#       发表于 2022-1-14 18:21
+
+鲤鱼……最强拉拉人
+
+*****
+
+####  kata魂  
+##### 4198#       发表于 2022-1-14 18:21
+
+嘉宾居然是emi…怪不得
+
+*****
+
+####  梶原ひかり  
+##### 4199#       发表于 2022-1-14 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290890&amp;ptid=2036367" target="_blank">星降る森 发表于 2022-1-14 17:48</a>
+咻歌手出道抱上索尼大腿后资源强了不少，holy peak对粉丝来说一是对外国人极度不友好，二是吃相太难看，当 ...</blockquote>
+amuse在业界的确是特别存在 不过本身资源也不是很多..搞活一把好手 对于喜欢看真人的声粉的确很爽 有点像响社..
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  离心  
+##### 4200#       发表于 2022-1-14 18:21
+
+我艹，真的是emi吗？
+
+
+
+*****
+
+####  名津流  
+##### 4201#       发表于 2022-1-14 18:23
+
+<img src="https://img.saraba1st.com/forum/202201/14/182304dtc5p5gd09dww65t.jpg" referrerpolicy="no-referrer">
+
+<strong>datesanban2022.jpg</strong> (44.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-14 18:23 上传
+
+图太多了就不搬了，有兴趣的可以去看：
+[https://livertineage.jp/SHOP/2221100003.html](https://livertineage.jp/SHOP/2221100003.html)
+[https://livertineage.jp/SHOP/2221100004.html](https://livertineage.jp/SHOP/2221100004.html)
+[https://livertineage.jp/SHOP/2221100005.html](https://livertineage.jp/SHOP/2221100005.html)
+
+*****
+
+####  chenflyyy  
+##### 4202#       发表于 2022-1-14 18:25
+
+跟emi也不是第一次互动了，号泣还是有点夸张了，不过也能理解<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

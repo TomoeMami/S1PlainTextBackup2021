@@ -8125,3 +8125,35 @@ merge_out.xml
 
 当然，你列出来的这段确实也能和剧场版的情况有所对应，我承认可能只是我个人的理解问题<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  青龙圣者  
+##### 610#       发表于 2022-1-14 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290485&amp;ptid=2043629" target="_blank">钱如命 发表于 2022-1-14 17:13</a>
+
+其实我主要想说的还是人物塑造对不上的问题233
+
+阿露露线的情况其实某种角度和剧场版光恋遇到的问题有共通 ...</blockquote>
+因为阿露露就是华恋的原设废案...
+
+其实在最新第五话里，华恋的意思还是，其他舞台都是starlight的养料。
+
+在其他舞台越闪耀，到starlight的时候越厉害。
+
+可以看看B站最新主线5、6话，两人的关系说的非常清楚，最后克洛推了小光一手，背刺华恋了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 钱如命| + 1|我去看看|
+
+查看全部评分
+

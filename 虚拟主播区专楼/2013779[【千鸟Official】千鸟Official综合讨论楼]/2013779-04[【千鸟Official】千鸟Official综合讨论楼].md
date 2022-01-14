@@ -5712,3 +5712,17 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 羡慕
 
+
+
+*****
+
+####  tankai  
+##### 5090#       发表于 2022-1-14 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289501&amp;ptid=2013779" target="_blank">Quark 发表于 2022-1-14 15:54</a>
+
+一期礼物到了 香香
+
+我怎么有20张贴纸啊 有这么多吗</blockquote>
+一期后面绝版了 剩下的陪货全塞补货的这档了 当然其他值点钱的也不兴多塞.
+
