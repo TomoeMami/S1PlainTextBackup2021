@@ -14329,3 +14329,24 @@ E3E09D93-446D-48F2-8C33-324C5187D614.jpeg
 
 今天看不了了，希望一切顺利
 
+
+
+*****
+
+####  名津流  
+##### 4247#       发表于 2022-1-15 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295434&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-15 01:20</a>
+
+感谢。
+
+顺便刚刚刷B站看到有人上传了个老视频，以前鲤鱼在国内舞台上唱歌[https://www.bilibili.com/vide ...</blockquote>
+以前的视频之前就有人挖了，除了你这个19年的现场，一年后的BW也差不多： [https://www.bilibili.com/video/BV1mv411v7rq](https://www.bilibili.com/video/BV1mv411v7rq)
+
+*****
+
+####  优妮可  
+##### 4248#       发表于 2022-1-15 14:57
+
+唉，今天看不了+1。
+
