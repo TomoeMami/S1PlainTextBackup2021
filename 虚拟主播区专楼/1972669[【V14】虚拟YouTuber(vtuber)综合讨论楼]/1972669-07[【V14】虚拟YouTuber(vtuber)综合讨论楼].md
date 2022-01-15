@@ -12893,3 +12893,12 @@ hnn太难了，三局掉两局，还得关直播
 
 vspo的大师三人组上分好快，第四次已经全员钻二了
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10104#       发表于 2022-1-15 10:01
+
+跟九血鬼能斗法的是日常組的しにがみ，不过人家犯不上来套皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
