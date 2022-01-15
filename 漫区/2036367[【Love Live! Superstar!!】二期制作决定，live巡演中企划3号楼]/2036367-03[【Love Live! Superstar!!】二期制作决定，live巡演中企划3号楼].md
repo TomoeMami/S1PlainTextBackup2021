@@ -15293,3 +15293,14 @@ CC25916C-C2BD-4447-B710-7616BF52C2C8.jpeg
 
 当然现在听音能力应该有些退化 唱歌水平倒是毫无长进甚至跟着退化了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  musicat  
+##### 4338#       发表于 2022-1-15 21:40
+
+看完了SunnyPa的切片，这服装真是丑到无可救药啊，想露就**方方的露啊，当时2次元就不好看了。
+
+就3次元来说，现敌团这个水平怎么都不能说高一筹<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
