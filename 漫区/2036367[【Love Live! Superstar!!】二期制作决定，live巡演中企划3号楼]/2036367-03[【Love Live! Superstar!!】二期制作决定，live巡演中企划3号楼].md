@@ -14239,3 +14239,32 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 这衣服
 
+
+
+*****
+
+####  ads147147  
+##### 4240#       发表于 2022-1-15 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54297464&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-15 11:14</a>
+这衣服</blockquote>
+高饱和色，我看欧美彩虹团体游街都没这么艳丽的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yevvet  
+##### 4241#       发表于 2022-1-15 11:43
+
+小百合有一米六了吗
+
+E3E09D93-446D-48F2-8C33-324C5187D614.jpeg
+(782.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 11:43 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/114303r3zmvpmsfe2bq242.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
