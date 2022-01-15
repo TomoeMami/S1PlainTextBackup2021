@@ -15280,3 +15280,16 @@ CC25916C-C2BD-4447-B710-7616BF52C2C8.jpeg
 
 爱香也看了？
 
+
+
+*****
+
+####  kimibsb  
+##### 4337#       发表于 2022-1-15 20:27
+
+听音和唱歌真是两回事
+
+我以前学键盘乐器也有了10年 听三音和弦几乎没有任何阻碍 但是一开口大家就开始笑了
+
+当然现在听音能力应该有些退化 唱歌水平倒是毫无长进甚至跟着退化了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
