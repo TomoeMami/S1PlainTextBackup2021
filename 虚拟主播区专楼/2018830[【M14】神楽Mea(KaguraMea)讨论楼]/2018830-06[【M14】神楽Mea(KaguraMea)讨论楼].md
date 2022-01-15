@@ -2491,3 +2491,12 @@ wow，这有心论完成度高啊</blockquote>
 
 neet什么的都是假的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  病態極端  
+##### 7795#       发表于 2022-1-15 15:16
+
+幣站字幕アイドル翻譯成了愛抖露，但是光看字面意思的話感覺更糟糕啊
+
