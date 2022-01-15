@@ -14999,3 +14999,35 @@ E44FA5CF-3383-4991-984D-B27990ECB7FB.jpeg
 
 有人心拍没毛病，听音也过关，但唱歌一样找不着调
 
+
+
+*****
+
+####  仟音一心  
+##### 4312#       发表于 2022-1-15 17:46
+
+乱发Sayuri
+
+D731397B-5464-45EA-827E-BDAB99DDE962.jpeg
+(63.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/174639gwjr3osrborowofo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4313#       发表于 2022-1-15 17:48
+
+还能看到sp吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4314#       发表于 2022-1-15 17:58
+
+鲨鱼高音稳！
+
