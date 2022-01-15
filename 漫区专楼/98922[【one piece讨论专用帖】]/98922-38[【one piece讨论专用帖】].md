@@ -10635,3 +10635,15 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 凯皇怎么成了小丑
 
+
+
+*****
+
+####  武男  
+##### 56329#       发表于 2022-1-15 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54297533&amp;ptid=98922" target="_blank">团结奋进碇真嗣 发表于 2022-1-15 11:21</a>
+
+凯皇怎么成了小丑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">回过头想想，当初醉酒状态算不算他最强呢
+
