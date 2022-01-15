@@ -3614,3 +3614,12 @@ https://weibo.com/ttarticle/x/m/show/id/2309404725724811755550?_wb_client_=1
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ky怪  
+##### 253#       发表于 2022-1-15 14:38
+
+求一个没有使用过任何dlc的黎轨通关存档，求得到我就再打遍中文版<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
