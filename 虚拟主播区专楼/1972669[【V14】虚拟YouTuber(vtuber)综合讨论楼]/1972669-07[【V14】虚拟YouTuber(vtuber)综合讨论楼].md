@@ -12884,3 +12884,12 @@ hnn太难了，三局掉两局，还得关直播
 
 业界大部分中性都和什么绿仙aki 铃木胜差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">。
 
+
+
+*****
+
+####  FCCHua  
+##### 10103#       发表于 2022-1-15 09:04
+
+vspo的大师三人组上分好快，第四次已经全员钻二了
+
