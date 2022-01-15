@@ -15150,3 +15150,56 @@ D0F0FBB0-0ACD-492D-885C-324C19E35504.jpeg
 
 怒瞪打铁<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 4325#       发表于 2022-1-15 18:48
+
+shooting voice耶
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4326#       发表于 2022-1-15 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等下，没合影环节了？
+
+*****
+
+####  stygian  
+##### 4327#       发表于 2022-1-15 18:56
+
+还是看明天有啥新活吧
+
+*****
+
+####  starring  
+##### 4328#       发表于 2022-1-15 18:57
+
+真把人家叫来唱一首歌，还不给换衣服<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4329#       发表于 2022-1-15 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">为什么不把梦想能量砍了换成射击声音
+
+把合影歌留下来好一点啊
+
+*****
+
+####  蜜梨柑  
+##### 4330#       发表于 2022-1-15 19:00
+
+今天居然没有发表，等明天了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lucksolo  
+##### 4331#       发表于 2022-1-15 19:01
+
+这顺序是立德排的吧 防遮挡<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
