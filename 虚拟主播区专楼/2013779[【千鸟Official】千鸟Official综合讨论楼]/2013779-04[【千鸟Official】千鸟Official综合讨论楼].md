@@ -5785,3 +5785,14 @@ co宝这个完美主义还真是学生气捏<img src="https://static.saraba1st.c
 
 服了，刚建设起来又炸了，什么原因也不说<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 5097#       发表于 2022-1-16 04:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那为什么没人来建设鸟综呢
+
+syl 二期舰长礼物看了下国内好多以前用的转运公司都寄了 在考虑是不是roll了 有三个号 没记错的话应该都带11月补偿
+

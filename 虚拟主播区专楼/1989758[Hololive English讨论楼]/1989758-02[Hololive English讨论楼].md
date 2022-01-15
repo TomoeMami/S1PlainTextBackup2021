@@ -832,3 +832,29 @@ Ame那套更像是韩服了
 
 Ame: Nabi mama 初版设计更花哨一些，自己要求改得简单一点来突出上下部分的颜色对比。最后效果不像其他人那么正月风，不过好处是平时穿也不会有违和感。本来想要chef's kiss 手势🤌被理解成了某些角度下有点糟糕的ok手👌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  allenz3  
+##### 1583#       发表于 2022-1-16 05:27
+
+<img src="https://img.saraba1st.com/forum/202201/16/052720k9ggstxx80zugxty.jpg" referrerpolicy="no-referrer">
+
+<strong>24c39e20-3a6e-4723-89d4-e99eecfa3961.jpg</strong> (91.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 05:27 上传
+
+独 角 兽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shimmy1996  
+##### 1584#       发表于 2022-1-16 05:34
+
+感觉council的新衣服会比myth的制造更多fan artist噩梦（各种意义上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

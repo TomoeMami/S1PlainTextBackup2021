@@ -13055,3 +13055,37 @@ cr杯这种娱乐赛这些女大师vtb的发挥就没见正常的。
 
 selen确实菜就是了，打法太娱乐
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 10118#       发表于 2022-1-16 02:37
+
+ 本帖最后由 格林卡罗尔 于 2022-1-16 02:39 编辑 
+
+我怎么觉得selen是输在运营，这第一把连吃四五个电弧星动也不敢动把我看笑了，第二把又是找不到甲靠打猎兽升蓝甲
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  硫黄  
+##### 10119#       发表于 2022-1-16 02:38
+
+这asmr，不太行
+
+*****
+
+####  free  
+##### 10120#       发表于 2022-1-16 03:06
+
+[https://www.moguravr.com/sanano-bakutan-mecha-happy-show/](https://www.moguravr.com/sanano-bakutan-mecha-happy-show/)
+[https://www.zan-live.com/live/detail/10143](https://www.zan-live.com/live/detail/10143)
+
+さなのばくたん。 -メチャ・ハッピー・ショー- Powered by mouse
+
+名取さなのお誕生日イベント『さなのばくたん。』が2022年も開催決定！ …のはずが、
+
+这live为啥要8500这么贵，有什么特别的活吗<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
