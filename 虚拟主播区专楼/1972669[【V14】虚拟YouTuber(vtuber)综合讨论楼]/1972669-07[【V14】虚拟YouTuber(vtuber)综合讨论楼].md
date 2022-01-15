@@ -13010,3 +13010,30 @@ syl
 
 肆ノ島的asmr完全就是假小子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 10115#       发表于 2022-1-16 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54298141&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-1-15 12:29</a>
+
+noah前天调戏zedar，用韩语“想摸我的oppai吗”
+
+事后补充了一下，不是刚毕业的那个教的
+
+sunobo当年 ...</blockquote>
+别noah独领鳌头了，selen昨天打白皮举办的OTK杯（这个杯赛里面各种职业选手和职业主播），selen这队最后排名直接垫底。
+
+看了selen视觉第一局直播上跳伞塔直接被滋死简直犯罪，被滋满两下还不跳下来。
+
+cr杯这种娱乐赛这些女大师vtb的发挥就没见正常的。
+
+*****
+
+####  生麦之发杀  
+##### 10116#       发表于 2022-1-16 00:12
+
+看了莉莉姆新衣服，突发奇想有没有毛玉牛乳老师画皮的V啊，结果...还真nm有啊！织田信姬最初的模型，就是玉之けだま设计的：[https://twitter.com/kedamaa/status/984770536566919168](https://twitter.com/kedamaa/status/984770536566919168)，质量只能用眼瞎来形容，把我的萝莉魅魔还来！
+
