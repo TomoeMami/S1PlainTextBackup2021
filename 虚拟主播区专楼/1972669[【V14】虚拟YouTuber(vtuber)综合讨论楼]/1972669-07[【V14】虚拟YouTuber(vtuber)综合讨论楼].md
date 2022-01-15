@@ -12902,3 +12902,20 @@ vspo的大师三人组上分好快，第四次已经全员钻二了
 
 跟九血鬼能斗法的是日常組的しにがみ，不过人家犯不上来套皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 10105#       发表于 2022-1-15 12:29
+
+noah前天调戏zedar，用韩语“想摸我的oppai吗”
+
+事后补充了一下，不是刚毕业的那个教的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+sunobo当年未能成行的组排大师，现在也算完成遗憾了吧
+
+感觉现在女大师里noah已经独领鳌头了
+
+hnn已经被爱情掏空了，堇本来就是比较菜的那个
+
