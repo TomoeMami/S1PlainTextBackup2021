@@ -8214,3 +8214,12 @@ merge_out.xml
 
 会不会唱revue曲啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  li463900160  
+##### 616#       发表于 2022-1-15 23:45
+
+上海场太爽了，巨幕+杜比音效，真昼那段讨厌你效果太棒！果然这种音画都顶尖的作品还是得在大荧幕上看才爽
+
