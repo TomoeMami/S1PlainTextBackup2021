@@ -15092,3 +15092,61 @@ D0F0FBB0-0ACD-492D-885C-324C19E35504.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 4319#       发表于 2022-1-15 18:27
+
+ 本帖最后由 仟音一心 于 2022-1-15 18:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54301142&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-15 18:16</a>
+
+撒尼趴不会就一首吧
+
+—— 来自 S1Fun</blockquote>
+
+不止吧
+
+好吧，还真的就一首
+
+*****
+
+####  竹筷  
+##### 4320#       发表于 2022-1-15 18:28
+
+看来还有一首CW曲要留到2nd唱
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4321#       发表于 2022-1-15 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">chiha本音也好甜哦
+
+*****
+
+####  秋月艾莉  
+##### 4322#       发表于 2022-1-15 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">鲨鱼牙妹的声音真甜啊，心都要化了
+
+*****
+
+####  秋月艾莉  
+##### 4323#       发表于 2022-1-15 18:32
+
+真就一首
+
+把人叫来自己的主场再狠狠干碎
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">星星，现在的你很卑鄙！
+
+*****
+
+####  stygian  
+##### 4324#       发表于 2022-1-15 18:38
+
+怒瞪打铁<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
