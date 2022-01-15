@@ -14482,3 +14482,49 @@ syl看这个大场突然期待星光序曲
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  仟音一心  
+##### 4263#       发表于 2022-1-15 16:30
+
+nako跳了半个小百合的高度
+
+F0BE4167-DAC0-40BE-85FE-38EC51270CC6.jpeg
+(392.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 16:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/163010ytcviz08uv8g55ia.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 4264#       发表于 2022-1-15 16:31
+
+就2了
+
+*****
+
+####  秋月艾莉  
+##### 4265#       发表于 2022-1-15 16:32
+
+nako这个扩胸运动都快成小千的标配了，好几首歌都有wwwwww
+
+*****
+
+####  starring  
+##### 4266#       发表于 2022-1-15 16:43
+
+今天的小星星几乎完美
+
+*****
+
+####  秋月艾莉  
+##### 4267#       发表于 2022-1-15 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日月twins没有在小星星出来紧接着出场把她们干碎，看来初出场要等到encore的时候了
+
