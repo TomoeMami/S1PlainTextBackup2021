@@ -15031,3 +15031,64 @@ D731397B-5464-45EA-827E-BDAB99DDE962.jpeg
 
 鲨鱼高音稳！
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4315#       发表于 2022-1-15 18:08
+
+是熟悉的伊达MAX和Liyuu合流www
+
+萨尼帕招呼还没打呢，估计还有一首
+
+*****
+
+####  仟音一心  
+##### 4316#       发表于 2022-1-15 18:11
+
+全程经过
+
+560C6021-6B4B-4B74-A708-1C5A881A6513.jpeg
+(132.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/181103nwoj9oo8uzq2q6oo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D0F0FBB0-0ACD-492D-885C-324C19E35504.jpeg
+(119.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/181103rrgda3rtmw4ckm2n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+215067D4-5AC1-4B8F-AC8C-CD44BB843711.jpeg
+(102.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/181103mwk1qqi6z91a0ai6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4317#       发表于 2022-1-15 18:15
+
+惹，第一次看见的鲤鱼庆生和伊达吉他片段
+
+*****
+
+####  iuhehc  
+##### 4318#       发表于 2022-1-15 18:16
+
+撒尼趴不会就一首吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
