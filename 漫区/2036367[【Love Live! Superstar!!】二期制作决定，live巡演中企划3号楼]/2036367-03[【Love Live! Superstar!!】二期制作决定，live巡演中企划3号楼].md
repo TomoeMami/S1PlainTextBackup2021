@@ -15341,3 +15341,21 @@ CC25916C-C2BD-4447-B710-7616BF52C2C8.jpeg
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 4342#       发表于 2022-1-15 23:10
+
+控股的原来是打铁，这样不行啊
+
+*****
+
+####  saya1892  
+##### 4343#       发表于 2022-1-15 23:13
+
+拉板又发明新词了，「25歳児」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想起以前看yhm脑洞的合鲤小段子说她们去麦当劳，鱼点了儿童套餐服务员直接端到打铁面前，然后鱼说，不许抢我的玩具<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
