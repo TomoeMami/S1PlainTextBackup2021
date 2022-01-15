@@ -12985,3 +12985,19 @@ syl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ras被kinako单防，ras队三打二没打过drm队
 
+
+
+*****
+
+####  poipanchao  
+##### 10112#       发表于 2022-1-15 22:07
+
+早说了ras现在就是cjb
+
+*****
+
+####  _Ra1nMaker  
+##### 10113#       发表于 2022-1-15 22:11
+
+怪不得小s都不想待在cr队了
+
