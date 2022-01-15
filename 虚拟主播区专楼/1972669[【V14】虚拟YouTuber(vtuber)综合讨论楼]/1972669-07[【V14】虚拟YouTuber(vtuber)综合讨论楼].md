@@ -12976,3 +12976,12 @@ syl
 
 郡郡连玩儿三天雀魂，天天掉分，今天终于掉成雀杰2了，气得敲木鱼念般若心经，太痛！<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 10111#       发表于 2022-1-15 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ras被kinako单防，ras队三打二没打过drm队
+
