@@ -14308,3 +14308,15 @@ E3E09D93-446D-48F2-8C33-324C5187D614.jpeg
 炒作引流的，去年年底发的视频没一点水花，明天直播了就突然爆出抄袭。把大伙都引过去送热度，然后改简介删 ...</blockquote>
 对付这种营销还真没什么办法
 
+
+
+*****
+
+####  ddy2811  
+##### 4245#       发表于 2022-1-15 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54297782&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-15 11:46</a>
+
+目测还没</blockquote>
+本身就矮这样拍起来感觉更矮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
