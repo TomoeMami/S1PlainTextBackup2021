@@ -13037,3 +13037,21 @@ cr杯这种娱乐赛这些女大师vtb的发挥就没见正常的。
 
 看了莉莉姆新衣服，突发奇想有没有毛玉牛乳老师画皮的V啊，结果...还真nm有啊！织田信姬最初的模型，就是玉之けだま设计的：[https://twitter.com/kedamaa/status/984770536566919168](https://twitter.com/kedamaa/status/984770536566919168)，质量只能用眼瞎来形容，把我的萝莉魅魔还来！
 
+
+
+*****
+
+####  poipanchao  
+##### 10117#       发表于 2022-1-16 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54307058&amp;ptid=1972669" target="_blank">天天座理世 发表于 2022-1-16 00:11</a>
+
+别noah独领鳌头了，selen昨天打白皮举办的OTK杯（这个杯赛里面各种职业选手和职业主播），selen这队最后 ...</blockquote>
+什么东西……我本来就是说在这群日本的大师V里比啊
+
+除了V以外基本上也没有大师段位的真人主播了，要么是猎杀要么是钻石或以下
+
+然后你的逻辑怎么回事，selen菜跟noah乃至日V群体有啥关系
+
+selen确实菜就是了，打法太娱乐
+
