@@ -12919,3 +12919,14 @@ sunobo当年未能成行的组排大师，现在也算完成遗憾了吧
 
 hnn已经被爱情掏空了，堇本来就是比较菜的那个
 
+
+
+*****
+
+####  FCCHua  
+##### 10106#       发表于 2022-1-15 13:48
+
+ 本帖最后由 FCCHua 于 2022-1-15 13:49 编辑 
+
+noah不是说下赛季要和zeder双排嘛，很期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

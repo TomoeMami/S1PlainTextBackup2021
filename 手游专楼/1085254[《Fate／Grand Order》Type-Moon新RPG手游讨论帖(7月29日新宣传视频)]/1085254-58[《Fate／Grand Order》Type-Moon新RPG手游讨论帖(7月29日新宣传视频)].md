@@ -11297,3 +11297,12 @@ t2摩根/暗兔/光兔进场50/105/25
 圣杯给了吗！ 不过现在有新衣服了 c狗哭了</blockquote>
 就喂到了90 至于新衣服 c狗上不了的时候再练了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86595#       发表于 2022-1-15 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">c狗宝具居然是全屏的  水武藏居然不是
+
