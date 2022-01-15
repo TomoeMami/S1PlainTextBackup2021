@@ -15330,3 +15330,14 @@ CC25916C-C2BD-4447-B710-7616BF52C2C8.jpeg
 
 夜羽，你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 4341#       发表于 2022-1-15 23:01
+
+三个前辈团都在祝贺，排面啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
