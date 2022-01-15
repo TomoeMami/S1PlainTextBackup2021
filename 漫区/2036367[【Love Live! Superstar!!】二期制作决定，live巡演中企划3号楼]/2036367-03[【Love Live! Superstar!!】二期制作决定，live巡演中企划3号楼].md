@@ -14789,3 +14789,146 @@ sp这个衣服太怪了<img src="https://static.saraba1st.com/image/smiley/face2
 
 我认识一个钢琴10级的，在ktv开原唱就找不着调，还挺神奇的
 
+
+
+*****
+
+####  仟音一心  
+##### 4301#       发表于 2022-1-15 17:12
+
+.
+
+94B8D3C8-9325-4F7C-BD93-A6F88FF3BCCA.jpeg
+(275.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/171239q5qxbbwwkwwtzbkt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+CD1190EC-1BD0-468D-B56E-25C7CAA272F8.jpeg
+(316.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/171239z3905v9nf4z5vuu3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A5E5977A-13EF-4CFB-BACC-3300C2B82F4A.jpeg
+(249.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/171239rgz1xn015t1ehht9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+C0105640-8797-4AA4-816A-363CE559F644.jpeg
+(267.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/171240bajvrvmsmfvoqopf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+2EC184F2-FDE9-4872-A562-8E946E4EED0C.jpeg
+(366.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/171240st583vqft03zvqfg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4302#       发表于 2022-1-15 17:13
+
+我还认识听音很准但自己发不太准的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  x分裂者  
+##### 4303#       发表于 2022-1-15 17:18
+
+ 本帖最后由 x分裂者 于 2022-1-15 17:19 编辑 
+
+不至于不至于，刚开始确实跑了，第二句就调整回来了，中间体力不够有点拉也正常。anju和逢田姐刚开始跳额头闪闪发光的时候到一半也是上气不接下气的，还是练少了。
+
+*****
+
+####  秋月艾莉  
+##### 4304#       发表于 2022-1-15 17:24
+
+这个队形真是liella最舒服的队形
+
+2+3，两个最矮的在前排，最高的在后排中间，第二和第三高后排护法
+
+*****
+
+####  仟音一心  
+##### 4305#       发表于 2022-1-15 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54300612&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-15 17:24</a>
+
+这个队形真是liella最舒服的队形
+
+2+3，两个最矮的在前排，最高的在后排中间，第二和第三高后排护法 ...</blockquote>
+这个
+
+4D28F124-1557-481C-A00B-34E29791CE87.jpeg
+(312.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/172845gqdumlhuwuzmdcmu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4306#       发表于 2022-1-15 17:30
+
+鱼：？
+
+9738C8E5-D721-4060-8D6F-9807890FCE19.jpeg
+(140.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/173024tc95hbd555ooob5i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AFFC4A4A-C38A-446E-B68D-0F6C5F766560.jpeg
+(385.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/173030mhpks0pcfwhp1cz2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+545F5AA0-6898-4529-ABAA-953A74493D1B.jpeg
+(276.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/173030jp8mgeheh2yxspqj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1E0165BE-FCD9-461D-8378-F44857787B55.jpeg
+(372.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/173030bvwwjtw0j00tjtxh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
