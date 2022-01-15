@@ -14373,3 +14373,112 @@ E3E09D93-446D-48F2-8C33-324C5187D614.jpeg
 
 怎么又跟上一场一样伴奏声音太大了
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4252#       发表于 2022-1-15 16:10
+
+阿佩的wink真素一场比一场上手
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4253#       发表于 2022-1-15 16:13
+
+sunnypa有几首歌？好像之前广播上试听就一首？
+
+*****
+
+####  秋月艾莉  
+##### 4254#       发表于 2022-1-15 16:18
+
+今天的素晴声人：还是打铁
+
+*****
+
+####  stygian  
+##### 4255#       发表于 2022-1-15 16:18
+
+草，今天选妃是嗯~~~不是唔~~~
+
+*****
+
+####  秋月艾莉  
+##### 4256#       发表于 2022-1-15 16:22
+
+虽然都看了好多场了还是想吐槽
+
+某人到底为什么要整个椅子在那啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4257#       发表于 2022-1-15 16:25
+
+打铁啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+好的方向想，就两场了，快撑过去了
+
+*****
+
+####  iuhehc  
+##### 4258#       发表于 2022-1-15 16:26
+
+ 本帖最后由 iuhehc 于 2022-1-15 16:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54299938&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-15 16:22</a>
+虽然都看了好多场了还是想吐槽
+
+某人到底为什么要整个椅子在那啊</blockquote>
+未来预报这个歌要仔细看编舞，坐椅子上的可可是在学习的，大概是想表达想成为学园偶像之前的可可的心境吧
+
+syl看这个大场突然期待星光序曲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蜜梨柑  
+##### 4259#       发表于 2022-1-15 16:27
+
+又是solo版，什么时候才有5人版going up啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4260#       发表于 2022-1-15 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54299975&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-15 16:26</a>
+
+未来预报这个歌要仔细看编舞，坐椅子上的可可是在学习的，大概是想表达想成为学园偶像之前的可可的心境吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是这样的
+
+但你知道我的想法是什么吗
+
+我就每次莫名地觉得这是方便中国妹拿椅子抽人（
+
+
+
+*****
+
+####  starring  
+##### 4261#       发表于 2022-1-15 16:28
+
+今天小百合的状态很好啊，唱完未来预报也没很疲倦
+
+*****
+
+####  iuhehc  
+##### 4262#       发表于 2022-1-15 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54299998&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-15 16:28</a>
+大概是这样的
+
+但你知道我的想法是什么吗
+
+我就每次莫名地觉得这是方便中国妹拿椅子抽人（ ...</blockquote>
+ 草 思路广
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
