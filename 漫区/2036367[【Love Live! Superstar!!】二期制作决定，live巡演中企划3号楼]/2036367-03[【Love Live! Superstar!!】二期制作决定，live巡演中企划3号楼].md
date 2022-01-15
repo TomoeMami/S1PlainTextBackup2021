@@ -14528,3 +14528,264 @@ nako这个扩胸运动都快成小千的标配了，好几首歌都有wwwwww
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日月twins没有在小星星出来紧接着出场把她们干碎，看来初出场要等到encore的时候了
 
+
+
+*****
+
+####  chenflyyy  
+##### 4268#       发表于 2022-1-15 16:47
+
+肯定要星光序曲后登场干碎裂啦还原动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4269#       发表于 2022-1-15 16:47
+
+来了来了
+
+*****
+
+####  秋月艾莉  
+##### 4270#       发表于 2022-1-15 16:47
+
+卧槽，来了
+
+还真穿了大翅膀wwwwwwwww
+
+*****
+
+####  starring  
+##### 4271#       发表于 2022-1-15 16:47
+
+桑尼啪来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蜜梨柑  
+##### 4272#       发表于 2022-1-15 16:47
+
+sp来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4273#       发表于 2022-1-15 16:47
+
+ 本帖最后由 iuhehc 于 2022-1-15 16:50 编辑 
+
+( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ
+
+*****
+
+####  stygian  
+##### 4274#       发表于 2022-1-15 16:48
+
+ 本帖最后由 stygian 于 2022-1-15 16:49 编辑 
+
+小了一号的翅膀还行8<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+紫色唱功比我想象的拉啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  寒风夜  
+##### 4275#       发表于 2022-1-15 16:48
+
+草草草，衣服
+
+*****
+
+####  Revival  
+##### 4276#       发表于 2022-1-15 16:49
+
+草 还真有翅膀
+
+*****
+
+####  chenflyyy  
+##### 4277#       发表于 2022-1-15 16:50
+
+太难看了这身。。
+
+*****
+
+####  秋月艾莉  
+##### 4278#       发表于 2022-1-15 16:50
+
+唱得还算可以
+
+但确实是热情洋溢
+
+一个字形容就是( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ( ᐛ )パ
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4279#       发表于 2022-1-15 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">由奈奈可爱哦
+
+*****
+
+####  寒风夜  
+##### 4280#       发表于 2022-1-15 16:51
+
+吉武还行
+
+*****
+
+####  秋月艾莉  
+##### 4281#       发表于 2022-1-15 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是还原第6话的剧情
+
+那么星光序曲的时候会再有一曲吧
+
+*****
+
+####  cybernetics31  
+##### 4282#       发表于 2022-1-15 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可爱就是了 
+
+*****
+
+####  lj205  
+##### 4283#       发表于 2022-1-15 16:53
+
+Chiha好可爱好可爱好可爱啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4284#       发表于 2022-1-15 16:54
+
+草？原来在后面伴舞？
+
+*****
+
+####  a92063256  
+##### 4285#       发表于 2022-1-15 16:54
+
+sp这个衣服太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉到远景突然有种印第安酋长的既视感，舞还不错
+
+*****
+
+####  竹筷  
+##### 4286#       发表于 2022-1-15 16:54
+
+吉武千飒还可以啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秋月艾莉  
+##### 4287#       发表于 2022-1-15 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这衣服明明还可以，毕竟还建立在特定风格之上
+
+比这辣眼的偶像服比比皆是好吧
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4288#       发表于 2022-1-15 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可可，你的偶像在给你伴舞呢
+
+*****
+
+####  优妮可  
+##### 4289#       发表于 2022-1-15 16:57
+
+所以有多车祸啊
+
+*****
+
+####  金持池面  
+##### 4290#       发表于 2022-1-15 16:58
+
+唱功拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过初次登场嘛
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4291#       发表于 2022-1-15 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一句没找到调，后面还行，气息不够稳
+
+*****
+
+####  秋月艾莉  
+##### 4292#       发表于 2022-1-15 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老娘人生中暂时最重要的两场比赛都被你这比给正面撞烂了
+
+给老娘伴伴舞消消气又怎么了，不然粉转黑了啊
+
+*****
+
+####  mithrandir0120  
+##### 4293#       发表于 2022-1-15 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是练的不够多
+
+*****
+
+####  太阳寺太守  
+##### 4294#       发表于 2022-1-15 17:02
+
+主要是chiha表现初次来说很不错了，对比太明显<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  x分裂者  
+##### 4295#       发表于 2022-1-15 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星星毕竟20场开过来的，比不了比不了
+
+*****
+
+####  stygian  
+##### 4296#       发表于 2022-1-15 17:04
+
+吉武还是不错的，跳了十几年舞
+
+结木这从小学钢琴就没顺手练下视唱吗。。
+
+*****
+
+####  csolfans  
+##### 4297#       发表于 2022-1-15 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">小立德都破音，过了明天可以好好休息一下了
+
+*****
+
+####  zylwz  
+##### 4298#       发表于 2022-1-15 17:05
+
+会钢琴不一定代表会唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我也从小学钢琴的 但是唱歌调都找不准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4299#       发表于 2022-1-15 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会弹跟会唱是两回事啊
+
+机械地会弹不代表会唱，也有人根本不会乐器但开口就跟人形CD机一样的
+
+*****
+
+####  TCone  
+##### 4300#       发表于 2022-1-15 17:09
+
+我认识一个钢琴10级的，在ktv开原唱就找不着调，还挺神奇的
+
