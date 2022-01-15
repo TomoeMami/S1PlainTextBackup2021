@@ -14199,3 +14199,13 @@ sma的音乐资源那意思不就是索尼自家的东西么。。。比如说�
 
 什么时候补一下校服版<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4237#       发表于 2022-1-15 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今周的票也准备好了，等着听鲨鱼齿妹的甜嗓
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">今天就是我日月双人组真正的素晴声人和粉色挑染人爆杀星团虚假的素晴声人和粉色挑染人之时！
+
