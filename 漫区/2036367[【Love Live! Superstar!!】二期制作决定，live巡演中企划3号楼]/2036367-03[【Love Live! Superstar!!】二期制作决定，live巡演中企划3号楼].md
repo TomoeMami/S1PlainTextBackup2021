@@ -14932,3 +14932,70 @@ AFFC4A4A-C38A-446E-B68D-0F6C5F766560.jpeg
 
 <img src="https://img.saraba1st.com/forum/202201/15/173030bvwwjtw0j00tjtxh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4307#       发表于 2022-1-15 17:33
+
+pay的刘海乱了，这个发型反而更好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4308#       发表于 2022-1-15 17:34
+
+非虚构pay子最后一句和录音室对比下，发音部分直接下沉，自己偷偷练了多少这是<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4309#       发表于 2022-1-15 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54300690&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-15 17:33</a>
+
+pay的刘海乱了，这个发型反而更好看</blockquote>
+是的
+
+9C2BD4BF-1F41-4AA1-90DD-8725D5599290.jpeg
+(57.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/174058ov7wwv4n761zv032.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+B1841083-0940-4DBD-B3EC-172017EC1F1B.png
+(109.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/174058onjoyi033bni3n63.png" referrerpolicy="no-referrer">
+
+E44FA5CF-3383-4991-984D-B27990ECB7FB.jpeg
+(198.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202201/15/174058vxfcn9pj5ujb3zxb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4310#       发表于 2022-1-15 17:42
+
+看上面截图感觉胖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 4311#       发表于 2022-1-15 17:44
+
+有人心拍没毛病，听音也过关，但唱歌一样找不着调
+
