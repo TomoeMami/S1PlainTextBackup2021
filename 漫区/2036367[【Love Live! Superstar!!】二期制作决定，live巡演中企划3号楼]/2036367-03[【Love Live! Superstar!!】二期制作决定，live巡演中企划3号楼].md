@@ -14296,3 +14296,15 @@ E3E09D93-446D-48F2-8C33-324C5187D614.jpeg
 
 今天有明灯箱应该是星团和鲤鱼广告轮播吧，想去现场<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plazum  
+##### 4244#       发表于 2022-1-15 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54295192&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-15 00:42</a>
+
+炒作引流的，去年年底发的视频没一点水花，明天直播了就突然爆出抄袭。把大伙都引过去送热度，然后改简介删 ...</blockquote>
+对付这种营销还真没什么办法
+
