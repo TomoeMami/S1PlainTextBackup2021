@@ -15359,3 +15359,22 @@ CC25916C-C2BD-4447-B710-7616BF52C2C8.jpeg
 
 想起以前看yhm脑洞的合鲤小段子说她们去麦当劳，鱼点了儿童套餐服务员直接端到打铁面前，然后鱼说，不许抢我的玩具<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4344#       发表于 2022-1-15 23:39
+
+逢田姐也去了，都是组队来看的桑尼帕么
+
+*****
+
+####  player3960  
+##### 4345#       发表于 2022-1-15 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54306453&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-01-15 23:13:40</a>
+拉板又发明新词了，「25歳児」</blockquote>我觉得这种事鲤鱼做的出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
