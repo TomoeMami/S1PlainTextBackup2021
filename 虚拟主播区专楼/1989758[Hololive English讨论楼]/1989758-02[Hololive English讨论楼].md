@@ -876,3 +876,12 @@ mumei这套我太喜欢了
 
 mumei是不是学过声乐啊..
 
+
+
+*****
+
+####  takitaki  
+##### 1587#       发表于 2022-1-16 16:09
+
+kronii最后那段小曲不错，要是也上个声乐课就好了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
