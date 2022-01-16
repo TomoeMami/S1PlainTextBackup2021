@@ -16252,3 +16252,37 @@ https://youtu.be/g88umL5sSyo</blockquote>
 高冷紫吧？会经常上贴吧首页的我就见过这个，虽然但是人家是坂道系贴吧，全靠久保杏树一个人在刷lovelive ...</blockquote>
 对就是这个吧，吧主也知道自己是小丑有点生草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4423#       发表于 2022-1-16 21:16
+
+两个封面，相连的彩虹
+
+7F2914E7-FB7A-452D-9068-20B7CE14DAB1.jpeg
+(412.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/211631pin9c44zn2o9niec.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+A5481877-1453-46FA-B60C-C90DA519AA49.jpeg
+(268.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/211631se5vskpckkz5a5ma.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4424#       发表于 2022-1-16 21:26
+
+真人的5张写真版之前就定好了，接下来全力冲线上talk
+
