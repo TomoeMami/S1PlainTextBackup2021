@@ -16351,3 +16351,38 @@ A5481877-1453-46FA-B60C-C90DA519AA49.jpeg
 
 有人试过魔法集市的烂铁官方店吗？这里买的话还需要自己拼团吗？然后A店和G店的特典有公布吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蜜梨柑  
+##### 4430#       发表于 2022-1-16 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54316709&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-1-16 22:30</a>
+
+有人试过魔法集市的烂铁官方店吗？这里买的话还需要自己拼团吗？然后A店和G店的特典有公布吗 ...</blockquote>
+官方店大概没有店铺特典（最好问一下客服），看说明是走玛沙自己的喵急便（下单满一定数额包邮）。特典的话A店是A4文件夹，G店是文件夹+L判生写。另外A店G店还包括一张线上talk的抽选
+
+*****
+
+####  优妮可  
+##### 4431#       发表于 2022-1-16 23:02
+
+<img src="https://img.saraba1st.com/forum/202201/16/230150pws2d6ldspdjdpct.jpg" referrerpolicy="no-referrer">
+
+<strong>1642345258940.jpg</strong> (878.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/230150w3xor5oscdeos885.jpg" referrerpolicy="no-referrer">
+
+<strong>1642345262514.jpg</strong> (944.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 23:01 上传
+
+第二张好看啊，心动了
+
