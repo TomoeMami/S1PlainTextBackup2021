@@ -16286,3 +16286,59 @@ A5481877-1453-46FA-B60C-C90DA519AA49.jpeg
 
 真人的5张写真版之前就定好了，接下来全力冲线上talk
 
+
+
+*****
+
+####  kata魂  
+##### 4425#       发表于 2022-1-16 21:39
+
+<img src="https://img.saraba1st.com/forum/202201/16/213934xz9c96pix3qvdfiv.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (29.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/213940mad74ly54a2dz4d3.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (45.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 21:39 上传
+
+微博上看到的，笑出声
+
+*****
+
+####  ayangsu  
+##### 4426#       发表于 2022-1-16 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54315734&amp;ptid=2036367" target="_blank">cxj649 发表于 2022-1-16 21:07</a>
+
+对就是这个吧，吧主也知道自己是小丑有点生草</blockquote>
+我也是，首页莫名其妙推送给我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉就是乐子人，有v吧那味，确实挺生草的
+
+*****
+
+####  cat1230  
+##### 4427#       发表于 2022-1-16 21:44
+
+<blockquote>引用第4420楼chenflyyy于2022-01-16 21:04发表的  :
+
+引用:cxj649 发表于 2022-1-16 20:41今天手机推送个奇葩的鲤鱼黑贴吧这吧黑归黑，......</blockquote>
+@chenflyyy
+
+这人也太怪了，得多无聊啊
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  优妮可  
+##### 4428#       发表于 2022-1-16 21:48
+
+就是个脱坑回踩的魔怔人，被ll主吧封了几十次了，一解封就去发引战反串的贴。被封了就去那吧发抹黑的贴，远离他就是了。
+
