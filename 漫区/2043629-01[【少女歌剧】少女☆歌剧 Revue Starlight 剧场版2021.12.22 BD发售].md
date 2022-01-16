@@ -8223,3 +8223,15 @@ merge_out.xml
 
 上海场太爽了，巨幕+杜比音效，真昼那段讨厌你效果太棒！果然这种音画都顶尖的作品还是得在大荧幕上看才爽
 
+
+
+*****
+
+####  ardito  
+##### 617#       发表于 2022-1-16 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54281313&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-14 01:46</a>
+
+如果谈对主题的理解其实是更主观的想法了，不过确实也有点自己的观点，稍微想要离题说一些（非常个人的观 ...</blockquote>
+18年的推都还有快照能翻到么，球指个路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
