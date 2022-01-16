@@ -8235,3 +8235,15 @@ merge_out.xml
 如果谈对主题的理解其实是更主观的想法了，不过确实也有点自己的观点，稍微想要离题说一些（非常个人的观 ...</blockquote>
 18年的推都还有快照能翻到么，球指个路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ColinWine  
+##### 618#       发表于 2022-1-16 15:26
+
+成都再生产看完了，太抹布洗了。
+片尾cast表的监督古川知宏一出来，全场掌声雷动，我手都拍麻了。古川哥哥，你做得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
