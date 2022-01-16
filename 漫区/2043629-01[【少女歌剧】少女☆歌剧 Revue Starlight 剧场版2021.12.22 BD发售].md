@@ -8271,3 +8271,19 @@ wayback machine这个站点下面输入推主相关信息或者直接网页链�
 杭州再演结束 发了番茄和土豆
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ardito  
+##### 621#       发表于 2022-1-16 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54313869&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-16 18:04</a>
+
+https://web.archive.org/
+
+wayback machine这个站点下面输入推主相关信息或者直接网页链接搜索能找到所有 ...</blockquote>
+非常感谢
+
+之前看迷宫厨大触虹老师的p站，存图前摸了一天半，结果就这时间差清空p站跑路了，推上也只有一两个月内的，现在只能找各种快照了，悔不当初<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
