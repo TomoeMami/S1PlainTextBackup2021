@@ -15554,3 +15554,41 @@ sp真的挺讨喜的，突然感觉赢大赛也可以理解
 
 吉武千飒这两年都有在Q娃那边唱ED也会参演Q娃舞台和live，登台经验还是比较足
 
+
+
+*****
+
+####  stygian  
+##### 4356#       发表于 2022-1-16 15:36
+
+差步多得了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+image.png
+(39.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 15:36 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/153630c3u6itcuotif7u7u.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4357#       发表于 2022-1-16 15:40
+
+<img src="https://img.saraba1st.com/forum/202201/16/154016vodh1shqqsta5j8d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220116_153753_com.twitter.android_edit_24673499867588.jpg</strong> (112.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 15:40 上传
+
+*****
+
+####  寒风夜  
+##### 4358#       发表于 2022-1-16 15:42
+
+今天有点沙哑，辛苦最后一天...
+
