@@ -12965,3 +12965,14 @@ staff这是憋伤了吧<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hummysiren  
+##### 2476#       发表于 2022-1-16 20:20
+
+可恶，被魔女和传q这对骗到眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEYM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

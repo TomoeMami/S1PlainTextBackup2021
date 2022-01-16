@@ -573,3 +573,35 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 不记得在哪里看到的说法，psnow的ps3云游戏的是索尼真的在数据中心堆了一屋子ps3在跑的，这么多年了寿命也 ...</blockquote>
 大不了用台积电16nm生产一批
 
+
+
+*****
+
+####  hui.w  
+##### 65#       发表于 2022-1-16 20:10
+
+不指望能像隔壁一样9倍分辨率强化加帧数翻倍，能玩就行
+
+*****
+
+####  泥潭办证先锋  
+##### 66#       发表于 2022-1-16 20:17
+
+我这里还能看到明码标价的PS3游戏，如果单纯只是PS Now包含的PS3游戏是不会显示价格的。
+
+<img src="https://img.saraba1st.com/forum/202201/16/201339h3oaaz39tr3ld6ds.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BD63C898-5F07-4E1E-AAE6-5649BD5BE354.jpeg</strong> (339.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/201616kkjherxrrfa2hh2x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E0EED657-A920-4741-B425-2B65754FBBFE.jpeg</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 20:16 上传
+

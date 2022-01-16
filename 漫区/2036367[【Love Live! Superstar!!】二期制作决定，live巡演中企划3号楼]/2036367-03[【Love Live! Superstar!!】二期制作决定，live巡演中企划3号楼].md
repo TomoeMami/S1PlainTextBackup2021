@@ -16159,3 +16159,14 @@ bd6特典曲不错，期待2nd上sayu能弹吉他其他人围着一起唱（虽�
 
 emi还给麻油鸡发糖了可还行
 
+
+
+*****
+
+####  player3960  
+##### 4416#       发表于 2022-1-16 20:09
+
+真人版好看，该入了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
