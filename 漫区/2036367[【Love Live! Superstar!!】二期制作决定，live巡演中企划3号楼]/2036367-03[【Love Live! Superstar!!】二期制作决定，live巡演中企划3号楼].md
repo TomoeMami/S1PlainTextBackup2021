@@ -15545,3 +15545,12 @@ sp真的挺讨喜的，突然感觉赢大赛也可以理解
 
 鲨鱼妹的颜和声音都很可爱，舞台表现也相对较稳，挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4355#       发表于 2022-1-16 11:10
+
+吉武千飒这两年都有在Q娃那边唱ED也会参演Q娃舞台和live，登台经验还是比较足
+
