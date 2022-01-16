@@ -5293,3 +5293,32 @@ ny下降的是检测阳性率，难道还有其他解释不成？
 
 楼上真的别奶
 
+
+
+*****
+
+####  烦死了  
+##### 3416#       发表于 2022-1-16 13:05
+
+昂撒这次又赌赢了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 天命昭昭啊
+
+*****
+
+####  yario  
+##### 3417#       发表于 2022-1-16 13:07
+
+周末数据下降不是常态吗？
+
+*****
+
+####  烦死了  
+##### 3418#       发表于 2022-1-16 13:11
+
+以色列 9分之一的人是 重复感染  畜群免疫大有希望<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+One in nine recent virus cases in Israel are reinfections — report
+
+High proportion of those who recovered and were then reinfected were at least partially vaccinated
+
+[https://www.timesofisrael.com/on ... einfections-report/](https://www.timesofisrael.com/one-in-nine-recent-virus-cases-in-israel-are-reinfections-report/)
+
