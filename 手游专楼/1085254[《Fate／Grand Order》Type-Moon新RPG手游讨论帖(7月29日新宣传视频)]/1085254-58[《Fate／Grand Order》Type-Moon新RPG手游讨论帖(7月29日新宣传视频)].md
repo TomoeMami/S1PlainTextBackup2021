@@ -11329,3 +11329,12 @@ t2摩根/暗兔/光兔进场50/105/25
 https://bbs.nga.cn/read.php?tid=30285962</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">不然能怎么办，那边玩日服的就不多，成堆问新出的英灵某某怎么样可不得掏出计算器来一番指点江山
 
+
+
+*****
+
+####  sosgame67  
+##### 86598#       发表于 2022-1-16 12:01
+
+日服云大师是这样的..毕竟fgo产能拉跨不虚空嘴炮日服没啥好聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
