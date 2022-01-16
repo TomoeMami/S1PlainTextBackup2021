@@ -8247,3 +8247,17 @@ merge_out.xml
 
 —— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  堆雪若叶  
+##### 619#         楼主| 发表于 2022-1-16 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54311957&amp;ptid=2043629" target="_blank">ardito 发表于 2022-1-16 14:54</a>
+
+18年的推都还有快照能翻到么，球指个路</blockquote>
+[https://web.archive.org/web/2021 ... 1045713338968158209](https://web.archive.org/web/20210525140620/https://twitter.com/kuubyo/status/1045713338968158209)
+
+wayback machine这个站点下面输入推主相关信息或者直接网页链接搜索能找到所有历史推文的快照，然后如果知道被删的推是什么时候的就翻到对应时段慢慢找了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -15827,3 +15827,70 @@ Night sexy <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif"
 
 又开始说吃的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 4384#       发表于 2022-1-16 17:53
+
+青山事故表情喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保存动图每日一乐
+
+*****
+
+####  秋月艾莉  
+##### 4385#       发表于 2022-1-16 17:55
+
+草，回来都已经encore了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4386#       发表于 2022-1-16 17:56
+
+最后一首live with a smile
+
+竟然没有お知らせ
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4387#       发表于 2022-1-16 17:56
+
+live with a smile！
+
+*****
+
+####  秋月艾莉  
+##### 4388#       发表于 2022-1-16 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回来看到live with a smile，不亏
+
+*****
+
+####  stygian  
+##### 4389#       发表于 2022-1-16 18:02
+
+打铁好好休息养好嗓子，来日方长不用这么拼的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4390#       发表于 2022-1-16 18:03
+
+还有大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4391#       发表于 2022-1-16 18:03
+
+居然没有大新闻
+
+*****
+
+####  蜜梨柑  
+##### 4392#       发表于 2022-1-16 18:05
+
+这最后一场居然没有发表<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

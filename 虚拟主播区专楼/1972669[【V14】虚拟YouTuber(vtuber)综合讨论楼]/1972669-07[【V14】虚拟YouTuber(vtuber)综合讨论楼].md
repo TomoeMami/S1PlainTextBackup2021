@@ -13164,3 +13164,12 @@ selen确实菜就是了，打法太娱乐
 
 这么酬勤你田角能给点solo出道资源吗
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10125#       发表于 2022-1-16 17:43
+
+おばくん看对面罩子结束投了个雷直接收了selly，这运气这判断<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
