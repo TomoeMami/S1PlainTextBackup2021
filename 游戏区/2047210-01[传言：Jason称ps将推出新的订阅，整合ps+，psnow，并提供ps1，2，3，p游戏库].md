@@ -614,3 +614,15 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 
 感觉2月可以指一下?(错台了)
 
+
+
+*****
+
+####  沧兰殇  
+##### 68#       发表于 2022-1-17 06:43
+
+那么，老游戏是老键位，圈确定差返回
+新机子系统是圈返回差确定没改回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
