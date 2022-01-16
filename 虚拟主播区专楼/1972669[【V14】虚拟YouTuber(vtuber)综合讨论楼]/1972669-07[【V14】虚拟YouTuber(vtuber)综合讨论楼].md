@@ -13089,3 +13089,31 @@ selen确实菜就是了，打法太娱乐
 
 这live为啥要8500这么贵，有什么特别的活吗<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 10121#       发表于 2022-1-16 10:59
+
+<blockquote>さいね🎨  @sainexxx
+
+【ご報告】
+
+イラスト本「KONLULU!!」に関して、印刷不備がございましたのでご購入の方はお手数ですが下記画像をお読みください。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/16/105613yifwuznu0uus5qh0.jpg" referrerpolicy="no-referrer">
+
+<strong>FJI61KEakAAf8o-.jpg</strong> (394.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 10:56 上传
+
+【本文データ配布ページ】
+[https://sainexxx.booth.pm/items/3583396/secret_pass](https://sainexxx.booth.pm/items/3583396/secret_pass)
+
+※こちらご購入の「KONLULU!!」をご参照の上パスワードを入力してDLしてください。
+
+因为印刷问题，购买了实体本的人可以凭书中某段文字作为密码下载pdf版。
+
