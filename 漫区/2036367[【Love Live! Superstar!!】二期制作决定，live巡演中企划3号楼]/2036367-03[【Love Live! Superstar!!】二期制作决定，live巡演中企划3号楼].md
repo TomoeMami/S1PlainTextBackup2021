@@ -15529,3 +15529,19 @@ AC21A4F5-6BCF-4ED7-B65E-750C002DE28F.jpeg
 
 Chiha可爱！
 
+
+
+*****
+
+####  ads147147  
+##### 4353#       发表于 2022-1-16 10:30
+
+sp真的挺讨喜的，突然感觉赢大赛也可以理解
+
+*****
+
+####  chenflyyy  
+##### 4354#       发表于 2022-1-16 10:41
+
+鲨鱼妹的颜和声音都很可爱，舞台表现也相对较稳，挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
