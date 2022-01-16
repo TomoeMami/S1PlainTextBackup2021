@@ -1218,3 +1218,17 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 报信息当然是大家都要报，但是做判断只能一个人去做。
 新命令下达之前你即使有新信息也只应该把新信息传达给指挥，但不能根据信息擅自调整自己的行动，还是要继续按照上一条命令行动。
 
+
+
+*****
+
+####  zzy516232108  
+##### 62#       发表于 2022-1-16 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54308437&amp;ptid=2046838" target="_blank">talse 发表于 2022-1-16 04:48</a>
+
+还是时代不好，虽说这游戏一直是精度弹匣DPS三个只能有2个，但是现在NOOB全自动只有暴走这个射速快和半自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得狂暴刚出那个赛季根本没人用啊，是同期的LSTAR太强势了吗。
+
+我就记得那个赛季狂暴用了几把觉得是垃圾武器就丢了，起lstar互射3倍镜也稳的一逼，疯狂上分
+
