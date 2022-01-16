@@ -15728,3 +15728,55 @@ DAY1真是好歌啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还有一个小时……
 
+
+
+*****
+
+####  stygian  
+##### 4374#       发表于 2022-1-16 17:10
+
+最后一次放纪录片了
+
+*****
+
+####  lj205  
+##### 4375#       发表于 2022-1-16 17:11
+
+佩佩终于<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">岳父欣慰
+
+*****
+
+####  仟音一心  
+##### 4376#       发表于 2022-1-16 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54313325&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-16 17:11</a>
+
+佩佩终于岳父欣慰</blockquote>
+最后一次未来如风，鲤P抱终于鱼没回头
+
+EDA15CBA-52A1-462B-ABEA-0E12ADB64219.jpeg
+(150.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 17:17 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/171712hskzdy9h8dg1088b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4377#       发表于 2022-1-16 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54312723&amp;ptid=2036367" target="_blank">蜜梨柑 发表于 2022-1-16 16:04</a>
+鱼是漏唱了吗</blockquote>
+隔壁有现场的说了是鱼上台晚了，所以nagi唱完发现没人上来就补唱了。
+最大的可能是今天加了给Sunny Passion伴舞，然后给liella之歌换衣服的时间不够了。
+
+*****
+
+####  stygian  
+##### 4378#       发表于 2022-1-16 17:24
+
+哦哟不唱lapapa直奔shooting voice
+
