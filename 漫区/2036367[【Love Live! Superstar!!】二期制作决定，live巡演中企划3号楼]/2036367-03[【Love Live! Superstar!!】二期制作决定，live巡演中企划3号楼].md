@@ -16029,3 +16029,88 @@ BD6特典曲「突突突」
 
 sunnpa CW曲「直到日升」
 
+
+
+*****
+
+####  寒风夜  
+##### 4402#       发表于 2022-1-16 18:49
+
+bd6特典曲好
+
+*****
+
+####  仟音一心  
+##### 4403#       发表于 2022-1-16 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54314244&amp;ptid=2036367" target="_blank">兔姬姬姬姬姬 发表于 2022-1-16 18:44</a>
+下面这是蛋糕？</blockquote>
+是啊
+
+*****
+
+####  仟音一心  
+##### 4404#       发表于 2022-1-16 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54314156&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-16 18:33</a>
+https://youtu.be/J1nFvy2U0YE
+
+hot passion完整版
+
+https://youtu.be/g88umL5sSyo</blockquote>
+恋的手和所有人都没牵上。
+
+*****
+
+####  蜜梨柑  
+##### 4405#       发表于 2022-1-16 18:53
+
+一专抽选内容2nd第二天公布，基本确定是3rd了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4406#       发表于 2022-1-16 18:54
+
+卧槽原来是这样！
+
+A9E8540C-5200-4448-A73D-E6370BA40E89.jpeg
+(1.16 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/185445m5n80l8nd4eht8m0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4407#       发表于 2022-1-16 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54314352&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-16 18:54</a>
+
+卧槽原来是这样！</blockquote>
+宫岛淳子永远滴神
+
+*****
+
+####  优妮可  
+##### 4408#       发表于 2022-1-16 18:58
+
+麻油鸡现地啊，前辈真好
+
+*****
+
+####  竹筷  
+##### 4409#       发表于 2022-1-16 19:03
+
+宮嶋淳子老师有心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4410#       发表于 2022-1-16 19:05
+
+一专<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">生的希望…………
+

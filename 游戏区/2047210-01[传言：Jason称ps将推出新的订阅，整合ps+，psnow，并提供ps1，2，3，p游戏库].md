@@ -548,3 +548,17 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 
 如果向下兼容只能通过最高级会员才能得到，不能单独购买，那我肯定要狂喷索尼垃圾
 
+
+
+*****
+
+####  JudgmentEye  
+##### 63#       发表于 2022-1-16 18:58
+
+<blockquote>引用第58楼東京急行于2022-01-16 16:38发表的  :
+
+不记得在哪里看到的说法，psnow的ps3云游戏的是索尼真的在数据中心堆了一屋子ps3在跑的，这么多......</blockquote>
+你信吗
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+

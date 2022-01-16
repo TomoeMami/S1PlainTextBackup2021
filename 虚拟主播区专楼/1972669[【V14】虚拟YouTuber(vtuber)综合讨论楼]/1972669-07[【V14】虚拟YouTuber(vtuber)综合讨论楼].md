@@ -13182,3 +13182,24 @@ selen确实菜就是了，打法太娱乐
 
 hnn队两把倒数第一
 
+
+
+*****
+
+####  FCCHua  
+##### 10127#       发表于 2022-1-16 18:56
+
+ 本帖最后由 FCCHua 于 2022-1-16 18:57 编辑 
+
+她们队最后不是倒一就是胜利
+顺便ras队吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 10128#       发表于 2022-1-16 19:00
+
+被kmt宠坏的女人已经废了（）
+
+这次vspo全员吃屎中
+
