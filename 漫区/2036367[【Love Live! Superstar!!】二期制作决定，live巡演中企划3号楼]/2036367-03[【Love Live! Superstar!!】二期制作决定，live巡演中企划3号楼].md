@@ -16114,3 +16114,23 @@ A9E8540C-5200-4448-A73D-E6370BA40E89.jpeg
 
 一专<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">生的希望…………
 
+
+
+*****
+
+####  kata魂  
+##### 4411#       发表于 2022-1-16 19:13
+
+如果2nd或者以后live小百合没1st这么辛苦的话，可以试着用吉他弹这首或者其他的…不如说趁空档将吉他精进一下，就算是以后出道都能用得上
+
+她这个年龄可太合适学习这些新东西了
+
+*****
+
+####  iuhehc  
+##### 4412#       发表于 2022-1-16 19:17
+
+bd6这个r&amp;b好合我胃口
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
