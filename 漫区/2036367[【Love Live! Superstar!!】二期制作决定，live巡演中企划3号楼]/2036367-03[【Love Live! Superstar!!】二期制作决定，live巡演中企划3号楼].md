@@ -16430,3 +16430,134 @@ A5481877-1453-46FA-B60C-C90DA519AA49.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼这是又哭了的表情
 
+
+
+*****
+
+####  lj205  
+##### 4436#       发表于 2022-1-16 23:49
+
+算了一下，一专的线上talk倍率有点可怕，考虑要不要放弃直接冲鲤鱼的一专talk好一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4437#       发表于 2022-1-16 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54317444&amp;ptid=2036367" target="_blank">cybernetics31 发表于 2022-1-16 23:38</a>
+鱼这是又哭了的表情</blockquote>
+哭了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4438#       发表于 2022-1-17 00:03
+
+只剩不知道是不是已经睡着的pay了
+
+3D0DDA3B-E650-4BAF-8A83-81CE3C53DDC2.jpeg
+(209.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000303b4c2lo5zf4ltexfs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5077B6FD-E2BA-437B-8649-9803E6CAF1EB.jpeg
+(242.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000303eui3i3dt3digri4u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8F7B7B74-C25F-4A46-AF98-3BD0A5F17C7E.jpeg
+(212.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000303b4w7cbav8hyom71a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D94EEC36-F195-4979-8456-5F581A69F613.jpeg
+(209.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000303dl6gteq8nckcdg9h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+90D3D39B-EFC9-42DE-9D70-C68B3C0093D4.jpeg
+(224.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000303pgouasyhwpwesegq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4439#       发表于 2022-1-17 00:08
+
+动画人设和本人极像
+
+2C5D429B-F072-40CC-B9B3-85677BE42D83.jpeg
+(177.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000841co3pn5zwo111fvzg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7BAAE176-CECD-49C8-8381-68EFB891857D.jpeg
+(172.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000841dhx6no8967z98oh8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+179DB809-D005-4D3C-B935-24F388D363C5.jpeg
+(222.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000841err8424sscd8c2av.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FA21BB3D-FD73-4C86-972A-E0B4FDCA378B.jpeg
+(188.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000846o8a18a7ee3372eal.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D39B92BB-6B49-4BBC-A482-D2B02D37D268.jpeg
+(292.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000846icgqxf08xhwq31qd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FBB82A61-3C30-43AD-B7EA-59981F13FB0F.jpeg
+(249.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/000846petdpdaf8abytajd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

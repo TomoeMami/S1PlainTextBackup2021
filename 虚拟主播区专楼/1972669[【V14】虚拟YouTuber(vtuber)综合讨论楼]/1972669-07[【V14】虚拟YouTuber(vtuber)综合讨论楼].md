@@ -13329,3 +13329,56 @@ Youtube◆[https://bit.ly/r_snsm](https://bit.ly/r_snsm)
 
 画师爹都这么说了、就是要搞黄色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 10139#       发表于 2022-1-16 23:40
+
+ 本帖最后由 NBXX 于 2022-1-16 23:47 编辑 
+
+突然想起今天是語部紡出道三周年纪念日
+
+————————————————————
+
+记错 还没到
+
+*****
+
+####  越动天下  
+##### 10140#       发表于 2022-1-17 00:00
+
+这几天看下来怎么感觉虹EN男有不可阻挡之势呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> （指数据）
+
+
+
+*****
+
+####  free  
+##### 10141#       发表于 2022-1-17 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54315142&amp;ptid=1972669" target="_blank">biye 发表于 2022-1-16 20:16</a>
+
+哪的棚 直播还是录播有厨出来的吗</blockquote>
+下面staff名单不是写了，logic&amp;magic 这公司名字不是致敬工业光魔的吧
+[https://logic-magic.co.jp/](https://logic-magic.co.jp/)
+
+大葵和mimi现在技术支持就是这家，他们家的特点就是棚子特别大，给不少管人的live作过技术支持，NHK那个虚拟红白和虚拟文化祭也是他们的棚搞的。
+
+【3Dモデル制作/協力】雨谷怜  株式会社Wonderful Works
+
+【音楽制作/協力】 ハム　ゆまみ屋
+
+【映像制作/協力】 庵　手鞠カルタ
+
+【歌唱指導】 織田かおり
+
+【ダンス振付・指導】 明香里　どんぐり 
+
+【3Dスタジオ】 LOGIC&amp;MAGIC 
+
+【操作協力】 辻昇平　堺優也
+
+【制作協力】 のりプロ
+
