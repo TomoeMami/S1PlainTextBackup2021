@@ -12830,3 +12830,68 @@ pid95129368
 
 所以魔女传q还真算是真夏萝拉be
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2468#       发表于 2022-1-16 14:06
+
+传Q魔女这个确实很让人心疼，但是最后也二人幸终了。。。草，你们Q娃连二人幸终都能是交朋友吗，交朋友也太万能了！
+
+<img src="https://img.saraba1st.com/forum/202201/16/140642t188kwg137nc8pd1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220116140610.png</strong> (129.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 14:06 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/140643ajmj6rujubunxmzy.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220116140616.png</strong> (117.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 14:06 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/140643tfqsvm375frfukqj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220116140620.png</strong> (98.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 14:06 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/140643rr8onns8tc8aryzi.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220116140624.png</strong> (97.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 14:06 上传
+
+所以你是败犬是吧
+
+*****
+
+####  hyper-hibiki  
+##### 2469#       发表于 2022-1-16 14:07
+
+巴特拉：和这样的人类少女在一起怎么能搞好破坏！魔女大人，快醒悟过来！
+
+*****
+
+####  leghorn00  
+##### 2470#       发表于 2022-1-16 14:13
+
+<img src="https://img.saraba1st.com/forum/202201/16/141219draoiic0xnonbbns.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (927.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 14:12 上传
+
+看到一半想起了这个
+
