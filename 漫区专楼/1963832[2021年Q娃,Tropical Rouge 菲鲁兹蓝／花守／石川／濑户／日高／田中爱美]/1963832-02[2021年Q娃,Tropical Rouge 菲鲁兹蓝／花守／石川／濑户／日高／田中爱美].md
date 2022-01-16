@@ -12940,3 +12940,28 @@ pid95129368
 
 staff这是憋伤了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点法Q staff那味了
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2474#       发表于 2022-1-16 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54313285&amp;ptid=1963832" target="_blank">leleq 发表于 2022-1-16 17:07</a>
+根据雪飘的提示去查了下 传Q的名字 阿格尼特和人鱼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">人鱼也有男的吗。。
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  最低人间肥宅  
+##### 2475#       发表于 2022-1-16 19:44
+
+看了一整年
+今天这集我领悟了
+原来奔放热带就是百合力很高的意思啊
+魔女要是少女造型这不磕爆？
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

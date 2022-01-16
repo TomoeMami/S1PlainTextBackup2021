@@ -562,3 +562,14 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 
 ----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
 
+
+
+*****
+
+####  4869Bi  
+##### 64#       发表于 2022-1-16 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54313014&amp;ptid=2047210" target="_blank">東京急行 发表于 2022-1-16 16:38</a>
+不记得在哪里看到的说法，psnow的ps3云游戏的是索尼真的在数据中心堆了一屋子ps3在跑的，这么多年了寿命也 ...</blockquote>
+大不了用台积电16nm生产一批
+

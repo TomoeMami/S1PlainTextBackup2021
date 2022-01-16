@@ -16134,3 +16134,28 @@ bd6这个r&amp;b好合我胃口
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  优妮可  
+##### 4413#       发表于 2022-1-16 19:33
+
+emi也去了，鱼应该很开心吧
+
+*****
+
+####  chenflyyy  
+##### 4414#       发表于 2022-1-16 19:35
+
+这两天来的企划相关的cast和staff挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+bd6特典曲不错，期待2nd上sayu能弹吉他其他人围着一起唱（虽然bd特典曲不一定2nd会唱），sunnypa的cw曲就感觉挺一般的
+
+*****
+
+####  stygian  
+##### 4415#       发表于 2022-1-16 19:43
+
+emi还给麻油鸡发糖了可还行
+
