@@ -11353,3 +11353,12 @@ https://bbs.nga.cn/read.php?tid=30285962</blockquote>
 不上双拐一堆残废，有时候甚至要上三拐，组着组着就变成ex大乱斗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 86600#       发表于 2022-1-16 13:41
+
+神特么散装fgo笑死，用各种网页玩游戏
+

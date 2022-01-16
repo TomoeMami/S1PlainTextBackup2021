@@ -5322,3 +5322,33 @@ High proportion of those who recovered and were then reinfected were at least pa
 
 [https://www.timesofisrael.com/on ... einfections-report/](https://www.timesofisrael.com/one-in-nine-recent-virus-cases-in-israel-are-reinfections-report/)
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3419#       发表于 2022-1-16 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54310767&amp;ptid=2039422" target="_blank">yario 发表于 2022-1-16 13:07</a>
+周末数据下降不是常态吗？</blockquote>
+7天平均的确诊数下降
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3420#       发表于 2022-1-16 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54310816&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-1-16 13:11</a>
+以色列 9分之一的人是 重复感染  畜群免疫大有希望
+
+One in nine recent virus cases in Israel are ...</blockquote>
+一个月前就搞清楚的事情，你这里复读干啥呢。
+
+以前感染的抗体无效
+
+两针疫苗无效
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
