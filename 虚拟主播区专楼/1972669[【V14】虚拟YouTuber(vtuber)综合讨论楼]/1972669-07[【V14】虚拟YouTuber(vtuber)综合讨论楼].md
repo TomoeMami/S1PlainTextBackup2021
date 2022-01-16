@@ -13391,3 +13391,12 @@ Youtube◆[https://bit.ly/r_snsm](https://bit.ly/r_snsm)
 
 🌈EN男出道视频在B站一百多万播放，懂不懂含金量啊。
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10143#       发表于 2022-1-17 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只知道en男也开始上快乐买谷了，有点乐呵
+

@@ -10647,3 +10647,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 凯皇怎么成了小丑</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">回过头想想，当初醉酒状态算不算他最强呢
 
+
+
+*****
+
+####  Yeaha123  
+##### 56330#       发表于 2022-1-17 00:21
+
+和之国没画完又开新坑？
+

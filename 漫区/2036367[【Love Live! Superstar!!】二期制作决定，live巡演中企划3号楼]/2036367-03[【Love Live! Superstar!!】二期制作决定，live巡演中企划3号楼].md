@@ -16579,3 +16579,58 @@ FBB82A61-3C30-43AD-B7EA-59981F13FB0F.jpeg
 
 今天的没看，你们前面说的nagi事故表情有图或者切片吗？
 
+
+
+*****
+
+####  player3960  
+##### 4442#       发表于 2022-1-17 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54317883&amp;ptid=2036367" target="_blank">名津流 发表于 2022-01-17 00:26:29</a>
+今天的没看，你们前面说的nagi事故表情有图或者切片吗？</blockquote>b站有，准确来说不是nagi事故，而是nagi神救场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 4443#       发表于 2022-1-17 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54317883&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-17 00:26</a>
+今天的没看，你们前面说的nagi事故表情有图或者切片吗？</blockquote>
+简单来说就是因为今天新增了给SP伴舞打call，鲤鱼来不及将常夏的打歌服换成liella之歌的，导致上台晚了一小会儿，nagi唱完自己的部分后发现没人接愣了一下立即反应过来多唱了一句，然后才是鲤鱼上台接着唱，之后就没有任何影响了。
+
+*****
+
+####  stygian  
+##### 4444#       发表于 2022-1-17 00:40
+
+<img src="https://img.saraba1st.com/forum/202201/17/003903ngccuool5lozfqqc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:39 上传
+
+今年缪一巡十周年，明年无印动画十周年，可以期待下回归？
+
+*****
+
+####  仟音一心  
+##### 4445#       发表于 2022-1-17 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54317992&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-17 00:40</a>
+
+今年缪一巡十周年，明年无印动画十周年，可以期待下回归？</blockquote>
+星团一巡场次数已经和缪团合计一样多了
+
+1F83C63C-1B36-438D-90AD-5FB568DC86E1.jpeg
+(844.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 00:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/004234kzj3uotswjb116dt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
