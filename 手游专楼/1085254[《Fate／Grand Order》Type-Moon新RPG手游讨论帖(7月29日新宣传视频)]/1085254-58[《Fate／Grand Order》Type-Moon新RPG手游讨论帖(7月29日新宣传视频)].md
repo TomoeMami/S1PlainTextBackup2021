@@ -11317,3 +11317,15 @@ t2摩根/暗兔/光兔进场50/105/25
 
 这给我彻底整不明白了 ，合着云玩家已经这样反客为主了？
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 86597#       发表于 2022-1-16 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54308638&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2022-1-16 07:52</a>
+
+https://bbs.nga.cn/read.php?tid=30285962</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">不然能怎么办，那边玩日服的就不多，成堆问新出的英灵某某怎么样可不得掏出计算器来一番指点江山
+
