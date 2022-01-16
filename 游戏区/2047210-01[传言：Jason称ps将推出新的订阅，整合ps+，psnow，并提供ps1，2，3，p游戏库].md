@@ -626,3 +626,22 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  masterzx  
+##### 69#       发表于 2022-1-17 06:48
+
+<img src="https://img.saraba1st.com/forum/202201/17/064732coukftn3namaqnh8.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (68.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 06:47 上传
+
+很多人也说了，ps5上出现ps3游戏不是现在才有的事情
+
+不要随便搞大新闻啊，自己本身也要判断<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
