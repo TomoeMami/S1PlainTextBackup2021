@@ -15933,3 +15933,99 @@ live with a smile！
 
 在天台的发表厨可以跳了
 
+
+
+*****
+
+####  stygian  
+##### 4398#       发表于 2022-1-16 18:33
+
+ 本帖最后由 stygian 于 2022-1-16 18:39 编辑 
+
+[https://youtu.be/J1nFvy2U0YE](https://youtu.be/J1nFvy2U0YE)
+
+hot passion完整版
+[https://youtu.be/g88umL5sSyo](https://youtu.be/g88umL5sSyo)
+
+トゥ トゥ トゥ！完整版
+
+新专封面和造型
+
+<img src="https://img.saraba1st.com/forum/202201/16/183633xpgtk3g1p30re0he.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:36 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/183645fdaarndmdbs21ian.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:36 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/183910khr5qr3rt7mrxml3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:39 上传
+
+还有一对一talk会，可恶
+
+<img src="https://img.saraba1st.com/forum/202201/16/183800zz27pf8pf222z2t2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:38 上传
+
+*****
+
+####  仟音一心  
+##### 4399#       发表于 2022-1-16 18:37
+
+草
+
+55A8A547-36DA-48DB-B662-B6C23B695BDD.jpeg
+(498.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/183718yj2v9mvw4qp7cqvd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+642200F9-2026-43C7-845C-6AD24D320B1A.jpeg
+(333.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/183718gfyhdqrug5j1e1ii.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4400#       发表于 2022-1-16 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54314191&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-16 18:37</a>
+
+草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下面这是蛋糕？
+
+*****
+
+####  竹筷  
+##### 4401#       发表于 2022-1-16 18:45
+
+BD6特典曲「突突突」
+
+sunnpa CW曲「直到日升」
+

@@ -539,3 +539,12 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  reficul  
+##### 62#       发表于 2022-1-16 18:44
+
+如果向下兼容只能通过最高级会员才能得到，不能单独购买，那我肯定要狂喷索尼垃圾
+
