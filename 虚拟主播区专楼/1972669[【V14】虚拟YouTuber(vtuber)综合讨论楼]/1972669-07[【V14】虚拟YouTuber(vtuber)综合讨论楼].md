@@ -13239,3 +13239,51 @@ Selly队也吃鸡了
 
 哪的棚 直播还是录播有厨出来的吗
 
+
+
+*****
+
+####  FCCHua  
+##### 10133#       发表于 2022-1-16 20:22
+
+ 本帖最后由 FCCHua 于 2022-1-16 20:30 编辑 
+
+最后一局吃鸡，舒服了
+什么情绪不安定，但是可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  屑屑代沟尼亚  
+##### 10134#       发表于 2022-1-16 20:30
+
+ 本帖最后由 屑屑代沟尼亚 于 2022-1-16 20:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可爱可爱可爱
+
+QQ图片20220116203329.png
+(92.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 20:34 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/203408iwrdcdbc20d0bhs3.png" referrerpolicy="no-referrer">
+
+QQ图片20220116203335.png
+(48.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-16 20:34 上传
+
+<img src="https://img.saraba1st.com/forum/202201/16/203409rbvzqpqns0kmdg7l.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 10135#       发表于 2022-1-16 20:33
+
+hnn不容易，最后终于打出来了
+
+话说towa好像每次cr都能吃一次鸡？
+
