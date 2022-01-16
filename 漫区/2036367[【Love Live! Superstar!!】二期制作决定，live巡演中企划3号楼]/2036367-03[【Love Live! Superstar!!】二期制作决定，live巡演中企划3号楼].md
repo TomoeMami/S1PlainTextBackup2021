@@ -16226,3 +16226,29 @@ https://youtu.be/g88umL5sSyo</blockquote>
 
 就是这照片的身高有点奇怪，pay都跟鲤鱼差不多高，可能踮脚了
 
+
+
+*****
+
+####  chenflyyy  
+##### 4421#       发表于 2022-1-16 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54315432&amp;ptid=2036367" target="_blank">cxj649 发表于 2022-1-16 20:41</a>
+
+今天手机推送个奇葩的鲤鱼黑贴吧
+
+这吧黑归黑，但对自己有点逼数
+
+太奇葩了 ...</blockquote>
+高冷紫吧？会经常上贴吧首页的我就见过这个，虽然但是人家是坂道系贴吧，全靠久保杏树一个人在刷lovelive相关，好几个圈子的知名小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过那个吧的贴经常上推送确实很奇怪
+
+*****
+
+####  cxj649  
+##### 4422#       发表于 2022-1-16 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54315700&amp;ptid=2036367" target="_blank">chenflyyy 发表于 2022-1-16 21:04</a>
+
+高冷紫吧？会经常上贴吧首页的我就见过这个，虽然但是人家是坂道系贴吧，全靠久保杏树一个人在刷lovelive ...</blockquote>
+对就是这个吧，吧主也知道自己是小丑有点生草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
