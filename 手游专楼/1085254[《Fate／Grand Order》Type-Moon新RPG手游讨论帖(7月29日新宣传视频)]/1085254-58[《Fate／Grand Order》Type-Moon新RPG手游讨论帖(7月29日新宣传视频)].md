@@ -11371,3 +11371,17 @@ https://bbs.nga.cn/read.php?tid=30285962</blockquote>
 
 云玩家不知道的真相：让奥伯龙上场他会骂玩家，而C呆会感谢玩家，所以现在大家都玩红卡队了。
 
+
+
+*****
+
+####  alucardcz  
+##### 86602#       发表于 2022-1-16 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54310643&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-16 12:53</a>
+
+金材料本顺带刷龙牙的时候试了下
+
+这c阶真是拉胯到一定程度了艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无敌的c狗呢
+
