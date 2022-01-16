@@ -11306,3 +11306,14 @@ t2摩根/暗兔/光兔进场50/105/25
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">c狗宝具居然是全屏的  水武藏居然不是
 
+
+
+*****
+
+####  千叶铁矢  
+##### 86596#       发表于 2022-1-16 07:52
+
+[https://bbs.nga.cn/read.php?tid=30285962](https://bbs.nga.cn/read.php?tid=30285962)
+
+这给我彻底整不明白了 ，合着云玩家已经这样反客为主了？
+
