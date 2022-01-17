@@ -700,3 +700,25 @@ TIFA我就感觉很路人
 
 除了七区坠落，整个7re的演出完全就是把神海战神美末等电影化叙事吊起来打，告诉玩家什么才是好玩好看的游戏而不是三流美剧，还敢放大特写炫表情调校，加上战斗系统彻底把白皮3a爆成渣
 
+
+
+*****
+
+####  蛇头  
+##### 73#       发表于 2022-1-17 12:51
+
+gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女主角好感，我还巴不得呢。
+
+恶心的是注水和贫瘠的技术力，第九关作为通关后刷经验魔石，刷服装奖杯，刷好感分支的重要转折关卡，偏偏搞了那么长一段冗长的钻隧道过场，那个机械爪弱智得一塌糊涂。偏偏你做成就和看服装还得反复做，真的智障。
+
+*****
+
+####  终将不惑  
+##### 74#       发表于 2022-1-17 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54289682&amp;ptid=2047340" target="_blank">taichiY 发表于 2022-1-14 16:07</a>
+旧版还有因不同的选项，然后一起乘坐摩天轮的人也不同。</blockquote>
+尤菲！尤菲！尤菲！
+太可爱以至于克劳德亲了她一下，然后挨了一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+每次重温ff7都为了能跟尤菲约会煞费苦心<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
