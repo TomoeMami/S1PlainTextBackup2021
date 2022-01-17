@@ -13038,3 +13038,14 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 看着真的挺感动的，期待最后一集<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2483#       发表于 2022-1-18 01:35
+
+其实女王之所以说会选择遗忘，也是因为自己曾经是当事人吧，很可能女王箭头是对传q，然而传q箭头是对魔女。。。比起魔女那边是拖延的约定，这边是永远的单恋，确实忘记了可能还更好
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
