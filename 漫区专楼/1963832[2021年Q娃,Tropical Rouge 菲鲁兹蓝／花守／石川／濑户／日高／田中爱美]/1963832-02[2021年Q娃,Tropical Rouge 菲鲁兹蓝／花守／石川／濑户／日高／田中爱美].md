@@ -12976,3 +12976,24 @@ staff这是憋伤了吧<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 OPPO PEYM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  haojie_ma  
+##### 2477#       发表于 2022-1-17 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54313285&amp;ptid=1963832" target="_blank">leleq 发表于 2022-1-16 17:07</a>
+
+根据雪飘的提示去查了下 传Q的名字 阿格尼特和人鱼</blockquote>
+原来还有这么个故事
+
+光想着海的女儿的故事，看到是魔女化成泡沫我是真没想到
+
+*****
+
+####  暗黑能乐  
+##### 2478#       发表于 2022-1-17 12:00
+
+魔女走后花浮在水面的场景，和真夏萝拉小时候那段也对应了，感觉很神的一笔
+
