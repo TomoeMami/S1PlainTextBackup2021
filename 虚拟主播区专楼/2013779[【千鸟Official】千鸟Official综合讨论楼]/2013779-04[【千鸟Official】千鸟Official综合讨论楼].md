@@ -6583,3 +6583,24 @@ WOC  模仿者才17岁啊 自己说的.
 
 感觉真像一次性新皮，跟现在的皮简直没法比
 
+
+
+*****
+
+####  tn_teana  
+##### 5186#       发表于 2022-1-18 00:29
+
+<img src="https://p.sda1.dev/4/83936e3ab1184f3131b7b13a2219bf58/IMG_CMP_29211256.png" referrerpolicy="no-referrer">
+无内鬼，来点厄玛老师历时两小时直播画的文静皮
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  tn_teana  
+##### 5187#       发表于 2022-1-18 00:40
+
+<img src="https://p.sda1.dev/4/28c91f7981470b18eb9665cfc16284b5/IMG_CMP_78795757.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
