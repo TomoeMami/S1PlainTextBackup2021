@@ -17623,3 +17623,14 @@ ASMR的麦克风，不是KU100（觉得自己发挥不出性能，浪费），�
 
 楼友真的好入脑 我真的哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  Yukimi7  
+##### 7457#       发表于 2022-1-18 07:24
+
+希望明年这个楼还在吧~~
+
+切身体会过revolution和resistance~~感觉需要一定的勇气和毅力~~希望夸一切顺利~~
+
