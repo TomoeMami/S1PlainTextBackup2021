@@ -5855,3 +5855,24 @@ syl 二期舰长礼物看了下国内好多以前用的转运公司都寄了 在
 
 思思在旧宿舍，没搬过去
 
+
+
+*****
+
+####  人民de救星  
+##### 5104#       发表于 2022-1-17 08:25
+
+新皮难绷，千鸟主打一个性价比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ba娜娜  
+##### 5105#       发表于 2022-1-17 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54317645&amp;ptid=2013779" target="_blank">lunaticfear 发表于 2022-1-17 00:00</a>
+
+思思在旧宿舍，没搬过去</blockquote>
+啊这？思思不搬？<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
