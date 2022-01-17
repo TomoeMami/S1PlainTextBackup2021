@@ -11385,3 +11385,15 @@ https://bbs.nga.cn/read.php?tid=30285962</blockquote>
 这c阶真是拉胯到一定程度了艹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无敌的c狗呢
 
+
+
+*****
+
+####  exiaexa  
+##### 86603#       发表于 2022-1-17 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54316828&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-16 22:40</a>
+无敌的c狗呢</blockquote>
+c狗不就是典型的要两拐才能出门
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
