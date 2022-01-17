@@ -770,3 +770,15 @@ gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女�
 别的不说，日式真人动捕的演出真的是蛮尬的……我已经到了有点难以接受的年纪了 ...</blockquote>
 还好了吧，回去看FFX的泰达那全身日式动作不要吐一地？
 
+
+
+*****
+
+####  解构  
+##### 80#       发表于 2022-1-18 05:11
+
+不知道，反正我是挺吃这一套的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+说到底，难道真的会有人在乎这游戏里的人物逻辑吗？就拿人一开始去炸炉子来说，几位**一路高谈阔论歌舞升平，全程半点遮住脸的意思都没有，结果转手被人当众开盒的路子又岂不笑掉大牙<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

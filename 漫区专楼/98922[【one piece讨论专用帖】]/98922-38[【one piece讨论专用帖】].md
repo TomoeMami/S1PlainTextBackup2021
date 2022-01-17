@@ -10669,3 +10669,16 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 合情合理。
 
+
+
+*****
+
+####  绝赞販売中  
+##### 56332#       发表于 2022-1-18 04:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54327831&amp;ptid=98922" target="_blank">C男人 发表于 2022-1-17 19:45</a>
+还是 “橡胶果实” 的说法更可信一些，也简单。
+
+世界ZF 把 “巨大化果实” 改名叫 “橡胶果实”，然后骗人 ...</blockquote>
+如果是巨大化，空岛那里剧情杀艾尼路就有矛盾了.
+
