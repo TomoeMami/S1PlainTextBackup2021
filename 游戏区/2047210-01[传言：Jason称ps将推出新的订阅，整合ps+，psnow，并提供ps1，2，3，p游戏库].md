@@ -674,3 +674,12 @@ TOGF<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referr
 
 如果能兼容PS3游戏那我的PS3也可以卖掉了
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 73#       发表于 2022-1-17 12:08
+
+港服要怎么办？从没出过PS Now，难不成把日版和美版的都塞进T3？也就PS3和PSP出过部分港中游戏
+
