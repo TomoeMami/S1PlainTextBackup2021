@@ -11444,3 +11444,26 @@ c狗不就是典型的要两拐才能出门，单拐或者复数打手的时候�
 有一说一，c狗的伤害是真的有点儿低</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白字25万还低？
 
+
+
+*****
+
+####  zakki  
+##### 86608#       发表于 2022-1-17 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54327251&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-17 18:52</a>
+白字25万还低？</blockquote>
+有吗，我打克制都没25w，你那个肯定不是70级吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86609#       发表于 2022-1-17 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54327456&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-17 19:10</a>
+
+有吗，我打克制都没25w，你那个肯定不是70级吧</blockquote>
+[https://www.bilibili.com/video/BV1xA411w7Zi/](https://www.bilibili.com/video/BV1xA411w7Zi/)
+
+几百年前录的视频了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
