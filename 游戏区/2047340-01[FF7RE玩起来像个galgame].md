@@ -758,3 +758,15 @@ gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女�
 
 为什么会有人觉得爱丽丝是扎克斯的老婆？
 
+
+
+*****
+
+####  费老师  
+##### 79#       发表于 2022-1-17 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54290631&amp;ptid=2047340" target="_blank">cc-2 发表于 2022-1-14 17:27</a>
+
+别的不说，日式真人动捕的演出真的是蛮尬的……我已经到了有点难以接受的年纪了 ...</blockquote>
+还好了吧，回去看FFX的泰达那全身日式动作不要吐一地？
+
