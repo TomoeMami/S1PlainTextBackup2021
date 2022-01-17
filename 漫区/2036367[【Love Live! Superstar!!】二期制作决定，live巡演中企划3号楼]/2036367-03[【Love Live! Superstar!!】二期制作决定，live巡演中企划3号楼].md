@@ -16877,3 +16877,29 @@ rippi也有合照
 
 水水来了四个人，真好啊
 
+
+
+*****
+
+####  ayangsu  
+##### 4464#       发表于 2022-1-17 17:56
+
+搬一下nagi的新节目[https://nicochannel.jp/nagisaaoyamaoimo/](https://nicochannel.jp/nagisaaoyamaoimo/)
+
+<img src="https://img.saraba1st.com/forum/202201/17/175552bauw8ct88t86fdma.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220117175007.png</strong> (304.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 17:55 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4465#       发表于 2022-1-17 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是她
+
