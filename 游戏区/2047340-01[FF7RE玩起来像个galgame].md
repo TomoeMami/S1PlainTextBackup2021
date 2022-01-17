@@ -722,3 +722,12 @@ gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女�
 太可爱以至于克劳德亲了她一下，然后挨了一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 每次重温ff7都为了能跟尤菲约会煞费苦心<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lighteen  
+##### 75#       发表于 2022-1-17 17:06
+
+爱丽丝不是谁老婆，克劳德最后也没老婆。爱丽丝本身就是话痨型的，所以在她的对话上格外用心。至于演出，有些人确实不吃日式这一套觉得小动作多尴尬。
+

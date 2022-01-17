@@ -13464,3 +13464,32 @@ en男吃的就是亚女粉跟杏吃的就是白皮男粉有什么本质区别吗
 
 鲨皇北美粉其实三分之一都不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全球制霸了
 
+
+
+*****
+
+####  rzrbtk  
+##### 10150#       发表于 2022-1-17 17:03
+
+ 本帖最后由 rzrbtk 于 2022-1-17 17:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/17/170139cwlfggf21dfg2z55.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 796 - 【歌ってみた】？？？ covered by にじさんじ郡道美玲 - YouT.jpg</strong> (20.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 17:01 上传
+
+<img src="https://img.saraba1st.com/forum/202201/17/170142i6vr384fi4afqqx8.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 795 - ゲレンデがとけるほど恋したい - Google 検索 - www.google.c.jpg</strong> (96.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 17:01 上传
+
+真的唱这个嘛，是赶Y2K复古潮还是怀古呢，有一种我郡已阅尽千帆的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">），
+
+突然想起也可能是开闭粉致敬...
+
