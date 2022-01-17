@@ -645,3 +645,14 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 
 不要随便搞大新闻啊，自己本身也要判断<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  信长的呕吐  
+##### 70#       发表于 2022-1-17 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54283531&amp;ptid=2047210" target="_blank">lanselet 发表于 2022-1-14 10:24</a>
+PS3上真的还有什么好游戏没有复刻吗？怎么你们婆罗门什么新闻都能一转模拟器？？ ...</blockquote>
+TOGF<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+

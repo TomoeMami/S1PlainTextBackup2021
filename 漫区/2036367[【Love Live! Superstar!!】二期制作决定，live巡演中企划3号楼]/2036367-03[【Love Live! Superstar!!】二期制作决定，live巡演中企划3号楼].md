@@ -16652,3 +16652,12 @@ FBB82A61-3C30-43AD-B7EA-59981F13FB0F.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4448#       发表于 2022-1-17 09:12
+
+不过今天又看了一下封面，真人版感觉不行……………………特别质朴的感觉…………来个人给设计一下啊……你们可是原宿出身好吗…………<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
