@@ -6367,3 +6367,44 @@ SYL静子真是谔谔
 
 这种皮都能骗米真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tankai  
+##### 5161#       发表于 2022-1-17 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54328406&amp;ptid=2013779" target="_blank">逸yi 发表于 2022-1-17 20:44</a>
+
+这种皮都能骗米真是</blockquote>
+全凭机师水平.
+
+*****
+
+####  T型钉宫病毒  
+##### 5162#       发表于 2022-1-17 20:54
+
+<img src="https://img.saraba1st.com/forum/202201/17/205345gyukxdddlz4d8vvz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>liveScreenshot-赖在被窝里不想起的杂谈时间….2022-01-17_20_48_252.jpeg</strong> (43.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 20:53 上传
+
+*****
+
+####  T型钉宫病毒  
+##### 5163#       发表于 2022-1-17 20:54
+
+衣服一次性的吧，想不出什么场合会用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人民de救星  
+##### 5164#       发表于 2022-1-17 21:01
+
+懒老师！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
