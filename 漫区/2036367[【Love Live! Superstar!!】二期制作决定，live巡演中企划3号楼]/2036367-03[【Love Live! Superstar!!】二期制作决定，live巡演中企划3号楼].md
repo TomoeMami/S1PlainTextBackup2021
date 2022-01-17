@@ -17016,3 +17016,39 @@ QQ图片20220117214015.jpg
 
 <img src="https://img.saraba1st.com/forum/202201/17/214033gfwitfmz4ufucucu.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 4472#       发表于 2022-1-17 21:50
+
+<blockquote>サニパ曲でブレードタイミングで慌てるli(振りミス
+
+最後liがブレードを消して退場の予定が上手く消せず(黄色が消えない
+
+どうにか消して退場
+
+急いで着替えるもliが間に合わずngがフォローで歌う(歌飛び
+
+動揺でprimaryでラストミスng(振りミス
+
+departure前奏で急いで微妙にズレてたマイク位置調整li</blockquote>
+
+简单说就是鱼在上面那层台阶挥棒子的时候黄色那根没关掉，再花时间关掉退场已经来不及了，然后换衣服时间没赶上
+
+ng帮补唱那句也没补完，而且最后动作做错了
+
+在departure前奏时鱼赶紧把歪掉的麦调整好
+
+总之就是运营突然加戏导致鱼忙中出错，可能彩排时是来得及的
+
+*****
+
+####  lj205  
+##### 4473#       发表于 2022-1-17 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54328941&amp;ptid=2036367" target="_blank">csolfans 发表于 2022-1-17 21:40</a>
+chiha</blockquote>
+靠，棒子太好笑了
+

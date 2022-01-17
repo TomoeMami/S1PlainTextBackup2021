@@ -13008,3 +13008,14 @@ Cure Oasis可以算得上历代前辈q娃待遇最好的一位了 有人间体�
 看看某些只有在某编剧里疯狂补设定中魔术师和女祭司
 lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
+
+
+*****
+
+####  最强惠酱  
+##### 2480#       发表于 2022-1-17 22:03
+
+没想到，边哭边战斗的女孩子竟然会这么触动我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
