@@ -17382,3 +17382,26 @@ gbr化了
 
 看着心态很平稳啊，估计是接受了大概率只有线上的事实了
 
+
+
+*****
+
+####  nian1538  
+##### 7436#       发表于 2022-1-17 23:13
+
+不懂crew对ASMR和吹风机的执着
+
+*****
+
+####  越动天下  
+##### 7437#       发表于 2022-1-17 23:14
+
+前面没时间看 看好像MC大饼画出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7438#       发表于 2022-1-17 23:15
+
+ASMR的麦克风都已经买了，看来十年之约已经废弃，再随便播播就准备跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

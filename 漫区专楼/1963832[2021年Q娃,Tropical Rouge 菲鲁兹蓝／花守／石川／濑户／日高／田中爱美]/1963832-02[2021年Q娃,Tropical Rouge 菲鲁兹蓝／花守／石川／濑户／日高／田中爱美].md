@@ -13019,3 +13019,22 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 —— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  alter天江衣  
+##### 2481#       发表于 2022-1-17 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54313237&amp;ptid=1963832" target="_blank">leleq 发表于 2022-1-16 17:01</a>
+
+被人类打败的boss 这是Q娃历史上第一个吧 也太菜了麻衣我的麻衣虽然只有1集但有变身和大招  ...</blockquote>
+今年没看,看他们发视频觉得是麻衣的声音,原来真是啊!!!!!可惜这个造型,哎,不过算了,叫做完梦了
+
+*****
+
+####  ddy2811  
+##### 2482#       发表于 2022-1-17 23:25
+
+看着真的挺感动的，期待最后一集<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

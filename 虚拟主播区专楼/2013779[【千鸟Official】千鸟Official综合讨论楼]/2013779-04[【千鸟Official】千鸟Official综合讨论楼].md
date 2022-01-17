@@ -6554,3 +6554,21 @@ SYL静子真是谔谔
 
 WOC  模仿者才17岁啊 自己说的.
 
+
+
+*****
+
+####  GAKOTO  
+##### 5183#         楼主| 发表于 2022-1-17 23:07
+
+模仿者一直没直播就是因为还没成年
+
+*****
+
+####  夜之中道崩殂  
+##### 5184#       发表于 2022-1-17 23:13
+
+然而高收入和评论区全肯定也无法掩盖这场直播烂中烂的事实<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EML-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
