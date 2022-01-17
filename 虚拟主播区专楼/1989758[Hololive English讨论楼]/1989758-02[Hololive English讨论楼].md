@@ -885,3 +885,12 @@ mumei是不是学过声乐啊..
 
 kronii最后那段小曲不错，要是也上个声乐课就好了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 1588#       发表于 2022-1-17 11:12
+
+mumei这首有点游戏主题曲的味道
+
