@@ -6095,3 +6095,78 @@ SYL静子真是谔谔
 
 文静直言静栗惹看不起小孩梓
 
+
+
+*****
+
+####  袜子  
+##### 5127#       发表于 2022-1-17 19:47
+
+静子真的，我笑死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还不知道鸟P是什么人是吧？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 5128#       发表于 2022-1-17 19:49
+
+这个小女孩，她是叫东雪莲吗？
+
+*****
+
+####  袜子  
+##### 5129#       发表于 2022-1-17 19:49
+
+这弱智抽奖是想测同接？多少有点脑瘫了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 5130#       发表于 2022-1-17 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文静绝对没吃过老麻抄手
+
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 5131#       发表于 2022-1-17 19:56
+
+烂到极致就是好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  灰色的狐狸  
+##### 5132#       发表于 2022-1-17 19:57
+
+因为太烂了反而很有效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就是舰估计上不了几个了
+
+*****
+
+####  rgauss  
+##### 5133#       发表于 2022-1-17 19:58
+
+老麻抄手不加辣椒也麻啊 我觉得文静吃到中麻都受不了
+
+*****
+
+####  Quark  
+##### 5134#       发表于 2022-1-17 20:00
+
+好久没吃过了 明天出去来碗老麻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  H2Ofrozen  
+##### 5135#       发表于 2022-1-17 20:03
+
+有种怀念的感觉，好像上次看这样的直播还是上次
+

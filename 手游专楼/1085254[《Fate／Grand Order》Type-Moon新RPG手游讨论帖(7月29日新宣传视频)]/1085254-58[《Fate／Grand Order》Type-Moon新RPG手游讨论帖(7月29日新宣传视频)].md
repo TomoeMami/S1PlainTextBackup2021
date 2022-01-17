@@ -11467,3 +11467,12 @@ c狗不就是典型的要两拐才能出门，单拐或者复数打手的时候�
 
 几百年前录的视频了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86610#       发表于 2022-1-17 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕是要六加成没带黑杯吧 C狗没黑杯伤害是差一大截
+
