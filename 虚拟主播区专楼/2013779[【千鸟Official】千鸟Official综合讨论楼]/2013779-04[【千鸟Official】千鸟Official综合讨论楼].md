@@ -6513,3 +6513,21 @@ SYL静子真是谔谔
 
 感觉比上次新衣回比差太远了，galgame又事故好多次，新衣服也不行，还是对这次“大活”期望太高了
 
+
+
+*****
+
+####  huyuanhao120  
+##### 5178#       发表于 2022-1-17 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个皮，文静还是不够巨魔
+
+*****
+
+####  人民de救星  
+##### 5179#       发表于 2022-1-17 22:18
+
+模仿者老师还在输出
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
