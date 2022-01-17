@@ -5930,3 +5930,21 @@ syl 二期舰长礼物看了下国内好多以前用的转运公司都寄了 在
 
 <img src="https://img.saraba1st.com/forum/202201/17/085401jbzblb5ben45nbpe.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rgauss  
+##### 5108#       发表于 2022-1-17 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54318999&amp;ptid=2013779" target="_blank">ba娜娜 发表于 2022-1-17 08:26</a>
+啊这？思思不搬？</blockquote>
+播完了在搬过去 今天文静也要回老宿舍播
+
+*****
+
+####  rgauss  
+##### 5109#       发表于 2022-1-17 10:17
+
+文静这皮还行吧 主要没有字 就嗯嗯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
