@@ -11425,3 +11425,22 @@ c狗不就是典型的要两拐才能出门，单拐或者复数打手的时候�
 我要上多拐那么多打手我上啥不行
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86606#       发表于 2022-1-17 18:44
+
+有一说一，c狗的伤害是真的有点儿低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86607#       发表于 2022-1-17 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54327147&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-17 18:44</a>
+
+有一说一，c狗的伤害是真的有点儿低</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白字25万还低？
+
