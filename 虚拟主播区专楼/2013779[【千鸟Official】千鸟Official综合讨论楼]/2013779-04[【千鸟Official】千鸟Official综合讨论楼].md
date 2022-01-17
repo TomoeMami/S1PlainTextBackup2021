@@ -5966,3 +5966,12 @@ syl 二期舰长礼物看了下国内好多以前用的转运公司都寄了 在
 
 看着好壮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GAKOTO  
+##### 5112#         楼主| 发表于 2022-1-17 14:04
+
+把鸟吧一直被限的事向运营吐槽了下，运营这么回复的，要不我干脆回个S1吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/4/15dd45587b9e1ad82d08cdb6a3f93a08/IMG_20220117_135342.jpg" referrerpolicy="no-referrer">
+
