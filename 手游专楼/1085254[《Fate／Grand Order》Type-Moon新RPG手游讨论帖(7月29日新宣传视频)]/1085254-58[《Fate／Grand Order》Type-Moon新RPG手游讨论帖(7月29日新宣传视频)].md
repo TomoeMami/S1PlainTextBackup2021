@@ -11397,3 +11397,31 @@ https://bbs.nga.cn/read.php?tid=30285962</blockquote>
 c狗不就是典型的要两拐才能出门
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86604#       发表于 2022-1-17 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54319619&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-17 09:39</a>
+
+c狗不就是典型的要两拐才能出门，单拐或者复数打手的时候他就是个红卡延时版尼托啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然但是 c狗为什么还要复数打手单拐啊
+
+*****
+
+####  exiaexa  
+##### 86605#       发表于 2022-1-17 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54321452&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-17 11:38</a>
+
+虽然但是 c狗为什么还要复数打手单拐啊</blockquote>
+我现在就是在试各个职阶的单拐+互拐体系啊
+
+你让我玩C狗不就是在为难我
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我要上多拐那么多打手我上啥不行
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
