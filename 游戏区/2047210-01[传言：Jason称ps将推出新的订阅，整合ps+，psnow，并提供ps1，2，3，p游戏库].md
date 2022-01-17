@@ -656,3 +656,12 @@ PS NOW云游戏PS3，哪来的模拟器啊<img src="https://static.saraba1st.com
 PS3上真的还有什么好游戏没有复刻吗？怎么你们婆罗门什么新闻都能一转模拟器？？ ...</blockquote>
 TOGF<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  busher  
+##### 71#       发表于 2022-1-17 09:28
+
+微软提前7年布局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

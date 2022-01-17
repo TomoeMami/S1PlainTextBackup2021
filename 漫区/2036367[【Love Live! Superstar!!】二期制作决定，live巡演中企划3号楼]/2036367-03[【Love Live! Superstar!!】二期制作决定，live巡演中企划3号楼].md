@@ -16661,3 +16661,27 @@ FBB82A61-3C30-43AD-B7EA-59981F13FB0F.jpeg
 
 不过今天又看了一下封面，真人版感觉不行……………………特别质朴的感觉…………来个人给设计一下啊……你们可是原宿出身好吗…………<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4449#       发表于 2022-1-17 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54319055&amp;ptid=2036367" target="_blank">Cryogenian 发表于 2022-1-17 08:37</a>
+
+草</blockquote>
+已经习惯这帮人了
+
+*****
+
+####  saya1892  
+##### 4450#       发表于 2022-1-17 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54319121&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-17 08:45</a>
+
+这段子都是有什么梗在里面么，怎么想出来的</blockquote>
+🔥是鱼的推特常用emoji，哭着练舞睡不够（我记得明明是睡够的……）是访谈内容，想见爸妈好像是那个中文5分钟的采访视频吧，不恰当的日语是陰キャ吗？おそろっち是nagi教的吧。
+
+かっぱ寿司是什么梗？
+
