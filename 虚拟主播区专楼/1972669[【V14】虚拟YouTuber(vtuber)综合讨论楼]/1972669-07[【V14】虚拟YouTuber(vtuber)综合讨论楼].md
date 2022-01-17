@@ -13493,3 +13493,37 @@ en男吃的就是亚女粉跟杏吃的就是白皮男粉有什么本质区别吗
 
 突然想起也可能是开闭粉致敬...
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10151#       发表于 2022-1-17 17:34
+
+<img src="https://img.saraba1st.com/forum/202201/17/173246t6m3rm2pqp9ekzfn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【森中花咲 1st VRライブ開催！】.jpeg</strong> (623.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-17 17:32 上传
+
+【森中花咲 1st VRライブ開催！】
+
+NBCユニバーサル所属アーティスト「森中花咲」
+
+初のVRライブ開催！
+
+森中花咲 1st VR LIVE "下剋上"
+
+ゲスト：戌亥とこ
+
+2/12(土)18時〜VRプラットフォーム『VARK』にて！
+
+1stアルバム「下剋上」を中心にお届けするスペシャルVRライブ！
+[https://vark.co.jp/event/morinaka_kazaki_1st_vr_live/](https://vark.co.jp/event/morinaka_kazaki_1st_vr_live/)
+
+下剋上的新3D，眼间距好像有点微妙
+
+这张专我还挺喜欢的
+
