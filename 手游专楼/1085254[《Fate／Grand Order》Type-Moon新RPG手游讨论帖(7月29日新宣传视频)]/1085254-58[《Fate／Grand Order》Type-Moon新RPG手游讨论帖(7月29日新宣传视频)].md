@@ -11476,3 +11476,30 @@ c狗不就是典型的要两拐才能出门，单拐或者复数打手的时候�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕是要六加成没带黑杯吧 C狗没黑杯伤害是差一大截
 
+
+
+*****
+
+####  alucardcz  
+##### 86611#       发表于 2022-1-17 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没黑杯那是不太能打白字
+
+*****
+
+####  zakki  
+##### 86612#       发表于 2022-1-17 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54327468&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-17 19:11</a>
+https://www.bilibili.com/video/BV1xA411w7Zi/
+
+几百年前录的视频了</blockquote>
+当然说的是不带黑杯的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86613#       发表于 2022-1-17 20:11
+
+翻页
+

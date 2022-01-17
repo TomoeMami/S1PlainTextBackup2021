@@ -6170,3 +6170,108 @@ SYL静子真是谔谔
 
 有种怀念的感觉，好像上次看这样的直播还是上次
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5136#       发表于 2022-1-17 20:07
+
+观感好像也没多糟糕。。。
+
+中国呢！
+
+*****
+
+####  冯闵斯特伯格  
+##### 5137#       发表于 2022-1-17 20:08
+
+笑嘻了
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  rgauss  
+##### 5138#       发表于 2022-1-17 20:08
+
+原来不是东雪莲啊，是保洁阿姨啊
+
+*****
+
+####  希克苏鲁伯  
+##### 5139#       发表于 2022-1-17 20:08
+
+知道哪里怪了，脖子很突兀，显得脸像是廉价p的，脖子短点就好了
+
+*****
+
+####  袜子  
+##### 5140#       发表于 2022-1-17 20:13
+
+太难崩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">钱难赚屎难吃，这套皮的设计太怪了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MaXia0  
+##### 5141#       发表于 2022-1-17 20:13
+
+太糙了…不过绣两个字可以反杀
+
+*****
+
+####  希克苏鲁伯  
+##### 5142#       发表于 2022-1-17 20:16
+
+可动性还是这么高位截瘫
+
+*****
+
+####  T型钉宫病毒  
+##### 5143#       发表于 2022-1-17 20:16
+
+从18岁穿越回高一不也没几年吗，是默认原先是38岁的设定了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  袜子  
+##### 5144#       发表于 2022-1-17 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54328130&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2022-1-17 20:16</a>
+从18岁穿越回高一不也没几年吗，是默认原先是38岁的设定了嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真38带俩娃了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  雨井绫  
+##### 5145#       发表于 2022-1-17 20:17
+
+老太婆又在装嫩了
+
+*****
+
+####  夜潇箫  
+##### 5146#       发表于 2022-1-17 20:18
+
+好恶心，听不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人民de救星  
+##### 5147#       发表于 2022-1-17 20:25
+
+还真是数一数二的v
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伞沢直美  
+##### 5148#       发表于 2022-1-17 20:25
+
+刚下班就看到这属实有点遭不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
