@@ -6572,3 +6572,14 @@ WOC  模仿者才17岁啊 自己说的.
 
 —— 来自 HUAWEI EML-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  藤原银  
+##### 5185#       发表于 2022-1-17 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">文静新皮我服了，看着甚至有点恐怖。
+
+感觉真像一次性新皮，跟现在的皮简直没法比
+
