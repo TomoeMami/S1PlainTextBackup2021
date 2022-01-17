@@ -916,3 +916,16 @@ mumei这首有点游戏主题曲的味道
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  Austaras  
+##### 1591#       发表于 2022-1-17 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54324347&amp;ptid=1989758" target="_blank">vimisbesteditor 发表于 2022-1-17 15:17</a>
+看时间长了也看习惯了，irys的魂能力太强
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2. ...</blockquote>
+有什么推荐回吗
+
