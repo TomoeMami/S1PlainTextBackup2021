@@ -1309,3 +1309,35 @@ S1的都什么神仙<img src="https://static.saraba1st.com/image/smiley/face2017
 
 快来快来，我感觉lz再说几句ea估计也要被收购了
 
+
+
+*****
+
+####  Rary  
+##### 137#       发表于 2022-1-18 22:25
+
+把EA收了，就能集齐了
+
+*****
+
+####  congjasd  
+##### 138#       发表于 2022-1-18 22:26
+
+光明的未来就在前方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ギナ  
+##### 139#       发表于 2022-1-18 22:28
+
+3B归M，索尼可以断气了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  trentswd  
+##### 140#       发表于 2022-1-18 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快快 微软快把bioware也给收了 续一口给龙腾4
+
