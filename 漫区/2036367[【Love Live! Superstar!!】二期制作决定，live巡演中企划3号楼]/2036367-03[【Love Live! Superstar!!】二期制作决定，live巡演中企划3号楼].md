@@ -17303,3 +17303,19 @@ live演完有问卷的，除了live以外也可以提对企划本身的期望，
 
 中文生放的生肉到底什么时候出来，我太想看那几个梗怎么翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 4496#       发表于 2022-1-18 23:46
+
+鲤鱼也太纸防了，被yhm直球之后基本上是装傻转移话题。小百合最近一直各种直球好き怕不是已经拿捏住弱点了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4497#       发表于 2022-1-18 23:51
+
+小看了吧？后面起哄可堇让打铁吃味呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
