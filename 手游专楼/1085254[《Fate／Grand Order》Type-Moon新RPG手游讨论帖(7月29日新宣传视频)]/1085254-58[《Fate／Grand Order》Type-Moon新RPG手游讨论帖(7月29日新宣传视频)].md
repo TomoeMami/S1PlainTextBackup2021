@@ -11648,3 +11648,27 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了一管体力闪人 什么破玩意 根本没有刷的必要
 
+
+
+*****
+
+####  rooarr  
+##### 86628#       发表于 2022-1-18 18:11
+
+确实没劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一点新材料都不给
+
+*****
+
+####  exiaexa  
+##### 86629#       发表于 2022-1-18 18:15
+
+只能当个30AP的QP本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86630#       发表于 2022-1-18 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">自回萌新任务都没做完刷什么柱子(
+
