@@ -17118,3 +17118,14 @@ chiha在鲤鱼的返图下面回了个可可ちゃん大好き，鲤鱼直接回
 
 今晚广播有新歌嘿
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4480#       发表于 2022-1-18 17:14
+
+鲤P一起夸鲨鱼的星光序曲高音
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨鱼：“鲤酱无论夸还是喷都很直球，所以被夸的时候感觉特别开心”
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">Pay子：“那我呢？”
+

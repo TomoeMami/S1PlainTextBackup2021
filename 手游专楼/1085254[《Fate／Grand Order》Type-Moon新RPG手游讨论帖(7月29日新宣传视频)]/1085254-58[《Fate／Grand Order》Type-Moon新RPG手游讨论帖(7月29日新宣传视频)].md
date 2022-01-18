@@ -11589,3 +11589,21 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 月姬R的讨论群都找不到</blockquote>
 我也没说找月姬R的讨论群啊，就fgo的剧情讨论群<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 86621#       发表于 2022-1-18 17:18
+
+<blockquote>areklose 发表于 2022-1-18 13:49
+今晚的柱子掉落能不能换点最新最潮的材料</blockquote>
+您好，没有的，还是老样子
+
+*****
+
+####  quanlix  
+##### 86622#       发表于 2022-1-18 17:26
+
+变成时间内无限刷了，挺好，管饱
+
