@@ -2689,3 +2689,23 @@ neet什么的都是假的吗？<img src="https://static.saraba1st.com/image/smil
 
 和之前也差不多啊，只是这两天播的本来就少。
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 7816#       发表于 2022-1-18 19:05
+
+互动少么，这两天还在推上互动来着
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  pei23333  
+##### 7817#       发表于 2022-1-18 19:17
+
+21号又要凑一起播
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

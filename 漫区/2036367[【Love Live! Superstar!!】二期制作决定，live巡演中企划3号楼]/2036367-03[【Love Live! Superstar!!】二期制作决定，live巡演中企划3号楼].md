@@ -17244,3 +17244,16 @@ https://www.bilibil ...</blockquote>
 
 裂啦寄开头的小剧场，ni老师出图速度真快<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4491#       发表于 2022-1-18 19:15
+
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过期，买了票的楼友可以去填
+
+我是每次都大书特书，直球说我想要像OO的OOOOO之类的歌想看OO之类的展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
