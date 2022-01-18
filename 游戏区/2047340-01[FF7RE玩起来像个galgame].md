@@ -836,3 +836,12 @@ gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女�
 就像爱丽丝卖萌这一段日式尬演，如同前面说的，给人一种揣着明白 ...</blockquote>
 原版爱丽丝就是古灵精怪的设定，没毛病。
 
+
+
+*****
+
+####  风烛尘香  
+##### 85#       发表于 2022-1-18 10:28
+
+爱丽丝是嫂子但嫂子真漂亮，想和嫂子贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
