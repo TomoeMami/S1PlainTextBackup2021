@@ -716,3 +716,81 @@ zenimax能忍受一个从r ...</blockquote>
  ...</blockquote>
 我们熟知的那个工作室杀手ea形象，13，14年换了ceo之后就不怎么杀/干涉工作室了
 
+
+
+*****
+
+####  Stellar_Frost  
+##### 70#       发表于 2022-1-18 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340439&amp;ptid=2047978" target="_blank">clmd 发表于 2022-1-18 19:58</a>
+仙女座问题真不怪生软，ea逼着他用根本就不适合rpg的寒霜引擎的，结果为了保寒霜版fifa，把生软里面所有 ...</blockquote>
+其实最后仙女座技术表现还算合格，拖后腿的是其他方面，开发确实不容易
+
+*****
+
+####  repal  
+##### 71#       发表于 2022-1-18 20:10
+
+我是不知道你们怎么对星空这么乐观的，主设那明明挂着个那么大的Emil Pagliarulo（辐射3，老滚5，辐射4主设计师，总编剧）
+Todd这人也就是爱吹点逼，虽然很多问题他作为总导演难辞其咎，但是绝大多数断子绝孙的事（疯狂吃书和螺旋上天的脑瘫剧情）都是这个Emil一手操作
+反正我是先调整个低预期观望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hyiang98  
+##### 72#         楼主| 发表于 2022-1-18 20:11
+
+确实，我忘了提Emil这人编剧水平是真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  clmd  
+##### 73#       发表于 2022-1-18 20:13
+
+Bioware是高层多年来过度迷信bioware魔法所致，之前的管理顽疾十几年没想过解决，就靠bioware魔法掩盖，终于被反噬了，其实稍微了解一点bioware魔法就知道，Bioware翻车才是正常，魔幻的是怎么现在才翻车，应该质量效应2/3时代就翻掉了。
+
+Blizzard, 过度依赖pc平台，pc平台在ps3时代后撑不起买断制3a大作，暴雪也跟着垮了，讲个鬼故事，2010年的星际争霸2纯开发成本要一亿刀，同年的gta4/荒野大镖客1 开发+宣发都才一亿刀，gta5纯开发成本是1.23亿，后两者销量可是2000万份，gta5更是1亿2千万份销量，而星际争霸2第一年销量才450万份，暴雪最初预计第一年销量能有700万份，实际销量近乎腰斩，星际争霸2暴死，再加上开发了七年，开发成本一亿刀的泰坦取消，就这两个项目，暴雪少说也要赔了2-3亿刀，其实真正了解暴雪历史你就知道，奇怪的不是暴雪怎么现在才出问题，而是连续赔了两个gta级别项目竟然都没事，想想r星要是连续gta5/大表哥2失败，人早没了吧。
+
+Bethesda,b社其实还行，不就是辐射4料不足+76爆炸嘛，4是因为同时期要做老滚ol，人手,工期不足给了半成品，76都不是本部做的，是下面网络部做的，本部在16年起就全力制作星空了，具体怎么样，还得等到星空出来才能下结论。
+
+*****
+
+####  Stellar_Frost  
+##### 74#       发表于 2022-1-18 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340615&amp;ptid=2047978" target="_blank">clmd 发表于 2022-1-18 20:13</a>
+Bioware是高层多年来过度迷信bioware魔法所致，之前的管理顽疾十几年没想过解决，就靠bioware魔法掩盖，终 ...</blockquote>
+ME3开发就已经一地鸡毛了是真的，其实生软核心竞争力还是在叙事
+
+*****
+
+####  clmd  
+##### 75#       发表于 2022-1-18 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340663&amp;ptid=2047978" target="_blank">Stellar_Frost 发表于 2022-1-18 20:17</a>
+
+ME3开发就已经一地鸡毛了是真的，其实生软核心竞争力还是在叙事</blockquote>
+还可以再往前推。。。。me2开发也是一地鸡毛了。。。。
+
+*****
+
+####  repal  
+##### 76#       发表于 2022-1-18 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340600&amp;ptid=2047978" target="_blank">hyiang98 发表于 2022-1-18 20:11</a>
+ 确实，我忘了提Emil这人编剧水平是真的不行  —— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next- ...</blockquote>
+何止是不行，我看过他一个谈自己编剧经验的演讲，脑瘫言论层出不穷 鸟水平没有还特别自以为是 这人哪怕在总编剧位置上睡觉fo3es5fo4的观感都要比现在强得多（fo4唯一风评还凑合的远港就是别人担纲编剧）
+混饭能混到这个位置只能有他是Todd发小一个解释了
+
+*****
+
+####  Stellar_Frost  
+##### 77#       发表于 2022-1-18 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340687&amp;ptid=2047978" target="_blank">clmd 发表于 2022-1-18 20:18</a>
+还可以再往前推。。。。me2开发也是一地鸡毛了。。。。</blockquote>
+me2把屁股擦差不多了，3最后也有一堆东西肉眼可见地没补上
+

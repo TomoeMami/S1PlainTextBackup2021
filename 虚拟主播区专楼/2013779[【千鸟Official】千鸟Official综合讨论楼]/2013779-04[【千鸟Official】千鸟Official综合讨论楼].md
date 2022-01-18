@@ -6624,3 +6624,25 @@ WOC  模仿者才17岁啊 自己说的.
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  tn_teana  
+##### 5190#       发表于 2022-1-18 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  tn_teana  
+##### 5191#       发表于 2022-1-18 20:13
+
+<img src="https://p.sda1.dev/4/fef5ddfe869beaf56cefabc70d1c934c/IMG_CMP_66666526.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
