@@ -17181,3 +17181,49 @@ chiha在鲤鱼的返图下面回了个可可ちゃん大好き，鲤鱼直接回
 
 一专曲听着太一般了，标准流水线日式女团曲
 
+
+
+*****
+
+####  Gerald1  
+##### 4486#       发表于 2022-1-18 18:35
+
+ 本帖最后由 Gerald1 于 2022-1-18 18:38 编辑 
+
+借楼问下这歌有没有完整版，听着居然有点像周杰伦（可能还有点陶喆）那种R&amp;B慢歌风格
+
+[https://www.bilibili.com/video/BV17L4y1478S](https://www.bilibili.com/video/BV17L4y1478S)
+
+*****
+
+####  starring  
+##### 4487#       发表于 2022-1-18 18:35
+
+这周的广播也非常合鲤，小百合日常鲤酱大好き连发。然后pay也太好应付，夸一句可爱就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 4488#       发表于 2022-1-18 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339305&amp;ptid=2036367" target="_blank">Gerald1 发表于 2022-1-18 18:35</a>
+
+借楼问下这歌有没有完整版，听着居然有点像周杰伦（可能还有点陶喆）那种R&amp;B慢歌风格
+
+https://www.bilibil ...</blockquote>
+2月25号才发售
+
+现在只有试听
+
+*****
+
+####  Gerald1  
+##### 4489#       发表于 2022-1-18 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339370&amp;ptid=2036367" target="_blank">zylwz 发表于 2022-1-18 18:39</a>
+
+2月25号才发售
+
+现在只有试听</blockquote>
+谢了
+

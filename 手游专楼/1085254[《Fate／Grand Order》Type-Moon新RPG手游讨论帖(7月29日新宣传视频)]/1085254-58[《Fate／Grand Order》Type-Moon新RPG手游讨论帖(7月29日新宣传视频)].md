@@ -11672,3 +11672,26 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">自回萌新任务都没做完刷什么柱子(
 
+
+
+*****
+
+####  khxooo  
+##### 86631#       发表于 2022-1-18 18:25
+
+57条才给20条凶骨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86632#       发表于 2022-1-18 18:31
+
+虽然材料拉夸，但刷起来是真的快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 86633#       发表于 2022-1-18 18:31
+
+双奥满破黑杯三藏一掌下去3个巴巴托斯<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
