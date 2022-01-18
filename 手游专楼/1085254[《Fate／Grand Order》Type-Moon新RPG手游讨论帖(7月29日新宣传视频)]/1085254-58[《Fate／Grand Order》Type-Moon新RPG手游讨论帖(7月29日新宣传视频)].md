@@ -11706,3 +11706,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  areklose  
+##### 86635#       发表于 2022-1-18 19:52
+
+估计活不到早上
+

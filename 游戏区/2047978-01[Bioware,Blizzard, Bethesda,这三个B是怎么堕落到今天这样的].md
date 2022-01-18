@@ -665,3 +665,54 @@ mod社区退化也是杯赛自己作死的，看看这几年杯赛试图垄断mo
 
 天外世界就是没那么恶劣的ff15
 
+
+
+*****
+
+####  clmd  
+##### 66#       发表于 2022-1-18 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337877&amp;ptid=2047978" target="_blank">古代人皮克 发表于 2022-1-18 16:51</a>
+
+你是说那个引擎商业化失败，核心技术人员跑路，做游戏（Rage）烂透底的id吗
+
+zenimax能忍受一个从r ...</blockquote>
+狂怒1不是2011年游戏嘛
+
+*****
+
+####  clmd  
+##### 67#       发表于 2022-1-18 19:55
+
+ 本帖最后由 clmd 于 2022-1-18 19:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339010&amp;ptid=2047978" target="_blank">Promeus 发表于 2022-1-18 18:14</a>
+
+暴雪的根子是花了1亿的泰坦暴毙了
+
+—— 来自 realme RMX3366, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+星际争霸2光开发就花了一个亿美刀，还没算宣发，比同时代的给她爱4和大表哥1都贵，和gta5差不多
+
+*****
+
+####  clmd  
+##### 68#       发表于 2022-1-18 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339623&amp;ptid=2047978" target="_blank">Stellar_Frost 发表于 2022-1-18 18:56</a>
+
+生软情况特殊，现在看可能真的就是被EA高层里的自己人惯坏了
+
+仙女座七拼八凑到将将及格且不论，圣歌那个开 ...</blockquote>
+仙女座问题真不怪生软，ea逼着他用根本就不适合rpg的寒霜引擎的，结果为了保寒霜版fifa，把生软里面所有懂寒霜的人都抽走搞fifa了，仙女座等于重新学了一编寒霜，因为这事，ea心里有愧，圣歌就由着生软了
+
+*****
+
+####  clmd  
+##### 69#       发表于 2022-1-18 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337029&amp;ptid=2047978" target="_blank">古代人皮克 发表于 2022-1-18 15:54</a>
+
+玻璃渣是因为wow太赚钱导致其他部门变成了公司内斗的牺牲品“有靠山的去wow 没靠山的做垃圾项目的负责人”
+
+ ...</blockquote>
+我们熟知的那个工作室杀手ea形象，13，14年换了ceo之后就不怎么杀/干涉工作室了
+
