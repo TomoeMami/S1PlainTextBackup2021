@@ -13081,3 +13081,14 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  isa2456  
+##### 2487#       发表于 2022-1-19 02:14
+
+变泡沫的时候还是挺感动的，我就怕最后一集萝拉和真夏给我来个比这更大的
+
+那时候就可以将女王打残，要是现代科技发现老家的话分分钟直接扬了吧？那还用得着q娃<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
