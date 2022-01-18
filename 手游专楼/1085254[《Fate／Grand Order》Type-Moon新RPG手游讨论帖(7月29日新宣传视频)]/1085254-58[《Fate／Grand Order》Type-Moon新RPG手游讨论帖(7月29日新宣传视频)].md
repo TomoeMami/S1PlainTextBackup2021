@@ -11724,3 +11724,23 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 和不同的朋友拉了两个讨论剧情的小群（一个偏圆桌一个偏A组）在26之后都变成了乳菌和唱衰群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86637#       发表于 2022-1-18 20:29
+
+才三千万啊
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zakki  
+##### 86638#       发表于 2022-1-18 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340553&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-1-18 20:08</a>
+和不同的朋友拉了两个讨论剧情的小群（一个偏圆桌一个偏A组）在26之后都变成了乳菌和唱衰群 ...</blockquote>
+圆桌和A组，根据这俩关键词我就能想到一个人，群里肯定有他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

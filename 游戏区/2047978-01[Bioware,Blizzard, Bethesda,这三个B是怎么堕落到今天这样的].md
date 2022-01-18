@@ -794,3 +794,29 @@ ME3开发就已经一地鸡毛了是真的，其实生软核心竞争力还是�
 还可以再往前推。。。。me2开发也是一地鸡毛了。。。。</blockquote>
 me2把屁股擦差不多了，3最后也有一堆东西肉眼可见地没补上
 
+
+
+*****
+
+####  真实之影  
+##### 78#       发表于 2022-1-18 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340439&amp;ptid=2047978" target="_blank">clmd 发表于 2022-01-18 19:58:49</a>
+仙女座问题真不怪生软，ea逼着他用根本就不适合rpg的寒霜引擎的，结果为了保寒霜版fifa，把生软里面所有 ...</blockquote>想多了，霜寒有问题但是没那么多，尤其是开发组跟着做了dai，关键是仙女座最早的方向就有问题
+最早要有上百个随机生成的星球，全部可以直接登陆
+这东西想想就不靠谱，结果花了大量时间没搞定随机生成
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  clmd  
+##### 79#       发表于 2022-1-18 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340926&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 20:41</a>
+
+想多了，霜寒有问题但是没那么多，尤其是开发组跟着做了dai，关键是仙女座最早的方向就有问题
+
+最早要有上百 ...</blockquote>
+随机生成的话，无人深空不就是这么搞的？
+
