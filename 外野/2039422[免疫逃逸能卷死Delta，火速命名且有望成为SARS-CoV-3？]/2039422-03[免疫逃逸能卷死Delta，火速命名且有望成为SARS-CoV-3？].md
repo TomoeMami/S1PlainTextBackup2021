@@ -5386,3 +5386,16 @@ One in nine recent virus cases in Israel are ...</blockquote>
 
 子陵在拉黑又在秀屁股了，唉就是不会物传人我看的论文那么多都没说能物传人的，你中国说的就是不科学的瞎说甩锅。然后一脸无辜的细心维护评论区帮他把想说不敢说的说出来。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3423#       发表于 2022-1-18 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54335642&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-18 13:56</a>
+子陵在拉黑又在秀屁股了，唉就是不会物传人我看的论文那么多都没说能物传人的，你中国说的就是不科学的瞎说 ...</blockquote>
+官方口径可是不排除物传人，而不是确认了物传人
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
