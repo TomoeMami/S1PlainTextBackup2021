@@ -5427,3 +5427,17 @@ One in nine recent virus cases in Israel are ...</blockquote>
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  charse2r  
+##### 3426#       发表于 2022-1-18 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338452&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-18 17:28</a>
+
+官方确认了这次传染源是信件了么？没有的话，铁口直断不好吧。中国政府没有瞎讲，瞎讲的是你吧。
+
+— fro ...</blockquote>
+嗯，你知道中国政府没有瞎讲就行。能有这个共识我就不用跟你继续辩了。
+

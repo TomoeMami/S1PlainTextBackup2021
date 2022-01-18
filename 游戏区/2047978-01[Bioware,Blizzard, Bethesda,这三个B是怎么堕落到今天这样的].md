@@ -1,0 +1,651 @@
+
+
+*****
+
+####  hyiang98  
+##### 1#       楼主       发表于 2022-1-18 15:28
+
+Blizzard，感觉跟忒修斯之船一样，老员工走了不少，不过因为我不喜欢玩mmorpg，我对Blizzard没什么了解。
+Bioware，感觉在2022年看来，质量效应仙女座都可以说质量还可以了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，在圣歌“我们做了一个艰难的决定”以后，希望他们能通过质量效应和龙腾世纪新作复活。
+Bethesda，感觉是从滚4开始就彻底转向主机转向轻度玩家，更是整出了Creation Club这种靠mod卖钱的彻底掉钱眼里的操作，辐射4狂砍内容，辐射76首发口碑爆炸，虽然修到今天勉强也能当个废土滚动条单人联机版玩，但刚出来的时候可以说是个笑话，不知道Starfield能整出什么新东西，我猜一个喷气背包是Starfield探索世界的核心机制。
+
+剩下的那些厂商
+Cdpr，应该是新崛起的西方Rpg大厂，感觉他们做的游戏比起Bethesda更像Bioware，虽然我觉得2077有点涉嫌虚假宣传或者说是砍了太多内容，不管怎么说2077肯定赚了，下部作品如果是巫师4估计也有很多人买。
+Obsidian，拿最近的一部作品来说，我对天外世界是很不满意的，没能力跟大厂卷画面，那不如做个45度视角的“辐射正统精神续作”，总比现在这个虎头蛇尾的比辐射4还严重的游戏料多一些。
+Larian，神界系列是我见过的游戏类型最多变的游戏系列，暗黑like，3d动作RPG，RTS,辐射那样的ap点RPG，并且还是由一个制作组制作的，但我觉得他们做不好博德之门3，追求在画面和演出上更接近主流3A，在资金有限的情况下必然会削减游戏其他方面的内容。
+Warhorse Studios，天国拯救非常棒，有点像更写实的上古卷轴4，虽然过于硬核的一些游戏机制限制了这款游戏的销量，要是再轻度一些，估计能单部Rpg卖个1000万以上。
+更剩下的那些在最近十年里崛起的小制作组的游戏，因为我没怎么接触过就不聊，总之，Wrpg后继有人，大公司堕落倒下，小公司就接过大公司的旗子。说不定再过十年，就又有一个小公司像Bethesda或CD Project Red那样做大了
+
+*****
+
+####  ace8848  
+##### 2#       发表于 2022-1-18 15:29
+
+杯赛比前两个强多了吧
+
+*****
+
+####  JudgmentEye  
+##### 3#       发表于 2022-1-18 15:30
+
+zzzq+爸爸教你玩游戏
+
+*****
+
+####  naclken.  
+##### 4#       发表于 2022-1-18 15:32
+
+暴雪对星际和杯赛对辐射做的事情如出一辙
+
+资本入侵玩家社区牟取利益
+
+把圈子做死了
+
+*****
+
+####  饮度  
+##### 5#       发表于 2022-1-18 15:32
+
+cdpr因为2077这事人都跑了差不多了
+
+*****
+
+####  塔奇克马  
+##### 6#       发表于 2022-1-18 15:33
+
+"B社:等上古6出了把你们全莎了"
+
+*****
+
+####  hypnossz86  
+##### 7#       发表于 2022-1-18 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这届玩家不行
+
+*****
+
+####  ybfelix  
+##### 8#       发表于 2022-1-18 15:36
+
+感觉你对厂商的要求是产品不太轻也不太重，质量还上乘，受众大小保持在恰好够维持生活的样子。这个逻辑感觉只适合Patreon小作品…
+
+*****
+
+####  wzq121314  
+##### 9#       发表于 2022-1-18 15:38
+
+王权没有永恒
+
+*****
+
+####  xlsthsj  
+##### 10#       发表于 2022-1-18 15:38
+
+和另外两个相比，杯赛还行
+
+*****
+
+####  傲娇的章鱼  
+##### 11#       发表于 2022-1-18 15:39
+
+陶德：星空出售之日就是B社雪耻之时
+
+*****
+
+####  系色可符香  
+##### 12#       发表于 2022-1-18 15:40
+
+微软收购杯赛的时候你们可不是这么说的
+
+*****
+
+####  trentswd  
+##### 13#       发表于 2022-1-18 15:43
+
+ 本帖最后由 trentswd 于 2022-1-18 15:47 编辑 
+
+杯赛（指杯赛工作室）除了6年没出单机游戏之外  也没啥毛病
+
+杯赛（指发行商）不是做的挺好的吗
+
+其实要说 辐射4 我当初也是在骂烂尾，就在s1专楼里面骂
+
+但是后面几年我玩到了黑曜石的永恒之柱2死火群岛，我在心中已经把辐射4原谅了，甚至我还买了老滚5的十周年骗钱dlc
+
+说网游，f76不说了，tesol生命力也算顽强，虽然看老玩家说最近更新内容也越来越敷衍
+
+*****
+
+####  Quelaan  
+##### 14#       发表于 2022-1-18 15:44
+
+杯赛行不行得看星空和滚6了
+
+*****
+
+####  Kazepollar  
+##### 15#       发表于 2022-1-18 15:45
+
+作为wrpg爱好者，不应该觉得日子越来越有盼头了吗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  肚肚魔  
+##### 16#       发表于 2022-1-18 15:48
+
+杯赛还可以吧，creation club做法虽然不怎么讨喜，我玩了一下质量还是挺高的，比大部分玩家做的mod专业很多，算是官方认证的dlc吧。
+
+*****
+
+####  trentswd  
+##### 17#       发表于 2022-1-18 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54336864&amp;ptid=2047978" target="_blank">Kazepollar 发表于 2022-1-18 15:45</a>
+
+作为wrpg爱好者，不应该觉得日子越来越有盼头了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啥盼头啊
+
+就拿楼主说的这些
+
+blizzard 本来就不做rpg，死不死跟wrpg爱好者没关系
+
+bioware的龙腾4堪忧，随时跑路流产的样子
+
+Bethesda有一个前途未卜的星空 还不知道雷不雷呢
+
+cdpr，巫师3算一个质量不错的答卷但是2077严重偏科，至少在部分形式上（多手段多分支重扮演）做的并不好
+
+obsidian，最近的作品都完成度堪忧，虽然天天说fnv是辐射正统 杯赛千古罪人，但是以黑曜石最近几个游戏的完成度，和fnv也是远远不能比的，只能期待一下avowed 
+
+larian,天国的博得3都两年了！我已经移情别恋到毛子游戏了！
+
+最后一个我没玩过 不清楚
+
+回顾一圈之后所以我完全不期待wrpg了！（指下个月要玩老头环）
+
+*****
+
+####  古代人皮克  
+##### 18#       发表于 2022-1-18 15:54
+
+玻璃渣是因为wow太赚钱导致其他部门变成了公司内斗的牺牲品“有靠山的去wow 没靠山的做垃圾项目的负责人”
+
+生软是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">EA太他妈良心了（我不敢相信我说出这种话） 能放着占着茅坑不拉屎的高层吃空饷 圣歌这种没人带头全靠实习生写屎山的游戏居然没被EA取消掉，完全是发行商之鉴
+
+杯赛有老滚就在游戏界有一席之地，而且过于赚钱导致zenimax能有钱养着ID、阿肯、人头社这些个搞技术/技术/设计创新的公司，比很多发行商好太多了
+
+*****
+
+####  傲娇的章鱼  
+##### 19#       发表于 2022-1-18 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337008&amp;ptid=2047978" target="_blank">trentswd 发表于 2022-1-18 15:53</a>
+
+啥盼头啊
+
+就拿楼主说的这些
+
+blizzard 本来就不做rpg，死不死跟wrpg爱好者没关系</blockquote>
+“星空不会暴雷，我永远相信陶德哥哥”
+
+*****
+
+####  trentswd  
+##### 20#       发表于 2022-1-18 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54336921&amp;ptid=2047978" target="_blank">肚肚魔 发表于 2022-1-18 15:48</a>
+
+杯赛还可以吧，creation club做法虽然不怎么讨喜，我玩了一下质量还是挺高的，比大部分玩家做的mod专业很多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">辐射4的我没玩过不好说
+
+老滚这个cc，我可以说，一个龙裔艺术馆把他们70个cc加起来秒了
+
+*****
+
+####  zris  
+##### 21#       发表于 2022-1-18 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+暴雪不谈了，靠窝窝这辈子，躺在功劳簿上也没啥问题，毕竟是载入史册的游戏
+
+生软就这些年能和杯赛比嘛？
+
+而且陶德来了，全杀了
+
+*****
+
+####  矩形冰块  
+##### 22#       发表于 2022-1-18 16:05
+
+星空不至于雷，但能有多好玩就难说了，这几年mod社区退化严重，想像上古5一样靠mod延续基本不可能了。
+
+*****
+
+####  天妇罗  
+##### 23#       发表于 2022-1-18 16:09
+
+杯赛被收购之后只可能更拉，看看加入Microsoft studio的其他工作室的作品就知道了，巨硬对旗下游戏品质是真的没要求
+
+*****
+
+####  缺德猫  
+##### 24#       发表于 2022-1-18 16:18
+
+感觉杯赛还行吧
+
+*****
+
+####  415452356  
+##### 25#       发表于 2022-1-18 16:25
+
+  我总有种感觉id没有杯赛找个靠谱点的发行商可能也混得不会差
+
+*****
+
+####  kamarus  
+##### 26#       发表于 2022-1-18 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337195&amp;ptid=2047978" target="_blank">zris 发表于 2022-1-18 16:05</a>
+暴雪不谈了，靠窝窝这辈子，躺在功劳簿上也没啥问题，毕竟是载入史册的游戏
+
+生软就这些年能和杯赛 ...</blockquote>
+再黑todd小心别人给弄出老滚5dos版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 27#       发表于 2022-1-18 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337008&amp;ptid=2047978" target="_blank">trentswd 发表于 2022-1-18 15:53</a>
+ 啥盼头啊 就拿楼主说的这些 blizzard 本来就不做rpg，死不死跟wrpg爱好者没关系 </blockquote>
+至少总是有的玩不是<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+星空我可是很期待呢
+
+*****
+
+####  真实之影  
+##### 28#       发表于 2022-1-18 16:39
+
+以前看tgfc的船长的一个观点，他大概是从Jason Schreier和Geff keighley以及其他一些业内报道总结的
+大意是欧美公司喜欢搞民主制，但是公司规模扩大后责权被分散，变成了吃大锅饭无人担责的情况。这种相对平级的关系让老一辈优秀开发者很难把自己的经验让新一代开发者传承下去，他们可能到了年龄就退休，或者被办公室斗争环境赶跑了，剩下的新人就只能重新造轮子或者做粗糙妇科过去成功的模式
+
+这种问题在全效工作室，bioware和棒鸡上都有一定体现
+我觉得占地系列的地图设计时不时出现倒车也是这个原因
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  YFIIII  
+##### 29#       发表于 2022-1-18 16:46
+
+starfield是不是至少该发个片了，除了肯定是个rpg现在可用信息几乎是0
+
+*****
+
+####  zayrq  
+##### 30#       发表于 2022-1-18 16:51
+
+毫无废土精神的five在乱搞辐射
+
+不可明说的制作人在用预告片吸引眼球
+
+卑鄙无耻的窃社大盗卖身进巨硬
+
+陶德霍华德在制作老滚6 new!
+
+
+
+*****
+
+####  古代人皮克  
+##### 31#       发表于 2022-1-18 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337478&amp;ptid=2047978" target="_blank">415452356 发表于 2022-1-18 16:25</a>
+
+我总有种感觉id没有杯赛找个靠谱点的发行商可能也混得不会差</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是说那个引擎商业化失败，核心技术人员跑路，做游戏（Rage）烂透底的id吗
+
+zenimax能忍受一个从rage之后（08~09）到德军总部（14）之前啥事都干不出来的id，还有啥发行商能比杯赛更靠谱了
+
+id从EA跳车到zenimax上不是没有理由的
+
+*****
+
+####  BK10  
+##### 32#       发表于 2022-1-18 16:53
+
+ 本帖最后由 BK10 于 2022-1-18 16:58 编辑 
+<blockquote>YFIIII 发表于 2022-1-18 16:46
+starfield是不是至少该发个片了，除了肯定是个rpg现在可用信息几乎是0</blockquote>
+去年不就放过吗，实机今年e3bgs老传统不发售不放实机试玩
+
+*****
+
+####  古代人皮克  
+##### 33#       发表于 2022-1-18 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337689&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 16:39</a>
+
+以前看tgfc的船长的一个观点，他大概是从Jason Schreier和Geff keighley以及其他一些业内报道总结的
+
+大意是 ...</blockquote>
+还是得看公司文化把 要不然也很难解释为什么raven这种组能一步步做成打工皇帝的。。。
+
+相反棒鸡 生软 甚至是3D realm这些很早就成功了的制作组更多的是难以做到超越自我，一方面公司财务状况又够好能让高层做一些反市场的事情，另一方面要是遇到设计或者技术上的卡点就很容易造成整个公司士气的崩溃了
+
+*****
+
+####  真实之影  
+##### 34#       发表于 2022-1-18 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337944&amp;ptid=2047978" target="_blank">古代人皮克 发表于 2022-01-18 16:55:55</a>
+还是得看公司文化把 要不然也很难解释为什么raven这种组能一步步做成打工皇帝的。。。
+
+相反棒鸡 生软 甚 ...</blockquote>和公司文化关系不大，倒不如说公司文化反而会因为这种规模扩大体系而加速裂化
+你看bioware公司文化就是临时抱佛脚，棒鸡则是动辄推翻重来的豪赌，小体系下问题不大，当工作室变成上百人大项目后就是问题了
+raven反而不如过去吧，它更多问题是服务于动视整体，和high moon一样都成工具人了
+cod这种高度工业化流水线生产的基本很少闹出这种事，你看隔壁育碧全家桶也很少出毛病，但是一搞新项目就又垮了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  415452356  
+##### 35#       发表于 2022-1-18 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338233&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 17:15</a>
+
+和公司文化关系不大，倒不如说公司文化反而会因为这种规模扩大体系而加速裂化
+
+你看bioware公司文化就是临时 ...</blockquote>
+  乌鸦做游戏的水平本来也参差不齐，我上星期打完了ps4版绝地学院和绝地放逐者，前面就是后期收尾拉了点，后面这个和fear1珀尔修斯指令的垃圾程度有的一拼
+
+*****
+
+####  河水  
+##### 36#       发表于 2022-1-18 17:24
+
+姓B的没一个好东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liva  
+##### 37#       发表于 2022-1-18 17:25
+
+啊？那么快就原谅辐射4了吗。。
+
+*****
+
+####  古代人皮克  
+##### 38#       发表于 2022-1-18 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338233&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 17:15</a>
+
+和公司文化关系不大，倒不如说公司文化反而会因为这种规模扩大体系而加速裂化
+
+你看bioware公司文化就是临时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">同期的一些老哥们 （比如monolith prod之类的）连打工都只能去WBgame这种二流地方打
+
+不过确实，作为商业项目必须得有人在发行、市场、开发之间周旋来搞项目管理，这种人可能才是游戏业界里面最缺少的，要不然大发行商也不会逮着摇钱树使劲薅同时对手下工作室开新项目也比较放任了
+
+*****
+
+####  超人苏坦纳  
+##### 39#       发表于 2022-1-18 17:30
+
+天外世界短是短了点 好歹故事是完整的 DLC质量也不错  而且是重组后第一份作业 个人角度是及格了 当成故事片看也不错
+
+*****
+
+####  真实之影  
+##### 40#       发表于 2022-1-18 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338376&amp;ptid=2047978" target="_blank">415452356 发表于 2022-01-18 17:23:26</a>
+乌鸦做游戏的水平本来也参差不齐，我上星期打完了ps4版绝地学院和绝地放逐者，前面就是后期收尾拉了点 ...</blockquote>绝地放逐比绝地学院早，你可以把学院当作放逐的整体改良
+另外一说的就是这个光剑系统非常特别，所以时至今日还有层出不穷的mod，并且还有不少服务器开着可以上去联机对战
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  D-JoeII  
+##### 41#       发表于 2022-1-18 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337249&amp;ptid=2047978" target="_blank">天妇罗 发表于 2022-1-18 16:09</a>
+
+杯赛被收购之后只可能更拉，看看加入Microsoft studio的其他工作室的作品就知道了，巨硬对旗下游戏品质是真 ...</blockquote>
+那找個在2021年比微軟總體表現好的發行商來看看
+
+20220118173053.jpg
+(108.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-18 17:31 上传
+
+<img src="https://img.saraba1st.com/forum/202201/18/173120f5vsnb65ob5ob5z0.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Sorastlos  
+##### 42#       发表于 2022-1-18 17:33
+
+Bungie可是把合同工当洗脚奴，老核心员工当old god的地方<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真实之影  
+##### 43#       发表于 2022-1-18 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338409&amp;ptid=2047978" target="_blank">古代人皮克 发表于 2022-01-18 17:26:03</a>
+同期的一些老哥们 （比如monolith prod之类的）连打工都只能去WBgame这种二流地方打
+
+不过确实，作为商业 ...</blockquote>monolith起码能正常做新游戏，人家还有nemsis这么个新玩意儿
+只要动视的cod共荣圈还在，乌鸦是没可能再做独立项目了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  dumplingpro  
+##### 44#       发表于 2022-1-18 17:43
+
+杯赛再差也是一线啊，或者说这年头大家都差不多烂。
+
+*****
+
+####  古代人皮克  
+##### 45#       发表于 2022-1-18 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338582&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 17:38</a>
+
+monolith起码能正常做新游戏，人家还有nemsis这么个新玩意儿
+
+只要动视的cod共荣圈还在，乌鸦是没可能再做独 ...</blockquote>
+我觉得还是得怪id 当年做黑魔法德军的时候没法拉着小兄弟一把
+
+*****
+
+####  dumplingpro  
+##### 46#       发表于 2022-1-18 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338478&amp;ptid=2047978" target="_blank">超人苏坦纳 发表于 2022-1-18 17:30</a>
+
+天外世界短是短了点 好歹故事是完整的 DLC质量也不错  而且是重组后第一份作业 个人角度是及格了 当成故事 ...</blockquote>
+我也这么觉得，那是众筹成功了柱子1稍微回了点血，就跟柱子2一起双开出来的游戏，成本怎么想也没多少，能做到这个水平很不错了。
+
+在一大票花大钱堆料但体验提升有限的游戏里面，天外世界可以认为是花少钱做中事了。
+
+*****
+
+####  古代人皮克  
+##### 47#       发表于 2022-1-18 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338671&amp;ptid=2047978" target="_blank">dumplingpro 发表于 2022-1-18 17:46</a>
+
+我也这么觉得，那是众筹成功了柱子1稍微回了点血，就跟柱子2一起双开出来的游戏，成本怎么想也没多少，能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是老粉丝玩了天外真的没有一个不生气的
+
+黑曜石太懂怎么勾起你们这帮子老傻逼的兴趣了，撩了就跑最为致命，希望2代能做成一个大型项目把
+
+*****
+
+####  真实之影  
+##### 48#       发表于 2022-1-18 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338639&amp;ptid=2047978" target="_blank">古代人皮克 发表于 2022-01-18 17:43:47</a>
+我觉得还是得怪id 当年做黑魔法德军的时候没法拉着小兄弟一把</blockquote>没用的，因为后来cod体量太大了，你做个啥都要个2，3年销量还不如人家年货塞牙缝的
+你想想除了手游，动视每年出个啥？上一部古惑狼或者小龙斯派罗都是啥时候的事了
+
+所以这是动视整体的问题了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  Hidewhite  
+##### 49#       发表于 2022-1-18 17:55
+
+大型开放世界RPG综合症 吧
+
+暴雪不算，其他几个多多少少有点。杯赛好歹自己也是做这个的，看上去影响比较小。bioware和CDPR本质上其实都不属于会做开放世界的那种。大型+开放世界就等于高管理难度，加上RPG又是更麻烦的难度。开放世界对他们传统的叙事优势没多大帮助，而对流程的缺乏控制增加了很多问题。但开放世界确实是商业优点，所以他们有时候就是做的产品水平其实未必很好，但销量都还不错。如果SE看着FF15销量不错然后一门心思往那走，我觉得也可以给SE上香了。bioware和CDPR觉得他们行，所以他们完蛋了。
+
+*****
+
+####  茛菪  
+##### 50#       发表于 2022-1-18 17:57
+
+我倒是希望天外2能更小一些，Tim Cain这套gameplay、资源管理都随便来重视reactivity的路子完全不适合大规模堆料，reactivity要堆料那底层写手必然是两眼无神对照checklist一个个填的状态，天外世界已经有这感觉了。
+
+*****
+
+####  你妈的为什么  
+##### 51#       发表于 2022-1-18 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面两个臭鱼烂虾 杯赛不值得
+
+*****
+
+####  古代人皮克  
+##### 52#       发表于 2022-1-18 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338796&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 17:55</a>
+
+没用的，因为后来cod体量太大了，你做个啥都要个2，3年销量还不如人家年货塞牙缝的
+
+你想想除了手游，动视每 ...</blockquote>
+动视本来有暴雪帮他扩充多样性嘛。。。
+
+要是暴雪现在这个鬼样子动视都不想办法开支线，那只能说股东会不会做生意了，以前做吉他的时候也没想到吉他游戏会变成完全没人记得的玩意啊
+
+*****
+
+####  Promeus  
+##### 53#       发表于 2022-1-18 18:14
+
+暴雪的根子是花了1亿的泰坦暴毙了
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ESAKA!!!!  
+##### 54#       发表于 2022-1-18 18:15
+
+ 本帖最后由 ESAKA!!!! 于 2022-1-18 18:19 编辑 
+
+杯赛的fps产线挺好的啊，虽然是id
+
+*****
+
+####  布拉德莱恩  
+##### 55#       发表于 2022-1-18 18:25
+
+暴雪两个字就可以概括，“傲慢”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hsxa  
+##### 56#       发表于 2022-1-18 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339010&amp;ptid=2047978" target="_blank">Promeus 发表于 2022-1-18 18:14</a>
+
+暴雪的根子是花了1亿的泰坦暴毙了
+
+—— 来自 realme RMX3366, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+暴雪问题的根子就是那帮老人，真跟动视一样做年货，单数年魔兽资料片，双数年OW资料片，口碑得比现在好多了。
+
+*****
+
+####  hsxa  
+##### 57#       发表于 2022-1-18 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339170&amp;ptid=2047978" target="_blank">布拉德莱恩 发表于 2022-1-18 18:25</a>
+
+暴雪两个字就可以概括，“傲慢”开发游戏的人自己都不玩自己开发的游戏那开发出来的肯定只能是一坨 ...</blockquote>
+所以漕河泾暴雪的人每天都玩O吗？
+
+*****
+
+####  升职加薪  
+##### 58#       发表于 2022-1-18 18:33
+
+暴雪还有20年前的老人吗
+
+*****
+
+####  Tjodrek  
+##### 59#       发表于 2022-1-18 18:41
+
+cdpr现在没有开发能力了吧
+
+*****
+
+####  Stellar_Frost  
+##### 60#       发表于 2022-1-18 18:56
+
+生软情况特殊，现在看可能真的就是被EA高层里的自己人惯坏了
+仙女座七拼八凑到将将及格且不论，圣歌那个开发情况哪怕是甩手掌柜式的资方都应该过问过问
+
+
+
+*****
+
+####  古代人皮克  
+##### 61#       发表于 2022-1-18 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339623&amp;ptid=2047978" target="_blank">Stellar_Frost 发表于 2022-1-18 18:56</a>
+生软情况特殊，现在看可能真的就是被EA高层里的自己人惯坏了
+仙女座七拼八凑到将将及格且不论，圣歌那个开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">圣歌能靠着各种小中层带着实习生做出成品简直是开发奇迹，一度怀疑生软是ea的爹
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ak123  
+##### 62#       发表于 2022-1-18 19:00
+
+ 本帖最后由 ak123 于 2022-1-18 19:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337207&amp;ptid=2047978" target="_blank">矩形冰块 发表于 2022-1-18 16:05</a>
+
+星空不至于雷，但能有多好玩就难说了，这几年mod社区退化严重，想像上古5一样靠mod延续基本不可能了。 ...</blockquote>
+
+mod社区退化也是杯赛自己作死的，看看这几年杯赛试图垄断mod社区做的骚操作吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+杯赛如果继续这样他就会和星际2一样没人给他做mod
+
+*****
+
+####  Stellar_Frost  
+##### 63#       发表于 2022-1-18 19:04
+
+ 本帖最后由 Stellar_Frost 于 2022-1-18 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337207&amp;ptid=2047978" target="_blank">矩形冰块 发表于 2022-1-18 16:05</a>
+星空不至于雷，但能有多好玩就难说了，这几年mod社区退化严重，想像上古5一样靠mod延续基本不可能了。 ...</blockquote>
+纯自己作的。
+不想让mod社区退化掉很简单，不试图硬插一脚就行。P社搞的就很好，哪怕版本更新一群mod原地爆炸也照样边骂边给你做
+小开发商都知道玩家愿意给你无偿做mod那是赏脸，你该做的是给人家抬轿子。反之就是傲慢了。
+
