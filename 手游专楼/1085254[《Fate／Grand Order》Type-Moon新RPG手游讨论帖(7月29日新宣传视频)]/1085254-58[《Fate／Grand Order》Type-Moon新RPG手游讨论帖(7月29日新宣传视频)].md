@@ -11744,3 +11744,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 和不同的朋友拉了两个讨论剧情的小群（一个偏圆桌一个偏A组）在26之后都变成了乳菌和唱衰群 ...</blockquote>
 圆桌和A组，根据这俩关键词我就能想到一个人，群里肯定有他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 86639#       发表于 2022-1-18 21:27
+
+剩80个苹果，摸了，灰和凶骨掉率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

@@ -840,3 +840,91 @@ me2把屁股擦差不多了，3最后也有一堆东西肉眼可见地没补上
 “探索”这一项好像就没有哪个游戏处理得很有娱乐性
 精英危险真的没法说是有娱乐性
 
+
+
+*****
+
+####  真实之影  
+##### 82#       发表于 2022-1-18 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340965&amp;ptid=2047978" target="_blank">clmd 发表于 2022-1-18 20:44</a>
+
+随机生成的话，无人深空不就是这么搞的？</blockquote>
+对，到无人深空才解决，但是现在你也知道了，所谓的随机生成星球根本不好玩，远不如像outer wilds那样手工做几个星球
+
+实际上除了霜寒开发工具不完善以外，一个非常严重的问题是，bioware和Visceral都觉得“我们拿到了个牛逼哄哄的引擎，能立马飞出太阳系”，而根本不考虑这东西好不好玩和能不能玩，导致在这方面做了非常多的无用功
+
+*****
+
+####  hyiang98  
+##### 83#         楼主| 发表于 2022-1-18 21:13
+
+ 本帖最后由 hyiang98 于 2022-1-18 21:17 编辑 
+
+the outer wilds的探索倒是很有乐趣，但这和这游戏相对卡通的风格是离不开的，玩家只要花几分钟就能从木炉星起飞并前往另一个星球，同时每一个星球都有独特的机制，这在Ed这个使用随机生成技术的写实风格游戏里根本不可能实现。
+我曾经从Bubble跑去Colonia两次，也曾经从Bubble跑去过银心超大质量黑洞，BP没去过，我真的觉得那太远了。
+拿比较近的去Colonia来说，走最快的中子星高速去一次也至少要花3-5个小时，其间至少要重复跨恒星系跳跃的次数是......忘了，总之，Ed这个游戏的探索，绝大部份情况下都很孤独且无聊，因为你在前往下个恒星系之前，就十有八九能猜测到这个星系里面有什么样的星球，完全没法和the outer wilds相比。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  真实之影  
+##### 84#       发表于 2022-1-18 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338895&amp;ptid=2047978" target="_blank">古代人皮克 发表于 2022-1-18 18:03</a>
+
+动视本来有暴雪帮他扩充多样性嘛。。。
+
+要是暴雪现在这个鬼样子动视都不想办法开支线，那只能说股东会不 ...</blockquote>
+动视和暴雪最好分开谈，毕竟动视基本管不着暴雪啥事
+
+暴雪不行基本上是暴雪自己做的
+
+*****
+
+####  真实之影  
+##### 85#       发表于 2022-1-18 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340403&amp;ptid=2047978" target="_blank">clmd 发表于 2022-1-18 19:55</a>
+
+星际争霸2光开发就花了一个亿美刀，还没算宣发，比同时代的给她爱4和大表哥1都贵，和gta5差不多 ...</blockquote><blockquote>The Wall street Journal has issued a correction on its StarCraft II story, which reported the game's budget at $100 million.
+
+Turns out, the figure used referred to World of Warcraft instead.</blockquote>
+
+查了下，这是华尔街时报的误报
+
+*****
+
+####  clmd  
+##### 86#       发表于 2022-1-18 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341294&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 21:17</a>
+
+动视和暴雪最好分开谈，毕竟动视基本管不着暴雪啥事
+
+暴雪不行基本上是暴雪自己做的
+
+ ...</blockquote>
+暴雪不行不完全是他作的，主要是还是过于依赖pc市场导致的，pc买断市场在过去衰落太厉害了，pc平台在ps3时代后撑不起买断制3a大作，暴雪也跟着垮了。
+
+*****
+
+####  clmd  
+##### 87#       发表于 2022-1-18 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341306&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 21:18</a>
+
+查了下，这是华尔街时报的误报</blockquote>
+那星际争霸2开发成本是多少呢
+
+*****
+
+####  真实之影  
+##### 88#       发表于 2022-1-18 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341323&amp;ptid=2047978" target="_blank">clmd 发表于 2022-1-18 21:20</a>
+
+暴雪不行不完全是他作的，主要是还是过于依赖pc市场导致的，pc买断市场在过去衰落太厉害了，pc平台在ps3时 ...</blockquote>
+在PS3和360时代山口山还火着呢，还一大把wow killer栽了，暴雪他用不着整东西上主机啊……
+

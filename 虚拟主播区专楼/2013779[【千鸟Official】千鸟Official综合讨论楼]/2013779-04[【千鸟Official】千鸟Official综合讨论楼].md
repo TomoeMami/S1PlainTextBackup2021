@@ -6646,3 +6646,22 @@ WOC  模仿者才17岁啊 自己说的.
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  伞沢直美  
+##### 5192#       发表于 2022-1-18 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是，现在感觉静子大概率就一柴火妞
+
+*****
+
+####  伞沢直美  
+##### 5193#       发表于 2022-1-18 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54328482&amp;ptid=2013779" target="_blank">T型钉宫病毒 发表于 2022-1-17 20:54</a></blockquote>
+哦，我记得了。我孩子时候，在斜对门的豆腐店里确乎终日坐着一个文大嫂，人都叫伊“豆腐西施”。但是擦着白粉，颧骨没有这么高，嘴唇也没有这么薄，而且终日坐着，我也从没有见过这圆规式的姿势。那时人说：因为伊，这豆腐店的买卖非常好。
+
+——鲁迅
+
