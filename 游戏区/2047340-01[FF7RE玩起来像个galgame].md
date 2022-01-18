@@ -823,3 +823,16 @@ gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女�
 
 但说实话如果角色设定就是这样的我会觉得这段的演出、秀技术力、互动体验都太精彩了，主要还是那种“嫂子你自重啊！”的感觉挥散不去<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  heimu  
+##### 84#       发表于 2022-1-18 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54332249&amp;ptid=2047340" target="_blank">萨妃螺丝 发表于 2022-1-18 09:25</a>
+其实演出太用力了，反而会失去了留白的美
+
+就像爱丽丝卖萌这一段日式尬演，如同前面说的，给人一种揣着明白 ...</blockquote>
+原版爱丽丝就是古灵精怪的设定，没毛病。
+

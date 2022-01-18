@@ -17090,3 +17090,22 @@ chiha在鲤鱼的返图下面回了个可可ちゃん大好き，鲤鱼直接回
 
 鲤鱼，但是是数学老师 https://b23.tv/rgCaFKE
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4478#       发表于 2022-1-18 10:05
+
+<img src="https://img.saraba1st.com/forum/202201/18/095904xrss2rap1wwtfzw9.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20220117175531.png</strong> (41.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-18 09:59 上传
+
+转推，DAY2关系者席
+
+还有一些幕后也去了，比如宮嶋淳子老师，OO十O之类的
+
