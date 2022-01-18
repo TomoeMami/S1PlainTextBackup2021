@@ -1341,3 +1341,12 @@ S1的都什么神仙<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快快 微软快把bioware也给收了 续一口给龙腾4
 
+
+
+*****
+
+####  Guildenstern  
+##### 141#       发表于 2022-1-18 23:09
+
+压力来到了生软这一边，你不要不识相
+
