@@ -1240,3 +1240,72 @@ S1的都什么神仙<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+
+*****
+
+####  秋月孝三  
+##### 128#       发表于 2022-1-18 22:13
+
+啥时候三家归晋
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  haruhiismer  
+##### 129#       发表于 2022-1-18 22:14
+
+泥潭反买别墅靠海啊……
+
+*****
+
+####  richeir  
+##### 130#       发表于 2022-1-18 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你妈的为什么  
+##### 131#       发表于 2022-1-18 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼主功利奶不可取啊
+
+*****
+
+####  tengshuo980  
+##### 132#       发表于 2022-1-18 22:17
+
+牛啊
+
+*****
+
+####  TTAA  
+##### 133#       发表于 2022-1-18 22:19
+
+楼主好奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lucky95  
+##### 134#       发表于 2022-1-18 22:20
+
+感觉巨硬就快把EA也买了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  蓬莱妹红  
+##### 135#       发表于 2022-1-18 22:20
+
+笑了，刚发帖的时候我还在想怎么会把这三家并列的，现在一看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  爱护动物抓根宝  
+##### 136#       发表于 2022-1-18 22:23
+
+快来快来，我感觉lz再说几句ea估计也要被收购了
+
