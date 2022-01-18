@@ -17281,3 +17281,25 @@ live演完有问卷的，除了live以外也可以提对企划本身的期望，
 live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
 在eplus 买了东京追加场，前天给我发了调查问卷的邮件，pia那边就没有发
 
+
+
+*****
+
+####  iuhehc  
+##### 4494#       发表于 2022-1-18 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339873&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-18 19:15</a>
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
+每次都填想要海外演唱会，虽然做不到但是喊一下还是要喊的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4495#       发表于 2022-1-18 21:44
+
+中文生放的生肉到底什么时候出来，我太想看那几个梗怎么翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

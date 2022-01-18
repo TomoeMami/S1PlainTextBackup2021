@@ -11753,3 +11753,15 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 剩80个苹果，摸了，灰和凶骨掉率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86640#       发表于 2022-1-18 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339096&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-18 18:20</a>
+
+自回萌新任务都没做完刷什么柱子(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">破活动还要开半个月呢做什么任务
+

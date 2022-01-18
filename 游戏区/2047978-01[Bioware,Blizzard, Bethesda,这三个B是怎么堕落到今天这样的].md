@@ -928,3 +928,160 @@ Turns out, the figure used referred to World of Warcraft instead.</blockquote>
 暴雪不行不完全是他作的，主要是还是过于依赖pc市场导致的，pc买断市场在过去衰落太厉害了，pc平台在ps3时 ...</blockquote>
 在PS3和360时代山口山还火着呢，还一大把wow killer栽了，暴雪他用不着整东西上主机啊……
 
+
+
+*****
+
+####  hhgjf  
+##### 89#       发表于 2022-1-18 21:26
+
+泥潭厉害，把AB奶到被买了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kar_rfg  
+##### 90#       发表于 2022-1-18 21:26
+
+刚看消息微软要收购动视暴雪吗？
+
+
+
+*****
+
+####  clmd  
+##### 91#       发表于 2022-1-18 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341368&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 21:23</a>
+
+在PS3和360时代山口山还火着呢，还一大把wow killer栽了，暴雪他用不着整东西上主机啊…… ...</blockquote>
+我们常说是暴雪不是说暴雪收入不行了，而是说暴雪在山口山后，不怎么搞买断单机大作了，不怎么出新作了，就pc市场这个鬼样子，你让暴雪怎么出魔兽争霸，星际争霸续作啊，好不容易憋出来个星际争霸2还是赔本的
+
+*****
+
+####  clmd  
+##### 92#       发表于 2022-1-18 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341306&amp;ptid=2047978" target="_blank">真实之影 发表于 2022-1-18 21:18</a>
+
+查了下，这是华尔街时报的误报</blockquote>
+虽然星际争霸2开发成本不是一亿刀，但是看星际争霸2第一年销量，还是是铁定赔了吧，暴雪估计第一年销量是700万，才卖了750万份，这肯定赔了，就这450万销量还打破了，pc市场十几年的销售记录。。。。
+
+*****
+
+####  飒露紫  
+##### 93#       发表于 2022-1-18 21:29
+
+非要辐射正统为何不尝试一下atom rpg呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  navarra  
+##### 94#       发表于 2022-1-18 21:30
+
+泥潭真是……今天就有传闻微软已经接近完成收购动视暴雪……700亿刀
+
+—— 来自 samsung SM-G9880, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  onlv星骸  
+##### 95#       发表于 2022-1-18 21:33
+
+草，泥潭奶力
+
+*****
+
+####  chaoswing  
+##### 96#       发表于 2022-1-18 21:35
+
+泥潭厉害，现在是2b了
+
+*****
+
+####  SST-Ting  
+##### 97#       发表于 2022-1-18 21:37
+
+這什麼毒奶啊,你潭奶nd時也沒這麼準啊
+
+*****
+
+####  兰开夏  
+##### 98#       发表于 2022-1-18 21:38
+
+草老鼠仓啊
+
+*****
+
+####  frankCC  
+##### 99#       发表于 2022-1-18 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341550&amp;ptid=2047978" target="_blank">chaoswing 发表于 2022-1-18 21:35</a>
+
+泥潭厉害，现在是2b了</blockquote>
+3B，毕竟eaplay也在xgp了。
+
+*****
+
+####  clmd  
+##### 100#       发表于 2022-1-18 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341453&amp;ptid=2047978" target="_blank">navarra 发表于 2022-1-18 21:30</a>
+
+泥潭真是……今天就有传闻微软已经接近完成收购动视暴雪……700亿刀
+
+—— 来自 samsung SM-G9880, Android ...</blockquote>
+官宣了
+
+*****
+
+####  ff2077  
+##### 101#       发表于 2022-1-18 21:41
+
+坏了 马上是不是要买生软了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Dgnic_  
+##### 102#       发表于 2022-1-18 21:43
+
+草，今天为什么不回这贴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈迪斯兜帽  
+##### 103#       发表于 2022-1-18 21:44
+
+5页内都是前排！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 104#       发表于 2022-1-18 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈哈哈哈哈哈哈人类真是太有趣啦
+
+*****
+
+####  Litccc  
+##### 105#       发表于 2022-1-18 21:45
+
+泥潭绝对有内幕消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  barry.allen  
+##### 106#       发表于 2022-1-18 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生软，就差你了，来一发么？
+
+*****
+
+####  obelisk  
+##### 107#       发表于 2022-1-18 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">才看见这贴
+
