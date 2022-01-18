@@ -13061,3 +13061,23 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 其实女王之所以说会选择遗忘，也是因为自己曾经是当事人吧，很可能女王箭头是对传q，然而传q箭头是对魔女。 ...</blockquote>
 那个送道具的人鱼不是现在的女王吧
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 2485#       发表于 2022-1-19 00:49
+
+真的只有我觉得这个明日复明日然后忘记的桥段非常搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 2486#       发表于 2022-1-19 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54344454&amp;ptid=1963832" target="_blank">华发夜眼[CN] 发表于 2022-1-19 00:49</a>
+真的只有我觉得这个明日复明日然后忘记的桥段非常搞笑吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这。。。过了几百年，忘了确实也不奇怪吧，我现在都已经不记得自己小学的大部分事情了，如果真有人类能活个三四百岁，我觉得这个人或许连自己曾经的妻子或者丈夫的样子都记不住了，更不用说他们曾经怎么相爱之类的具体事由
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
