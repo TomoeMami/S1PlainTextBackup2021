@@ -17129,3 +17129,37 @@ chiha在鲤鱼的返图下面回了个可可ちゃん大好き，鲤鱼直接回
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨鱼：“鲤酱无论夸还是喷都很直球，所以被夸的时候感觉特别开心”
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">Pay子：“那我呢？”
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4481#       发表于 2022-1-18 17:39
+
+水水在Liella表演完了后跑来碰拳了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">碰完鲤鱼当场流泪，好高纯度的拉拉人
+
+*****
+
+####  stygian  
+##### 4482#       发表于 2022-1-18 17:41
+
+ 本帖最后由 stygian 于 2022-1-18 17:43 编辑 
+
+新歌又是中板弦乐。。。说实话有点腻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+======================================
+
+接楼上，鱼大哭的时候菜宝中文大喊：后面要合照，你别哭，妆要花的
+
+毕竟星团第六人<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4483#       发表于 2022-1-18 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是一贯的爽やか＋王道，料想之中
+
+初专反正也不会有什么大的风格变化
+

@@ -11607,3 +11607,21 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 变成时间内无限刷了，挺好，管饱
 
+
+
+*****
+
+####  zakki  
+##### 86623#       发表于 2022-1-18 17:29
+
+不限量可还行，正好试试新年福袋刚中的伊莉雅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 86624#       发表于 2022-1-18 17:37
+
+哪里写了不限量了，只是没有显示剩余数量吧，血槽还是在减的
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
