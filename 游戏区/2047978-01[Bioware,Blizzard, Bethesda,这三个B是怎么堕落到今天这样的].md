@@ -1085,3 +1085,158 @@ Turns out, the figure used referred to World of Warcraft instead.</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">才看见这贴
 
+
+
+*****
+
+####  Rubbersoul11  
+##### 108#       发表于 2022-1-18 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是泥潭
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nexus1  
+##### 109#       发表于 2022-1-18 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">泥潭明灯！！！
+
+*****
+
+####  ml1642879  
+##### 110#       发表于 2022-1-18 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭什么内幕炒股论坛
+
+*****
+
+####  古代人皮克  
+##### 111#       发表于 2022-1-18 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54341761&amp;ptid=2047978" target="_blank">barry.allen 发表于 2022-1-18 21:45</a>
+
+生软，就差你了，来一发么？</blockquote>
+EAplay本来就打包xgp了 三B合一了就是！
+
+*****
+
+####  芷雅居  
+##### 112#       发表于 2022-1-18 21:56
+
+笑爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Totokei  
+##### 113#       发表于 2022-1-18 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所有游戏西瓜皮集结
+
+*****
+
+####  katern  
+##### 114#       发表于 2022-1-18 21:57
+
+天下归一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战术核辣条  
+##### 115#       发表于 2022-1-18 21:57
+
+下次有内幕消息发大财带带坛友<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神他妈的开胃菜  
+##### 116#       发表于 2022-1-18 21:57
+
+这。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李小狼  
+##### 117#       发表于 2022-1-18 21:57
+
+看到新闻第一反应是来这里回帖
+
+*****
+
+####  L.L  
+##### 118#       发表于 2022-1-18 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大时代明灯.
+
+*****
+
+####  鹿叔叔  
+##### 119#       发表于 2022-1-18 21:59
+
+巫师不能出4了吧，除非换主角
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  斯大林的拖拉机  
+##### 120#       发表于 2022-1-18 22:00
+
+下次有内幕消息不妨暗示得更明白一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  shqingda_  
+##### 121#       发表于 2022-1-18 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ESAKA!!!!  
+##### 122#       发表于 2022-1-18 22:02
+
+楼主把暴雪奶活了
+
+*****
+
+####  hydrabbit  
+##### 123#       发表于 2022-1-18 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好奶
+
+*****
+
+####  夏侯妙才  
+##### 124#       发表于 2022-1-18 22:03
+
+还有两天竹达彩奈就30岁了,希望她不要结婚<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 125#       发表于 2022-1-18 22:03
+
+奶的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天使日又日  
+##### 126#       发表于 2022-1-18 22:04
+
+S1的都什么神仙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  yourSwaTer  
+##### 127#       发表于 2022-1-18 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
