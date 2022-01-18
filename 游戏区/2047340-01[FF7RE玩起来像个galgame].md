@@ -845,3 +845,16 @@ gal无所谓，你要真能让我在非战斗关做小任务、约会刷俩女�
 
 爱丽丝是嫂子但嫂子真漂亮，想和嫂子贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shiroamada  
+##### 86#       发表于 2022-1-18 10:58
+
+<blockquote>zhjnppy 发表于 2022-1-14 17:03
+纯好奇 楼里反感这一段的是不是都是t党</blockquote>
+游戏性党吧
+
+拖沓尴尬的演出，还只能直接跳，我想了解剧情却无法快速推进，作为pc玩家已经习惯了快速跳过场直接切到对话和快速对话了
+
