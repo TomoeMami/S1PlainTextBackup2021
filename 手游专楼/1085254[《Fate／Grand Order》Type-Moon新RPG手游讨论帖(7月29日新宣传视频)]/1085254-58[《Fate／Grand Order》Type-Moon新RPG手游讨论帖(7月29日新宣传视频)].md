@@ -11515,3 +11515,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 没黑杯那是不太能打白字</blockquote>
 带黑杯当然不能算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86615#       发表于 2022-1-18 11:42
+
+话说问下，有没有什么fgo讨论剧情的群，求推荐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
