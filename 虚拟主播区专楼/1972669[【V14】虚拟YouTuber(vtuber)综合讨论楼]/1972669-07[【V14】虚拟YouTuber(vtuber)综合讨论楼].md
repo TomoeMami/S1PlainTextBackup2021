@@ -13609,3 +13609,16 @@ yuya这转生也是跟前几日聊过的那个偶像团体差不多的形式嘛
 
 补完了3d双6，效果确实挺好的，其实现在虹的3d挺适合玩一些这些小游戏的，需要的成本也不高，人数也不需要很多就几个人之间就能玩，而且又是久违的しいれな，满足了满足了，下次把葵皇也拉上吧
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 10159#       发表于 2022-1-18 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54324533&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-1-17 15:31</a>
+鲨皇北美粉其实三分之一都不到全球制霸了</blockquote>
+有全部的ppt么？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
