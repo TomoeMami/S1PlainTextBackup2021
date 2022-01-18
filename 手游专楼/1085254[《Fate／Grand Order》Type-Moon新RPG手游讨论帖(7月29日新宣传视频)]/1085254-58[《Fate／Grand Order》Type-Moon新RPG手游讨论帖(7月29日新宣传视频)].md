@@ -11524,3 +11524,21 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 话说问下，有没有什么fgo讨论剧情的群，求推荐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86616#       发表于 2022-1-18 11:59
+
+ 本帖最后由 exiaexa 于 2022-1-18 12:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54334085&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-18 11:42</a>
+
+话说问下，有没有什么fgo讨论剧情的群，求推荐之前加了很久的群实在一言难尽 ...</blockquote>
+按照我们在楼里的讨论风向，你得去找那种
+
+菌哥哥黑粉群，现环境可太难找了
+
+早几年futa吧还能算半个，这几年都会删黑子贴了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
