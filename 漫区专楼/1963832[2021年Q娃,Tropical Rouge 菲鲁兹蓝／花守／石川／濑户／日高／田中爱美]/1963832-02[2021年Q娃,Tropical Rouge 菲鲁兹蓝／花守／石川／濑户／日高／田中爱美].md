@@ -13049,3 +13049,15 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hyper-hibiki  
+##### 2484#       发表于 2022-1-18 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54330807&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2022-1-18 01:35</a>
+
+其实女王之所以说会选择遗忘，也是因为自己曾经是当事人吧，很可能女王箭头是对传q，然而传q箭头是对魔女。 ...</blockquote>
+那个送道具的人鱼不是现在的女王吧
+

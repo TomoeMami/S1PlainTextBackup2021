@@ -11551,3 +11551,29 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 今晚的柱子掉落能不能换点最新最潮的材料
 
+
+
+*****
+
+####  zakki  
+##### 86618#       发表于 2022-1-18 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54334338&amp;ptid=1085254" target="_blank">exiaexa 发表于 2022-1-18 11:59</a>
+
+按照我们在楼里的讨论风向，你得去找那种
+
+菌哥哥黑粉群，现环境可太难找了
+
+早几年futa吧还能算半个，这几 ...</blockquote>
+不是黑不黑什么的，就正常讨论剧情的群，我有些假药但老发在这个楼里也不太好，还容易刷楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 86619#       发表于 2022-1-18 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54335811&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-18 14:11</a>
+
+不是黑不黑什么的，就正常讨论剧情的群，我有些假药但老发在这个楼里也不太好，还容易刷楼之前加的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月姬R的讨论群都找不到
+
