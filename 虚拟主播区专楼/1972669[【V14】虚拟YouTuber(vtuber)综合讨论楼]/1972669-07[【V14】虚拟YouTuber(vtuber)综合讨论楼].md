@@ -13622,3 +13622,17 @@ yuya这转生也是跟前几日聊过的那个偶像团体差不多的形式嘛
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  OldGlory  
+##### 10160#       发表于 2022-1-18 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337984&amp;ptid=1972669" target="_blank">vimisbesteditor 发表于 2022-1-18 16:58</a>
+
+有全部的ppt么？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+[https://cowtransfer.com/s/445ec13f26cd4c](https://cowtransfer.com/s/445ec13f26cd4c)
+

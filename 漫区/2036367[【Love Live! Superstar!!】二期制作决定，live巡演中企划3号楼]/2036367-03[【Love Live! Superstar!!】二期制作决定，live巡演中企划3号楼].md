@@ -17257,3 +17257,27 @@ live演完有问卷的，除了live以外也可以提对企划本身的期望，
 
 我是每次都大书特书，直球说我想要像OO的OOOOO之类的歌想看OO之类的展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梶原ひかり  
+##### 4492#       发表于 2022-1-18 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339873&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-18 19:15</a>
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">缪斯不清楚 可能也有...水团开始就各种写三期呀 剧场呀 搞xx活动..然而到裂裂这边也就这样..
+
+*****
+
+####  starring  
+##### 4493#       发表于 2022-1-18 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339873&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-18 19:15</a>
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
+在eplus 买了东京追加场，前天给我发了调查问卷的邮件，pia那边就没有发
+
