@@ -11577,3 +11577,15 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 不是黑不黑什么的，就正常讨论剧情的群，我有些假药但老发在这个楼里也不太好，还容易刷楼之前加的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月姬R的讨论群都找不到
 
+
+
+*****
+
+####  zakki  
+##### 86620#       发表于 2022-1-18 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54335905&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-18 14:19</a>
+
+月姬R的讨论群都找不到</blockquote>
+我也没说找月姬R的讨论群啊，就fgo的剧情讨论群<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
