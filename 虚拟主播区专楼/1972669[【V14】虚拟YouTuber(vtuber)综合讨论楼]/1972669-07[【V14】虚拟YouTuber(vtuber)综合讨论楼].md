@@ -14021,3 +14021,27 @@ rrm是新衣服后增加了观众吗，她玩瓦怎么都快1w了（
 
 邦摇那边问了句要不要推两张专辑我心血来潮随手评着玩，莫当真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NBXX  
+##### 10198#       发表于 2022-1-20 00:46
+
+https://panora.tokyo/archives/41659
+元宇宙特化型vtuber出道
+<img src="https://p.sda1.dev/4/5d81961a28145afddc9bbed40a24e238/-421fba808b473b81.jpg" referrerpolicy="no-referrer">
+抛开元宇宙，皮还可以，声音也不错
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  渡鸦骑士  
+##### 10199#       发表于 2022-1-20 00:48
+
+ 本帖最后由 渡鸦骑士 于 2022-1-20 00:52 编辑 
+
+所以要怎么特化法<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+看了一眼，有抖音账号……
+
