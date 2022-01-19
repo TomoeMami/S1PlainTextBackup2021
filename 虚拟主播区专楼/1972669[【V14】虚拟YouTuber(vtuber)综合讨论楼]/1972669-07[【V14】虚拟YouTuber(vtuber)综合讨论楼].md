@@ -13908,3 +13908,15 @@ rrm是新衣服后增加了观众吗，她玩瓦怎么都快1w了（
 
 莉莉姆昨天跟德比的小学生吵架打瓦是真的好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烯丝短尾猫  
+##### 10189#       发表于 2022-1-19 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54354952&amp;ptid=1972669" target="_blank">qwera3469 发表于 2022-1-19 19:22</a>
+
+这两天虹女跟vspo联动起来了啊 甚至今天凑了5人瓦，cr瓦罗大赛估计要来了</blockquote>
+堡垒之夜和瓦的CR cup2月中旬就会来了
+
