@@ -12078,3 +12078,35 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 1000多个就这么吃完了，每个限100我可去你的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86676#       发表于 2022-1-19 17:48
+
+金材料也就算了，100个铜材料不是一下子就没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  angelooo  
+##### 86677#       发表于 2022-1-19 17:51
+
+这玩意一次性的还是以后每月会刷新的啊，一次性那也太抠门了，真就救急用
+
+*****
+
+####  khxooo  
+##### 86678#       发表于 2022-1-19 17:53
+
+盘点了一下，所有材料现在只剩凶骨缺口最大，只要搞掂这个缺口，那么全部从者全主动技能999这个目标就达成，FGO对我来说已经可以毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">。当然被动技能不算，这东西全999根本不可能。
+
+*****
+
+####  yangun22  
+##### 86679#       发表于 2022-1-19 17:59
+
+白方块写明了只有主线报酬才给，留着换新素材才对啊，主线全通才1000多个，1章100个都没有
+
