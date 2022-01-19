@@ -12110,3 +12110,37 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 白方块写明了只有主线报酬才给，留着换新素材才对啊，主线全通才1000多个，1章100个都没有
 
+
+
+*****
+
+####  rooarr  
+##### 86680#       发表于 2022-1-19 18:05
+
+先换100个煌星把暗狐狸喂起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他肯定要留着的
+
+*****
+
+####  khxooo  
+##### 86681#       发表于 2022-1-19 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54353790&amp;ptid=1085254" target="_blank">yangun22 发表于 2022-1-19 17:59</a>
+白方块写明了只有主线报酬才给，留着换新素材才对啊，主线全通才1000多个，1章100个都没有 ...</blockquote>
+最后的3星从者是2.5.1的大老师，按照现在的做法，估计1年也就加一个低星从者，我又不是某萌新，每次都出货，升一下活动从者就够了，那我为什么不现在就用了来完成目标？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 86682#       发表于 2022-1-19 18:11
+
+新卡池是岛崎信长up吗233
+
+*****
+
+####  areklose  
+##### 86683#       发表于 2022-1-19 18:19
+
+ 本帖最后由 areklose 于 2022-1-19 18:20 编辑 
+
+因为本来这白方块就是为了新人而不是为了你们老咸鱼。新人抽暗狐狸，还要主线推到2.5.1，难受死了，现在推主线送材料，送白方块，体验拉满
+
