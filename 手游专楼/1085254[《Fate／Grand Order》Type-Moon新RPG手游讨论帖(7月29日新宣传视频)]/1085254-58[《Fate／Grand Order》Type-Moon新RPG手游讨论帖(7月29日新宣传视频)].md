@@ -11878,3 +11878,26 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 怎么还在 根本没人打啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快了快了。毕竟掉的都是开服材料的。
 
+
+
+*****
+
+####  areklose  
+##### 86653#       发表于 2022-1-19 13:13
+
+1点更新了一下。我怎么觉得血条涨了点。。。
+
+*****
+
+####  qixinno2  
+##### 86654#       发表于 2022-1-19 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还回血可还行
+
+*****
+
+####  rooarr  
+##### 86655#       发表于 2022-1-19 13:23
+
+据说回血也是复刻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
