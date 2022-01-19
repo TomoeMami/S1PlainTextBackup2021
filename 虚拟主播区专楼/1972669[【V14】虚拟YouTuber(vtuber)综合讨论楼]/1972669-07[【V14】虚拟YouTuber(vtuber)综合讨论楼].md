@@ -13974,3 +13974,28 @@ rrm是新衣服后增加了观众吗，她玩瓦怎么都快1w了（
 
 レグナ在组建了おつかれベイビーズ后很明显是受到了同为Emo爱好者的乐队成员很大影响，生活这张里抛弃了他第一张专辑的后硬核或者说潮核还有游戏音乐的根源，做出了一张非常正经且流畅的Midwest-Emo专辑。おつかれベイビーズ贝斯手樫野創音年初的专辑也同样值得推荐——stygian 来自邦摇30s年终总结
 
+
+
+*****
+
+####  free  
+##### 10194#       发表于 2022-1-19 21:01
+
+这不就是坛友吗，他在推上还评了年度九张管人专呢 @stygian
+
+<img src="https://img.saraba1st.com/forum/202201/19/210116tx0sacr4racyrv0a.png" referrerpolicy="no-referrer">
+
+<strong>管人专.png</strong> (60.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 21:01 上传
+
+*****
+
+####  free  
+##### 10195#       发表于 2022-1-19 21:04
+
+まりなす咋样不好说，反正avex自从搞了管人，真是年年亏钱，希望这次是好事吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://virtual-avex.com/](https://virtual-avex.com/)
+
