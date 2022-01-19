@@ -14045,3 +14045,12 @@ https://panora.tokyo/archives/41659
 所以要怎么特化法<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 看了一眼，有抖音账号……
 
+
+
+*****
+
+####  2black  
+##### 10200#       发表于 2022-1-20 01:22
+
+笑了，元宇宙vtuber是什么东西，骗投资的吧，想知道这公司是怎样定义元宇宙
+
