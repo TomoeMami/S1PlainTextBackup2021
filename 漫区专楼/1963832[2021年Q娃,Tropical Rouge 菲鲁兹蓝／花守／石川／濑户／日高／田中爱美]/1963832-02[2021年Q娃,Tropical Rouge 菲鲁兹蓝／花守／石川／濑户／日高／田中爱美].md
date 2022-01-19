@@ -13061,3 +13061,57 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 其实女王之所以说会选择遗忘，也是因为自己曾经是当事人吧，很可能女王箭头是对传q，然而传q箭头是对魔女。 ...</blockquote>
 那个送道具的人鱼不是现在的女王吧
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 2485#       发表于 2022-1-19 00:49
+
+真的只有我觉得这个明日复明日然后忘记的桥段非常搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗黑能乐  
+##### 2486#       发表于 2022-1-19 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54344454&amp;ptid=1963832" target="_blank">华发夜眼[CN] 发表于 2022-1-19 00:49</a>
+真的只有我觉得这个明日复明日然后忘记的桥段非常搞笑吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这。。。过了几百年，忘了确实也不奇怪吧，我现在都已经不记得自己小学的大部分事情了，如果真有人类能活个三四百岁，我觉得这个人或许连自己曾经的妻子或者丈夫的样子都记不住了，更不用说他们曾经怎么相爱之类的具体事由
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  isa2456  
+##### 2487#       发表于 2022-1-19 02:14
+
+变泡沫的时候还是挺感动的，我就怕最后一集萝拉和真夏给我来个比这更大的
+
+那时候就可以将女王打残，要是现代科技发现老家的话分分钟直接扬了吧？那还用得着q娃<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 2488#       发表于 2022-1-19 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54344565&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2022-1-19 01:04</a>
+
+这。。。过了几百年，忘了确实也不奇怪吧，我现在都已经不记得自己小学的大部分事情了，如果真有 ...</blockquote>
+主要是我以为会和人鱼的记忆有啥关系，没想到就单纯是女巫的问题
+
+*****
+
+####  月夜凝雪  
+##### 2489#       发表于 2022-1-19 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54345649&amp;ptid=1963832" target="_blank">华发夜眼[CN] 发表于 2022-1-19 08:15</a>
+主要是我以为会和人鱼的记忆有啥关系，没想到就单纯是女巫的问题</blockquote>
+说不定后面来个魔女就是这样来的
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -17129,3 +17129,202 @@ chiha在鲤鱼的返图下面回了个可可ちゃん大好き，鲤鱼直接回
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨鱼：“鲤酱无论夸还是喷都很直球，所以被夸的时候感觉特别开心”
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">Pay子：“那我呢？”
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4481#       发表于 2022-1-18 17:39
+
+水水在Liella表演完了后跑来碰拳了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">碰完鲤鱼当场流泪，好高纯度的拉拉人
+
+*****
+
+####  stygian  
+##### 4482#       发表于 2022-1-18 17:41
+
+ 本帖最后由 stygian 于 2022-1-18 17:43 编辑 
+
+新歌又是中板弦乐。。。说实话有点腻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+======================================
+
+接楼上，鱼大哭的时候菜宝中文大喊：后面要合照，你别哭，妆要花的
+
+毕竟星团第六人<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4483#       发表于 2022-1-18 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是一贯的爽やか＋王道，料想之中
+
+初专反正也不会有什么大的风格变化
+
+
+
+*****
+
+####  lj205  
+##### 4484#       发表于 2022-1-18 17:59
+
+给我来首劲歌舞曲啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  chenflyyy  
+##### 4485#       发表于 2022-1-18 18:21
+
+一专曲听着太一般了，标准流水线日式女团曲
+
+
+
+*****
+
+####  Gerald1  
+##### 4486#       发表于 2022-1-18 18:35
+
+ 本帖最后由 Gerald1 于 2022-1-18 18:38 编辑 
+
+借楼问下这歌有没有完整版，听着居然有点像周杰伦（可能还有点陶喆）那种R&amp;B慢歌风格
+
+[https://www.bilibili.com/video/BV17L4y1478S](https://www.bilibili.com/video/BV17L4y1478S)
+
+*****
+
+####  starring  
+##### 4487#       发表于 2022-1-18 18:35
+
+这周的广播也非常合鲤，小百合日常鲤酱大好き连发。然后pay也太好应付，夸一句可爱就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zylwz  
+##### 4488#       发表于 2022-1-18 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339305&amp;ptid=2036367" target="_blank">Gerald1 发表于 2022-1-18 18:35</a>
+
+借楼问下这歌有没有完整版，听着居然有点像周杰伦（可能还有点陶喆）那种R&amp;B慢歌风格
+
+https://www.bilibil ...</blockquote>
+2月25号才发售
+
+现在只有试听
+
+*****
+
+####  Gerald1  
+##### 4489#       发表于 2022-1-18 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339370&amp;ptid=2036367" target="_blank">zylwz 发表于 2022-1-18 18:39</a>
+
+2月25号才发售
+
+现在只有试听</blockquote>
+谢了
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4490#       发表于 2022-1-18 19:02
+
+<img src="https://img.saraba1st.com/forum/202201/18/190124foruys2dwhydcc86.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-18 19:01 上传
+
+裂啦寄开头的小剧场，ni老师出图速度真快<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  秋月艾莉  
+##### 4491#       发表于 2022-1-18 19:15
+
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过期，买了票的楼友可以去填
+
+我是每次都大书特书，直球说我想要像OO的OOOOO之类的歌想看OO之类的展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  梶原ひかり  
+##### 4492#       发表于 2022-1-18 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339873&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-18 19:15</a>
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">缪斯不清楚 可能也有...水团开始就各种写三期呀 剧场呀 搞xx活动..然而到裂裂这边也就这样..
+
+*****
+
+####  starring  
+##### 4493#       发表于 2022-1-18 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339873&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-18 19:15</a>
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
+在eplus 买了东京追加场，前天给我发了调查问卷的邮件，pia那边就没有发
+
+
+
+*****
+
+####  iuhehc  
+##### 4494#       发表于 2022-1-18 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339873&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-18 19:15</a>
+说起曲风，忘了有没有人提过
+
+live演完有问卷的，除了live以外也可以提对企划本身的期望，最近两场的还没过 ...</blockquote>
+每次都填想要海外演唱会，虽然做不到但是喊一下还是要喊的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4495#       发表于 2022-1-18 21:44
+
+中文生放的生肉到底什么时候出来，我太想看那几个梗怎么翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Norkey1  
+##### 4496#       发表于 2022-1-18 23:46
+
+鲤鱼也太纸防了，被yhm直球之后基本上是装傻转移话题。小百合最近一直各种直球好き怕不是已经拿捏住弱点了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4497#       发表于 2022-1-18 23:51
+
+小看了吧？后面起哄可堇让打铁吃味呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  优妮可  
+##### 4498#       发表于 2022-1-19 08:12
+
+我感觉是我们被拿捏了
+

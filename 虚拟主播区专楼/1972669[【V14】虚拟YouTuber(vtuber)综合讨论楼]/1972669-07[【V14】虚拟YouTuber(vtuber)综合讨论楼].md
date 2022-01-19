@@ -13622,3 +13622,107 @@ yuya这转生也是跟前几日聊过的那个偶像团体差不多的形式嘛
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  OldGlory  
+##### 10160#       发表于 2022-1-18 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54337984&amp;ptid=1972669" target="_blank">vimisbesteditor 发表于 2022-1-18 16:58</a>
+
+有全部的ppt么？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+[https://cowtransfer.com/s/445ec13f26cd4c](https://cowtransfer.com/s/445ec13f26cd4c)
+
+
+
+*****
+
+####  喜闻乐见  
+##### 10161#       发表于 2022-1-18 22:15
+
+犬山的转播man有心了
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1gyi6oda6hvj20vi0huwzo.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 10162#       发表于 2022-1-18 23:23
+
+虽然我就好卖腐这一口而且也不在乎中之人是坦，但是饭撒太殷勤和snp段子太多都是我的雷点<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+en还是不适合我，黑客你什么时候回来啊……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+syl
+
+好气，en男网红年一V不仅没给本社男引到流，还因为侦探塔+自曝引来粉红匿名论坛乐子人吃瓜开嘲v圈就喜欢这种东西
+
+也不是说在乎匿名论坛的声望，就是一想到再过不久可能因为网红粉爱跳导致女性向圈的路人纷纷拿en男代表男v我就……yamero<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  tiro_finale  
+##### 10163#       发表于 2022-1-19 00:10
+
+リゼ今天上的那个节目事故了还行，看海盗传的录音刚寒暄完就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  purdre  
+##### 10164#       发表于 2022-1-19 00:31
+
+EN男那套我也不太行，本来看下VOX的游戏又有文明又有只狼打算去看下结果一点开就在游戏中间念SC还挨个亲直接关窗了，你单独开个窗怎么饭撒粉丝怎么发情我都无所谓但是打断了游戏直播节奏我就看不下去了。Mysta那套上蹿下跳的风格我也一向不喜欢。其余的人暂时还没看，希望不要太虚无。
+
+
+
+*****
+
+####  OldGlory  
+##### 10165#       发表于 2022-1-19 00:48
+
+en男给本社男引流是什么神必思路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我观察倒是从本社男吸了不少
+
+
+
+*****
+
+####  purdre  
+##### 10166#       发表于 2022-1-19 01:00
+
+EN男目测吸了不少EDEN粉
+
+
+
+*****
+
+####  Paisley  
+##### 10167#       发表于 2022-1-19 01:34
+
+ 本帖最后由 Paisley 于 2022-1-19 01:35 编辑 
+
+mysta已经不只是snp段子了，他前世自曝懒得去厕所往楼下黄金雨看得我一愣一愣的……<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  硫黄  
+##### 10168#       发表于 2022-1-19 04:13
+
+……太东南亚了
+
+*****
+
+####  我不是很好  
+##### 10169#       发表于 2022-1-19 05:28
+
+我看皮还以为要走偶像风，结果竟然是屎尿屁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

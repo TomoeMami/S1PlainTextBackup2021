@@ -5413,3 +5413,31 @@ One in nine recent virus cases in Israel are ...</blockquote>
 — from Google Pixel 3 XL, Android 12 of S1 Next Goo ...</blockquote>
 是，之前那么多起货舱打扫染上的也证明不了，反正只要没他的实验室证明那都是中国政府瞎讲的，是甩锅给美国用的。
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3425#       发表于 2022-1-18 17:28
+
+ 本帖最后由 vimisbesteditor 于 2022-1-18 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338274&amp;ptid=2039422" target="_blank">charse2r 发表于 2022-1-18 17:17</a>
+是，之前那么多起货舱打扫染上的也证明不了，反正只要没他的实验室证明那都是中国政府瞎讲的，是甩锅给美 ...</blockquote>
+官方确认了这次传染源是信件了么？没有的话，铁口直断不好吧。中国政府没有瞎讲，瞎讲的是你吧。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  charse2r  
+##### 3426#       发表于 2022-1-18 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54338452&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-18 17:28</a>
+
+官方确认了这次传染源是信件了么？没有的话，铁口直断不好吧。中国政府没有瞎讲，瞎讲的是你吧。
+
+— fro ...</blockquote>
+嗯，你知道中国政府没有瞎讲就行。能有这个共识我就不用跟你继续辩了。
+

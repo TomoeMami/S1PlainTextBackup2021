@@ -11607,3 +11607,195 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 变成时间内无限刷了，挺好，管饱
 
+
+
+*****
+
+####  zakki  
+##### 86623#       发表于 2022-1-18 17:29
+
+不限量可还行，正好试试新年福袋刚中的伊莉雅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 86624#       发表于 2022-1-18 17:37
+
+哪里写了不限量了，只是没有显示剩余数量吧，血槽还是在减的
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  angelooo  
+##### 86625#       发表于 2022-1-18 17:51
+
+这纯属刷羁绊了，那些老材料实在是
+
+*****
+
+####  quanlix  
+##### 86626#       发表于 2022-1-18 18:01
+
+好吧，只是没写剩余数量
+
+*****
+
+####  qixinno2  
+##### 86627#       发表于 2022-1-18 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了一管体力闪人 什么破玩意 根本没有刷的必要
+
+
+
+*****
+
+####  rooarr  
+##### 86628#       发表于 2022-1-18 18:11
+
+确实没劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一点新材料都不给
+
+*****
+
+####  exiaexa  
+##### 86629#       发表于 2022-1-18 18:15
+
+只能当个30AP的QP本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86630#       发表于 2022-1-18 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">自回萌新任务都没做完刷什么柱子(
+
+
+
+*****
+
+####  khxooo  
+##### 86631#       发表于 2022-1-18 18:25
+
+57条才给20条凶骨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 86632#       发表于 2022-1-18 18:31
+
+虽然材料拉夸，但刷起来是真的快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 86633#       发表于 2022-1-18 18:31
+
+双奥满破黑杯三藏一掌下去3个巴巴托斯<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  里村紅葉  
+##### 86634#       发表于 2022-1-18 19:07
+
+单位吃饭，看你们刷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  areklose  
+##### 86635#       发表于 2022-1-18 19:52
+
+估计活不到早上
+
+
+
+*****
+
+####  miro112233  
+##### 86636#       发表于 2022-1-18 20:08
+
+和不同的朋友拉了两个讨论剧情的小群（一个偏圆桌一个偏A组）在26之后都变成了乳菌和唱衰群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86637#       发表于 2022-1-18 20:29
+
+才三千万啊
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  zakki  
+##### 86638#       发表于 2022-1-18 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54340553&amp;ptid=1085254" target="_blank">miro112233 发表于 2022-1-18 20:08</a>
+和不同的朋友拉了两个讨论剧情的小群（一个偏圆桌一个偏A组）在26之后都变成了乳菌和唱衰群 ...</blockquote>
+圆桌和A组，根据这俩关键词我就能想到一个人，群里肯定有他吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  khxooo  
+##### 86639#       发表于 2022-1-18 21:27
+
+剩80个苹果，摸了，灰和凶骨掉率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  黑上シグマ  
+##### 86640#       发表于 2022-1-18 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54339096&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-18 18:20</a>
+
+自回萌新任务都没做完刷什么柱子(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">破活动还要开半个月呢做什么任务
+
+
+
+*****
+
+####  areklose  
+##### 86641#       发表于 2022-1-18 22:25
+
+<blockquote>黑上シグマ 发表于 2022-1-18 21:38
+破活动还要开半个月呢做什么任务</blockquote>
+我现在才发现这活动竟然开三周。。
+
+*****
+
+####  alucardcz  
+##### 86642#       发表于 2022-1-18 22:48
+
+萌新有个想法 能不能20亿换个圣杯一月一次啊  钱没地方用啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 86643#       发表于 2022-1-19 08:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这柱子竟然还活着！。看来这掉落挺遭人嫌弃
+
+
+
+*****
+
+####  zore  
+##### 86644#       发表于 2022-1-19 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我任务解锁还没到能打柱子,摸了
+
