@@ -11799,3 +11799,21 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我任务解锁还没到能打柱子,摸了
 
+
+
+*****
+
+####  qixinno2  
+##### 86645#       发表于 2022-1-19 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">柱子还剩多少啊 还以为能打完准备上去把任务推了
+
+*****
+
+####  miro112233  
+##### 86646#       发表于 2022-1-19 09:09
+
+反正这活动到2月呢，柱子刷的再快之后也是清完任务长草<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

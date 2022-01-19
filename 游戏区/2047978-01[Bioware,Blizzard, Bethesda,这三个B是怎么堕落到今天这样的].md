@@ -1350,3 +1350,19 @@ S1的都什么神仙<img src="https://static.saraba1st.com/image/smiley/face2017
 
 压力来到了生软这一边，你不要不识相
 
+
+
+*****
+
+####  Syai  
+##### 142#       发表于 2022-1-19 09:19
+
+昨天白天看到这个帖子，晚上就刷到微软收购一B<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_gyanc  
+##### 143#       发表于 2022-1-19 09:26
+
+lz好开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
