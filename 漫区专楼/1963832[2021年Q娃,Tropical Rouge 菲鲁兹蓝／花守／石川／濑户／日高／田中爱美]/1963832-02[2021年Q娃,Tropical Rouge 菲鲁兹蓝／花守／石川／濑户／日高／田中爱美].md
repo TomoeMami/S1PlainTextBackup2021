@@ -13092,3 +13092,26 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 那时候就可以将女王打残，要是现代科技发现老家的话分分钟直接扬了吧？那还用得着q娃<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 2488#       发表于 2022-1-19 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54344565&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2022-1-19 01:04</a>
+
+这。。。过了几百年，忘了确实也不奇怪吧，我现在都已经不记得自己小学的大部分事情了，如果真有 ...</blockquote>
+主要是我以为会和人鱼的记忆有啥关系，没想到就单纯是女巫的问题
+
+*****
+
+####  月夜凝雪  
+##### 2489#       发表于 2022-1-19 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54345649&amp;ptid=1963832" target="_blank">华发夜眼[CN] 发表于 2022-1-19 08:15</a>
+主要是我以为会和人鱼的记忆有啥关系，没想到就单纯是女巫的问题</blockquote>
+说不定后面来个魔女就是这样来的
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
