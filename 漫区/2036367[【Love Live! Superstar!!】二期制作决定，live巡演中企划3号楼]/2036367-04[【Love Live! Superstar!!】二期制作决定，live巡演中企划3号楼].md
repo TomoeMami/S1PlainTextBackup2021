@@ -76,3 +76,18 @@
 
 这样我会很爽
 
+
+
+*****
+
+####  ads147147  
+##### 4507#       发表于 2022-1-19 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54347668&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-19 11:00</a>
+和菜宝的节目才是鲤鱼本来的样子啊。裂拉生放开始的时候可拘谨了，现在接近中文节目的状态了
+
+---- ...</blockquote>
+不是拘谨，是虚拟机卡住，接梗接住了还没说出口可能就下个话题了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
