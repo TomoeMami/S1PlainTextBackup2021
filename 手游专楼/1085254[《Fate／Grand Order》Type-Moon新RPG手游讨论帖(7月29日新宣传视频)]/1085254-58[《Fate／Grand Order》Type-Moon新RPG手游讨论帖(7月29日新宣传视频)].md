@@ -11847,3 +11847,15 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 把茶壶全用完就摸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86650#       发表于 2022-1-19 11:12
+
+我刷了50根，拉满拉了3个技能+1个额外技能就跑了
+
+掉的东西太拉了，掉点活动材料不好吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
