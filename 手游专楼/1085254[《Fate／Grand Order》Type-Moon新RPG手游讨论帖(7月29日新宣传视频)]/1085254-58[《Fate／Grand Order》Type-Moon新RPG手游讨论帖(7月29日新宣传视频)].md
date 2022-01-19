@@ -11790,3 +11790,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这柱子竟然还活着！。看来这掉落挺遭人嫌弃
 
+
+
+*****
+
+####  zore  
+##### 86644#       发表于 2022-1-19 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我任务解锁还没到能打柱子,摸了
+
