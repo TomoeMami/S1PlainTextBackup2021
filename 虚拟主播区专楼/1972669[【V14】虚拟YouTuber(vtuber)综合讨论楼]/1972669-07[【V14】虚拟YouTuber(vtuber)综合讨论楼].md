@@ -13818,3 +13818,25 @@ mmr吓人还是乐子人恐怖，看管厕Eden里红色男的含量好高，而�
 
 一哥差不多也该糊了，周增快点掉下一万吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 10179#       发表于 2022-1-19 17:22
+
+最近一个多月一二哥也没看到啥被推荐的切片就是了。不过不知道是不是自己心态变了还是咋样的，觉得虹直播变好看些了。
+
+*****
+
+####  alcoholic1000  
+##### 10180#       发表于 2022-1-19 17:34
+
+ 本帖最后由 alcoholic1000 于 2022-1-19 17:38 编辑 
+
+老叶据称连轴转了一个月，已经累垮了觉都不够睡
+
+今天发推病休，基于本子的确诊人数飙升有点担心他是不是...<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+King也差不多，现在是打工社畜，没时间打游戏
+

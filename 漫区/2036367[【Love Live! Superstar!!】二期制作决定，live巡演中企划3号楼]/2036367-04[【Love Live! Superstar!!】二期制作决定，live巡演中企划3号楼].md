@@ -109,3 +109,12 @@
 
 鲤鱼live还没有线上售票消息吗？
 
+
+
+*****
+
+####  D麦林  
+##### 4510#       发表于 2022-1-19 17:33
+
+感觉很难有了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1st就找这么大场子 要是开线上的话现场上座率会很难看的吧
+

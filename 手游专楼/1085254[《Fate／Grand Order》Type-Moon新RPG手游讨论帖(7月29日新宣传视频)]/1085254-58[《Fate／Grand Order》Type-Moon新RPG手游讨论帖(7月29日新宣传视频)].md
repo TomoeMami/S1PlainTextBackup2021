@@ -11998,3 +11998,83 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 终于，黑灰可以毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 86668#       发表于 2022-1-19 17:30
+
+白方块：N，绿方块：R，金方块：SR
+
+叶良树：早知道我就不设计什么盘子了，直接整个SSR彩方块。
+
+*****
+
+####  angelooo  
+##### 86669#       发表于 2022-1-19 17:30
+
+白方块好文明，建议进无限池+65535
+
+*****
+
+####  gpx234mqx  
+##### 86670#       发表于 2022-1-19 17:31
+
+有病啊
+
+还没打完
+
+就不能搞新素材啊
+
+
+
+*****
+
+####  zakki  
+##### 86671#       发表于 2022-1-19 17:32
+
+上次送1000个狗粮，这次送1000个材料，这是真逼着去推主线啊，今年2.0完结可能性再加1%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 86672#       发表于 2022-1-19 17:33
+
+<blockquote>gpx234mqx 发表于 2022-1-19 17:31
+有病啊
+
+还没打完
+</blockquote>
+一点多的时候好像续了50W条命...
+
+倒啊，巴巴托斯，为什么还不倒呢？！
+
+（可能是之前90+的B4讨伐战太香，这个80级的柱子吸引力不佳了...）
+
+*****
+
+####  quanlix  
+##### 86673#       发表于 2022-1-19 17:38
+
+白方块没觉着有啥用，自己数量有限不说，素材兑换数量都有限，铜素材100个根本不够吃
+
+*****
+
+####  gpx234mqx  
+##### 86674#       发表于 2022-1-19 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54353396&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-19 17:33</a>
+
+一点多的时候好像续了50W条命...
+
+倒啊，巴巴托斯，为什么还不倒呢？！</blockquote>
+这个素材太没意思了
+
+*****
+
+####  khxooo  
+##### 86675#       发表于 2022-1-19 17:41
+
+1000多个就这么吃完了，每个限100我可去你的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
