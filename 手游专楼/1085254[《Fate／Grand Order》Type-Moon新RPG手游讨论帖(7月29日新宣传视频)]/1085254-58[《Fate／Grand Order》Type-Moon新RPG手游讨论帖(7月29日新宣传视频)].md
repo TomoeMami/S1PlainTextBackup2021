@@ -11765,3 +11765,28 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 自回萌新任务都没做完刷什么柱子(</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">破活动还要开半个月呢做什么任务
 
+
+
+*****
+
+####  areklose  
+##### 86641#       发表于 2022-1-18 22:25
+
+<blockquote>黑上シグマ 发表于 2022-1-18 21:38
+破活动还要开半个月呢做什么任务</blockquote>
+我现在才发现这活动竟然开三周。。
+
+*****
+
+####  alucardcz  
+##### 86642#       发表于 2022-1-18 22:48
+
+萌新有个想法 能不能20亿换个圣杯一月一次啊  钱没地方用啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 86643#       发表于 2022-1-19 08:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这柱子竟然还活着！。看来这掉落挺遭人嫌弃
+
