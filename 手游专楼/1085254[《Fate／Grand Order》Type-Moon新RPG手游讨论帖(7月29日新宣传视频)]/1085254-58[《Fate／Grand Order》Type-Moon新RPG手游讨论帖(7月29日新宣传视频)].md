@@ -12144,3 +12144,17 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 因为本来这白方块就是为了新人而不是为了你们老咸鱼。新人抽暗狐狸，还要主线推到2.5.1，难受死了，现在推主线送材料，送白方块，体验拉满
 
+
+
+*****
+
+####  UNISONIA  
+##### 86684#       发表于 2022-1-19 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54353327&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-19 17:30</a>
+
+白方块：N，绿方块：R，金方块：SR
+
+叶良树：早知道我就不设计什么盘子了，直接整个SSR彩方块。 ...</blockquote>
+盘子出的时候叶良树还在把上一个游戏折腾到关服的路上
+
