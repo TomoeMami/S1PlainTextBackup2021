@@ -2843,3 +2843,19 @@ bsyl 明天晚8点 罗贝尔频道
 
 想了想中午还是好好休息，晚上这人昨晚推限说是联动前后会播，这一前提下不值得为区区LOL浪费我中午睡眠时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 7833#       发表于 2022-1-19 11:48
+
+没主视角更没看头，et昨晚录播有吗
+
+*****
+
+####  时间在我手中  
+##### 7834#       发表于 2022-1-19 11:52
+
+你自己私聊加我扣扣或者发扣扣给我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
