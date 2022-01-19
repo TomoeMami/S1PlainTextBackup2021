@@ -17328,3 +17328,38 @@ live演完有问卷的，除了live以外也可以提对企划本身的期望，
 
 我感觉是我们被拿捏了
 
+
+
+*****
+
+####  saya1892  
+##### 4499#       发表于 2022-1-19 10:22
+
+<blockquote>0040 名無しで叶える物語(もこりん) 2022/01/19 03:36:25
+
+多分りーちゃんは言ったり言い返したりのプロレス的なやり取りが好きなだけでSってわけじゃないと思うんだけど
+
+狙ってないやり取りの中でオタクが突然変異でドＭに目覚めつつある</blockquote>
+终于搞懂了为什么总是有人说鱼的话很キツイ
+
+因为鱼习惯了互怼的方式带到日本那边，日本人不习惯，以为她S，结果什么希望被高跟鞋践踏骂陰キャ啊什么霸总鲤都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+他们大概是没想到一个初来乍到的新人也敢这么说话
+
+*****
+
+####  sjbssd  
+##### 4500#       发表于 2022-1-19 10:23
+
+[https://www.bilibili.com/video/BV1db4y1J75N](https://www.bilibili.com/video/BV1db4y1J75N)
+
+新田惠海和Pile给一个老虎机游戏唱了几首歌
+
+<img src="https://img.saraba1st.com/forum/202201/19/102316lf8p3n7mb32j6rnm.jpg" referrerpolicy="no-referrer">
+
+<strong>hqdefault.jpg</strong> (61.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 10:23 上传
+
