@@ -11901,3 +11901,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 据说回血也是复刻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 86656#       发表于 2022-1-19 14:06
+
+，，，，，，，我觉得锁血了。血量没动。。。。
+
