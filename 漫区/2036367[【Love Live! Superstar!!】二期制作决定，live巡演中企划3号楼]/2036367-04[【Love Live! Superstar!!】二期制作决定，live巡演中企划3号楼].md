@@ -118,3 +118,16 @@
 
 感觉很难有了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1st就找这么大场子 要是开线上的话现场上座率会很难看的吧
 
+
+
+*****
+
+####  ddy2811  
+##### 4511#       发表于 2022-1-19 19:55
+
+<blockquote>saya1892 发表于 2022-1-19 13:31
+拘谨× 日语水平不足接不了梗√
+
+拉板曾经为她多次询问你们笑什么展开很多次大讨论，说鱼本身到底是否接受 ...</blockquote>
+真是友邦惊诧天下皆然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
