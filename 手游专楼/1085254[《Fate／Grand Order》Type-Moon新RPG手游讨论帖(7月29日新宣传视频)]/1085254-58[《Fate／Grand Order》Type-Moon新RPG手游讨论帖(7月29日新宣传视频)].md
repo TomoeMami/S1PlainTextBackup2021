@@ -11910,3 +11910,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 ，，，，，，，我觉得锁血了。血量没动。。。。
 
+
+
+*****
+
+####  areklose  
+##### 86657#       发表于 2022-1-19 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这血条不但加回来了。甚至还锁血了。
+

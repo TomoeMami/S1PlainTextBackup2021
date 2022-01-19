@@ -91,3 +91,12 @@
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 4508#       发表于 2022-1-19 16:42
+
+日本这疫情形势，鲤鱼的演唱会有点危险啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
