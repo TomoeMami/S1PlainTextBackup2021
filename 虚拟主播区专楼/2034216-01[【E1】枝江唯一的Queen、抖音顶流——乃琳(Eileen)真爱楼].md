@@ -5859,3 +5859,66 @@ x3</blockquote>
 
 晚晚是喜欢ll开始的，珈乐是一直就想走偶像路子，贝拉是芭蕾转偶像，然然本身宅舞大神，做偶像也不算大跨界…
 
+
+
+*****
+
+####  杜知新  
+##### 419#       发表于 2022-1-19 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+遭不住了，我好想你
+
+*****
+
+####  sanlow666  
+##### 420#         楼主| 发表于 2022-1-19 22:26
+
+乃琳Queen:[发布动态](https://t.bilibili.com/617269285288305669) <blockquote>每当学到很难的舞蹈动作时，脑子里都会循环播放自己的“不能摆烂哟”
+
+<img src="https://img.saraba1st.com/forum/202201/19/222408um9rmwo5ndp5wdwo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 22:24 上传
+
+x3 奶淇琳在嘛！我也需要你们的鼓励音声
+
+<img src="https://img.saraba1st.com/forum/202201/19/222433zfm1rmmv1hdm1yv1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 22:24 上传
+
+x2 我们今晚来交换下好不好
+
+<img src="https://img.saraba1st.com/forum/202201/19/222458fwgiomw3vkfyyszv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 22:24 上传
+
+x2</blockquote>
+
+乃琳Queen:[发布动态](https://t.bilibili.com/617460011902541408) <blockquote>你们就是我的小幸运呀❤️
+
+所以约定好了嗷！ 不准反悔啊！
+
+<img src="https://img.saraba1st.com/forum/202201/19/222526jdroxo7r9856diry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 22:25 上传
+
+x3</blockquote>
+
+懒狗楼主选择合订本的方式搬运这是为了方便联系上下文读懂乃老师的小心思。
+
