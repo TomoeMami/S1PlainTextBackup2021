@@ -11952,3 +11952,49 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 阿周那也复刻了 拿弓的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 86662#       发表于 2022-1-19 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54352946&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-19 17:06</a>
+在做了也得明年周年庆 太遥远了</blockquote>
+或者上次圣诞的时候就已经在做了，那么刚好周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86663#       发表于 2022-1-19 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还出了个白方块...
+
+*****
+
+####  qb0079  
+##### 86664#       发表于 2022-1-19 17:09
+
+发了1000+的白方块，可以商店里兑换所有材料和棋子饼干
+
+*****
+
+####  alucardcz  
+##### 86665#       发表于 2022-1-19 17:10
+
+铜材料1比1啊  这波等于(
+
+*****
+
+####  alucardcz  
+##### 86666#       发表于 2022-1-19 17:16
+
+有个想法以后无限池直接给白方块好不好啊  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 86667#       发表于 2022-1-19 17:18
+
+终于，黑灰可以毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

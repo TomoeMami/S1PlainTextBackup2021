@@ -100,3 +100,12 @@
 
 日本这疫情形势，鲤鱼的演唱会有点危险啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 4509#       发表于 2022-1-19 17:15
+
+鲤鱼live还没有线上售票消息吗？
+
