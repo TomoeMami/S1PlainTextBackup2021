@@ -11919,3 +11919,36 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这血条不但加回来了。甚至还锁血了。
 
+
+
+*****
+
+####  空气蛹  
+##### 86658#       发表于 2022-1-19 17:01
+
+伯爵复刻
+
+*****
+
+####  angelooo  
+##### 86659#       发表于 2022-1-19 17:04
+
+复刻伯爵是什么操作，难道新绿拐在做了23333
+
+*****
+
+####  alucardcz  
+##### 86660#       发表于 2022-1-19 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54352914&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-1-19 17:04</a>
+
+复刻伯爵是什么操作，难道新绿拐在做了23333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在做了也得明年周年庆 太遥远了
+
+*****
+
+####  仰望神的括约肌  
+##### 86661#       发表于 2022-1-19 17:07
+
+阿周那也复刻了 拿弓的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
