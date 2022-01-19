@@ -5839,3 +5839,23 @@ x3</blockquote>
 
 我一直都是奶琪琳啊~~
 
+
+
+*****
+
+####  primavera  
+##### 417#       发表于 2022-1-19 13:21
+
+有人已经14天没有播了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  laphire  
+##### 418#       发表于 2022-1-19 14:11
+
+好像5个人里面，做女团的起因（？）最不明显的是乃琳了吧…感觉没有单纯想换一条路走那么简单<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+晚晚是喜欢ll开始的，珈乐是一直就想走偶像路子，贝拉是芭蕾转偶像，然然本身宅舞大神，做偶像也不算大跨界…
+

@@ -11859,3 +11859,96 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 掉的东西太拉了，掉点活动材料不好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86651#       发表于 2022-1-19 12:49
+
+怎么还在 根本没人打啊
+
+*****
+
+####  areklose  
+##### 86652#       发表于 2022-1-19 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54349340&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-19 12:49</a>
+
+怎么还在 根本没人打啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快了快了。毕竟掉的都是开服材料的。
+
+
+
+*****
+
+####  areklose  
+##### 86653#       发表于 2022-1-19 13:13
+
+1点更新了一下。我怎么觉得血条涨了点。。。
+
+*****
+
+####  qixinno2  
+##### 86654#       发表于 2022-1-19 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还回血可还行
+
+*****
+
+####  rooarr  
+##### 86655#       发表于 2022-1-19 13:23
+
+据说回血也是复刻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  areklose  
+##### 86656#       发表于 2022-1-19 14:06
+
+，，，，，，，我觉得锁血了。血量没动。。。。
+
+
+
+*****
+
+####  areklose  
+##### 86657#       发表于 2022-1-19 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这血条不但加回来了。甚至还锁血了。
+
+
+
+*****
+
+####  空气蛹  
+##### 86658#       发表于 2022-1-19 17:01
+
+伯爵复刻
+
+*****
+
+####  angelooo  
+##### 86659#       发表于 2022-1-19 17:04
+
+复刻伯爵是什么操作，难道新绿拐在做了23333
+
+*****
+
+####  alucardcz  
+##### 86660#       发表于 2022-1-19 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54352914&amp;ptid=1085254" target="_blank">angelooo 发表于 2022-1-19 17:04</a>
+
+复刻伯爵是什么操作，难道新绿拐在做了23333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在做了也得明年周年庆 太遥远了
+
+*****
+
+####  仰望神的括约肌  
+##### 86661#       发表于 2022-1-19 17:07
+
+阿周那也复刻了 拿弓的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
