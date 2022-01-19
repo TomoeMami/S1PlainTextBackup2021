@@ -11817,3 +11817,24 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 86647#       发表于 2022-1-19 09:25
+
+看样子能活到中午
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  areklose  
+##### 86648#       发表于 2022-1-19 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54346103&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-19 09:08</a>
+
+柱子还剩多少啊 还以为能打完准备上去把任务推了</blockquote>
+23%，感觉下午就没了
+
