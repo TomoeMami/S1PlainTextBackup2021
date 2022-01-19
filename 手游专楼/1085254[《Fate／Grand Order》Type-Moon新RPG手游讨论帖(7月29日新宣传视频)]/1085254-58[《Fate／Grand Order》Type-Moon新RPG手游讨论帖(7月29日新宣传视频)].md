@@ -12158,3 +12158,12 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 叶良树：早知道我就不设计什么盘子了，直接整个SSR彩方块。 ...</blockquote>
 盘子出的时候叶良树还在把上一个游戏折腾到关服的路上
 
+
+
+*****
+
+####  khxooo  
+##### 86685#       发表于 2022-1-19 22:54
+
+没有爆破手段，只能用金钻头打，竟然一个减员都没有就过了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
