@@ -13920,3 +13920,29 @@ rrm是新衣服后增加了观众吗，她玩瓦怎么都快1w了（
 这两天虹女跟vspo联动起来了啊 甚至今天凑了5人瓦，cr瓦罗大赛估计要来了</blockquote>
 堡垒之夜和瓦的CR cup2月中旬就会来了
 
+
+
+*****
+
+####  purdre  
+##### 10190#       发表于 2022-1-19 20:27
+
+查了下还是不太懂啥是惨圈，不是不是就跟YHM那边的メンヘラ圈感觉差不多的？
+
+*****
+
+####  rzrbtk  
+##### 10191#       发表于 2022-1-19 20:38
+
+<img src="https://img.saraba1st.com/forum/202201/19/203740xrbr22xy4cbwsrob.jpg" referrerpolicy="no-referrer">
+
+<strong>live.jpg</strong> (184.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-19 20:37 上传
+
+是军舰皿诶，毫不意外的嘉宾（喜），多人组合（不针对这一对）虽然贴贴供给变少但是拉扯有趣好多，爱。
+
+省一楼，关于live，郡郡之前讲虹的live都是想拒都能拒的，姑且可以认为大家都是自己乐意（被压榨）的，吧？还说是影武者禁止，那lize之前那个mmd难道真是本人上的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
