@@ -11859,3 +11859,22 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 掉的东西太拉了，掉点活动材料不好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 86651#       发表于 2022-1-19 12:49
+
+怎么还在 根本没人打啊
+
+*****
+
+####  areklose  
+##### 86652#       发表于 2022-1-19 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54349340&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-19 12:49</a>
+
+怎么还在 根本没人打啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快了快了。毕竟掉的都是开服材料的。
+
