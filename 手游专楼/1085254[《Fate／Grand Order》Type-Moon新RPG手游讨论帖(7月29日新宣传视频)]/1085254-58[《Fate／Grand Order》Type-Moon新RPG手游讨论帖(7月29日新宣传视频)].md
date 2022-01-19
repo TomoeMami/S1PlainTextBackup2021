@@ -12167,3 +12167,14 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 没有爆破手段，只能用金钻头打，竟然一个减员都没有就过了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 86686#       发表于 2022-1-20 00:25
+
+ 本帖最后由 qixinno2 于 2022-1-20 00:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新高难双杀狐摩根3T 带个BB一人解两次DEBUFF 新换人服还能清一次
+
