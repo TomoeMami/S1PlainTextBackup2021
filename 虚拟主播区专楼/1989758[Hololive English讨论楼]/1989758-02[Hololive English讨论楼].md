@@ -952,3 +952,18 @@ bae irys和dad的jump king。三个小时的杂谈回
 mumei新歌brrrrr version
 [https://www.youtube.com/watch?v=efHD5NpaWMY](https://www.youtube.com/watch?v=efHD5NpaWMY)
 
+
+
+*****
+
+####  PureIllusion  
+##### 1594#       发表于 2022-1-20 13:54
+
+Gura:
+
+On my days off, I completely separate myself from everything hololive and internet.
+
+It's the balance, the work-life balance.
+
+What I have been doing lately... I helped the animals. I guess it was volunteer work. And I hurt my back really bad. I blew my back out scooping up a bunch of animal poops all day.
+
