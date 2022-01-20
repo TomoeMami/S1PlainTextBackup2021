@@ -14073,3 +14073,17 @@ https://panora.tokyo/archives/41659
 yqqx这大师上的真是悄无声息
 而且看队友，这含金量不是很足啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 10203#       发表于 2022-1-20 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54363181&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-1-20 10:57</a>
+
+yqqx这大师上的真是悄无声息
+
+而且看队友，这含金量不是很足啊</blockquote>
+她自己早就说过只要组队就能上大师的，这次组队上大师反而算是承认自己的极限不在意这含金量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
