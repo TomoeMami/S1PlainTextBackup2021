@@ -12438,3 +12438,116 @@ DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
 
 建议还是不要事先假定街机和手游是互通或者连着的
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86707#       发表于 2022-1-20 10:24
+
+ 本帖最后由 gpx234mqx 于 2022-1-20 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362530&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 10:15</a>
+
+没关注街机的剧情，前面几章好像有魔神柱吧？如果盖总没出场，大概会算是兽六魔兽赫的幼体？（猜测） ...</blockquote>
+那个不是魔神柱，是魔兽赫
+
+达芬奇也不知道为啥要叫魔兽赫是魔神柱
+
+*****
+
+####  gpx234mqx  
+##### 86708#       发表于 2022-1-20 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362537&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-20 10:15</a>
+
+建议还是不要事先假定街机和手游是互通或者连着的</blockquote>
+的确连着的，提妈就是察觉到6兽诞生从手游过去的
+
+活动的老芥也是
+
+*****
+
+####  UNISONIA  
+##### 86709#       发表于 2022-1-20 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362681&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2022-1-20 10:25</a>
+
+的确连着的，提妈就是察觉到6兽诞生从手游过去的</blockquote>
+街机开发之前说法是不连着的，建议你们打一架
+
+*****
+
+####  gpx234mqx  
+##### 86710#       发表于 2022-1-20 10:29
+
+ 本帖最后由 gpx234mqx 于 2022-1-20 10:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362689&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-20 10:26</a>
+
+街机开发之前说法是不连着的，建议你们打一架</blockquote>
+开发懂个屁啊，没看都要收束特异点了
+
+街机应该是模拟的，就像A组修复七个特异点一样
+
+当初自然不连着
+
+*****
+
+####  Jamaisvu  
+##### 86711#       发表于 2022-1-20 10:39
+
+ 本帖最后由 Jamaisvu 于 2022-1-20 10:42 编辑 
+<blockquote>gpx234mqx 发表于 2022-1-20 10:24
+那个不是魔神柱，是魔兽赫
+
+达芬奇也不知道为啥要叫魔兽赫是魔神柱</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/20/103655j4kx46o444m4u4nz.png" referrerpolicy="no-referrer">
+
+<strong>859216426460922.png</strong> (187.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-20 10:36 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/103655yxszv3mutj3zp9tm.png" referrerpolicy="no-referrer">
+
+<strong>26480216426461232.png</strong> (177.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-20 10:36 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/103717oj2p14oj9tp8o794.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220120_103708_tv.danmaku.bili.jpg</strong> (224.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-20 10:37 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/104048xedgqe3bg6n16d1h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220120_104028_tv.danmaku.bili.jpg</strong> (286.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 10:40 上传
+
+街机前几章确实是叫魔神柱的，不过造型不一样。
+手游都是长眼睛的柱子，属于克苏恩眷族，街机长嘴了，估计是亚煞极分灵或者尤格萨隆仆从
+
+<img src="https://img.saraba1st.com/forum/202201/20/104123elp18dq9887lbp18.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220120_104104_tv.danmaku.bili.jpg</strong> (320.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 10:41 上传
+
+作为主线章节分歧的第六章开始，倒是改名魔神赫了。
+
+估计街机新大纲就是从这里才正式起步的。
+
