@@ -12739,3 +12739,18 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 你送石头碎片也就算了....送一堆棋子到底是要闹哪样啊.....谁会缺这种东西啊....这又是做出来故意恶心人的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sin.yugi  
+##### 86727#       发表于 2022-1-21 06:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54373576&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-20 17:00</a>
+花了几分钟爬了下这2天的楼.....就没人说下这新加的几百个任务是什么鬼吗
+
+你送石头碎片也就算了....送一堆 ...</blockquote>
+送棋子没所谓，但是能不能配个一键收取，太傻x了...
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
