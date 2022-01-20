@@ -12551,3 +12551,18 @@ DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
 
 估计街机新大纲就是从这里才正式起步的。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86712#       发表于 2022-1-20 10:51
+
+ 本帖最后由 gpx234mqx 于 2022-1-20 10:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362900&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 10:39</a>
+
+街机前几章确实是叫魔神柱的，不过造型不一样。
+手游都是长眼睛的柱子，属于克苏恩眷族，街机长嘴 ...</blockquote>
+
+六章达芬奇说了之前为啥要叫魔神柱啊，这根本不是魔神柱，都搞错了[f: ]
+
