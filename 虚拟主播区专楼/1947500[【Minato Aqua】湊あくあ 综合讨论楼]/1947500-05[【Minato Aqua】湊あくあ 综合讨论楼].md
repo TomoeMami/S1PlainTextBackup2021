@@ -17779,3 +17779,30 @@ syl：机翻了一下韩国人论坛，那边最火的夸宝切片除了游戏�
 巧了，隔壁四杀</blockquote>
 我知道隔壁liver的情况，但官方只说day2不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两天后的day1只是取消了免费接待部分
 
+
+
+*****
+
+####  越动天下  
+##### 7472#       发表于 2022-1-20 19:28
+
+ 本帖最后由 越动天下 于 2022-1-20 19:37 编辑 
+
+要突破自己了吗
+syl何度でも立ち向かう
+みんな待っててくれてありがとう
+
+*****
+
+####  zpy393  
+##### 7473#       发表于 2022-1-20 19:36
+
+草，apex复活了，别是回光返照<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 7474#       发表于 2022-1-20 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当我们没看过你去年什么鸟样吗，30天直播换十个月摆烂，赚！
+

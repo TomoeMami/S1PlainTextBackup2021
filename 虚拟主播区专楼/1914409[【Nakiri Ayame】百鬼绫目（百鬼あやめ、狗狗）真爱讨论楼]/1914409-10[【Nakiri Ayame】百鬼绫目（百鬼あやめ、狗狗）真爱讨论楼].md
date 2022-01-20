@@ -3989,3 +3989,12 @@ Miosha的占卜重新看了还是感觉有点怪，说话有点狐化
 
 感觉韩国人不太能处
 
+
+
+*****
+
+####  stedckk  
+##### 13896#       发表于 2022-1-20 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">4ch也喜欢批评绫总，可以说是盛名在外了。
+
