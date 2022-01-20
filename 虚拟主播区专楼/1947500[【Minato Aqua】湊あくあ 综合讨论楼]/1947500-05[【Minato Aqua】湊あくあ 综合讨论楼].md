@@ -17767,3 +17767,15 @@ syl：机翻了一下韩国人论坛，那边最火的夸宝切片除了游戏�
 隔壁现在没消息应该是要硬着头皮上吧，夸宝还得隔个几天，到时候感觉紧急事 ...</blockquote>
 巧了，隔壁四杀
 
+
+
+*****
+
+####  面具13  
+##### 7471#       发表于 2022-1-20 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54365183&amp;ptid=1947500" target="_blank">TiHaru 发表于 2022-1-20 13:17</a>
+
+巧了，隔壁四杀</blockquote>
+我知道隔壁liver的情况，但官方只说day2不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两天后的day1只是取消了免费接待部分
+
