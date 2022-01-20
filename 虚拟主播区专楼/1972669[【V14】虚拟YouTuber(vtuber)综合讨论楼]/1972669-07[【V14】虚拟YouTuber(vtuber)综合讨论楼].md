@@ -14545,3 +14545,22 @@ Rofmao全阳性 这下圆满解散了
 
 彩虹吃了太多投资，不搞线下变现不好给股东交代
 
+
+
+*****
+
+####  2L模仿47哥  
+##### 10256#       发表于 2022-1-20 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54367777&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-20 16:43</a>
+
+以前我觉得我不是，自从我抱怨ankr一心主流进出放养志不在此的liver被喷毒唯事业粉以后我就自认是了 ...</blockquote>
+你这样都能算毒唯，微博厕所那群小妹妹算啥<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuntoryNomu  
+##### 10257#       发表于 2022-1-20 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
