@@ -4015,3 +4015,12 @@ Miosha的占卜重新看了还是感觉有点怪，说话有点狐化
 看了一下，还是老生常谈，说绫总不努力不直播，却收了那么多钱，对不起观众，对不起其他成员之类的balabala
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没怎么说打lol和男朋友的事。
 
+
+
+*****
+
+####  Fami水  
+##### 13899#       发表于 2022-1-20 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通篇四个大字 德不配位
+
