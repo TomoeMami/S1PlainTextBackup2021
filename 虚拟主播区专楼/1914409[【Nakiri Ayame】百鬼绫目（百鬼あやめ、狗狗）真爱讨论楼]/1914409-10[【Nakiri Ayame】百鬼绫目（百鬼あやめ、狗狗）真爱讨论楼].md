@@ -3998,3 +3998,20 @@ Miosha的占卜重新看了还是感觉有点怪，说话有点狐化
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">4ch也喜欢批评绫总，可以说是盛名在外了。
 
+
+
+*****
+
+####  因为你不会  
+##### 13897#       发表于 2022-1-20 19:52
+
+说得跟我们不黑屁绫总一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 13898#       发表于 2022-1-20 19:55
+
+看了一下，还是老生常谈，说绫总不努力不直播，却收了那么多钱，对不起观众，对不起其他成员之类的balabala
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没怎么说打lol和男朋友的事。
+
