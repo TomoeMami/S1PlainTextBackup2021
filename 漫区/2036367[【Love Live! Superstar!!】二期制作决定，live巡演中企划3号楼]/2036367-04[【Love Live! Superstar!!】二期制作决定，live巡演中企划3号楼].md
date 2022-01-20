@@ -156,3 +156,12 @@
 
 推@pt4835pt，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莫名适合楼上讨论的话题，对岸和我们都对这种桥段喜闻乐见
 
+
+
+*****
+
+####  lj205  
+##### 4513#       发表于 2022-1-20 08:33
+
+鲤鱼这个日语水平梗，貌似在破站看到个N手消息说5厕说有前辈让鲤鱼多学日语
+

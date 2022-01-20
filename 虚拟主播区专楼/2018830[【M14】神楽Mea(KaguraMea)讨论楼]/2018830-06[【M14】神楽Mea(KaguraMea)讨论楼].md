@@ -2953,3 +2953,12 @@ roberu：asmr=あさむら
 
 —— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  andeloz  
+##### 7845#       发表于 2022-1-20 08:28
+
+还真挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
