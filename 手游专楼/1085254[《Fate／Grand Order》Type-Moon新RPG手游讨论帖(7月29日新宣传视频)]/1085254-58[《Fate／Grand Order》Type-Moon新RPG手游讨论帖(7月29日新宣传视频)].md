@@ -12294,3 +12294,73 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 是6啊，尼禄不都说了自己是6</blockquote>
 街机玛修那个新羁绊文本是针对街机终章的
 
+
+
+*****
+
+####  الطائر  
+##### 86695#       发表于 2022-1-20 09:48
+
+街机尼禄是マザーハーロット
+
+リリムハーロット大概是尼禄的孩子（和谁生的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 86696#       发表于 2022-1-20 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362011&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 09:44</a>
+
+我的意思是：之前以为巴比伦大碧池=尼禄=第六兽，没想到现在安排成第七兽了，兽六看宝具明显是尼禄变的， ...</blockquote>
+收束特异点的LOGO就是妖妃的人类恶报幕时候出现的那个圣杯+一圈七个火焰的LOGO
+
+*****
+
+####  UNISONIA  
+##### 86697#       发表于 2022-1-20 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362080&amp;ptid=1085254" target="_blank">الطائر 发表于 2022-1-20 09:48</a>
+
+街机尼禄是マザーハーロット
+
+リリムハーロット大概是尼禄的孩子（和谁生的 ...</blockquote>
+真名其实街机的七章全程从未出现过，统一的名称都是【妖妃ドラコー】
+
+*****
+
+####  gpx234mqx  
+##### 86698#       发表于 2022-1-20 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362023&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-20 09:45</a>
+
+街机玛修那个新羁绊文本是针对街机终章的</blockquote>
+那个文本的意思是beast7在后面等着上门
+
+*****
+
+####  Jamaisvu  
+##### 86699#       发表于 2022-1-20 09:59
+
+ 本帖最后由 Jamaisvu 于 2022-1-20 10:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362086&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-20 09:48</a>
+
+收束特异点的LOGO就是妖妃的人类恶报幕时候出现的那个圣杯+一圈七个火焰的LOGO ...</blockquote>
+手游尼禄的羁绊六强调尼禄和666兽和哈洛特可能是等位的存在，现在看来连续还挺紧密的，BOSS车轮战，说不定两个兽六是兽七的融合素材呢...
+
+话说手游2.0才是因为异星神降临导致产生了错误的兽七，街机那边说不定才是正统发展呢...象征着animal desire、极奢、亵神、异教的女性是终极的人类敌，听起来倒也挺靠谱。
+
+话说街机的兽一出现过吗...兽六的目的是人理消灭而非盖提亚的人理烧却，这也可能导致连锁reaction召唤出的兽七有变吧....
+
+*****
+
+####  UNISONIA  
+##### 86700#       发表于 2022-1-20 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362260&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 09:59</a>
+
+手游尼禄的羁绊六强调尼禄和666兽和哈洛特可能是等位的存在，现在看来连续还挺紧密的，说不定是融合素材 ...</blockquote>
+那句是国服文本翻错了，日文原文记得中间是个顿号而不是と，意思是666之兽和harlot是视为同一存在的，百兽母胎相关设定也有强调这一点
+
+至于剧情不用期待街机能完全自洽了，估计是修改了手游策划初期的harlot相关设定作成了一套新设出来
+
