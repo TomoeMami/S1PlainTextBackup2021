@@ -12364,3 +12364,77 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 至于剧情不用期待街机能完全自洽了，估计是修改了手游策划初期的harlot相关设定作成了一套新设出来
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86701#       发表于 2022-1-20 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362260&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 09:59</a>
+
+手游尼禄的羁绊六强调尼禄和666兽和哈洛特可能是等位的存在，现在看来连续还挺紧密的，BOSS车轮战，说不定 ...</blockquote>
+打完6、7诞生，特异点收束
+
+这样想没问题
+
+*****
+
+####  gpx234mqx  
+##### 86702#       发表于 2022-1-20 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362260&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 09:59</a>
+
+手游尼禄的羁绊六强调尼禄和666兽和哈洛特可能是等位的存在，现在看来连续还挺紧密的，BOSS车轮战，说不定 ...</blockquote>
+街机模拟的是没有所罗门和盖提亚的状态，为了不产生bug而诞生了兽尼吧
+
+*****
+
+####  Jamaisvu  
+##### 86703#       发表于 2022-1-20 10:10
+
+妖妃是索多玛之兽，666应该就是蛾摩拉之兽了，
+
+手游这几个兽其实都是不同体系的（圣经、苏美尔神话、印度神话），街机突然扎堆爆出圣经反派，感觉创意有点枯竭啊...
+
+*****
+
+####  gpx234mqx  
+##### 86704#       发表于 2022-1-20 10:11
+
+星之兽以为是芙芙，现在看来是7兽
+
+DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
+(747.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 10:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/100850ubdqcyt9b9fdg8o9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+43F24D0E-0CCF-4427-91A3-6CB5433C85B8.jpeg
+(346.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 10:08 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/100851x03bxe660qsqxq3x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 86705#       发表于 2022-1-20 10:15
+
+<blockquote>gpx234mqx 发表于 2022-1-20 10:07
+街机模拟的是没有所罗门和盖提亚的状态，为了不产生bug而诞生了兽尼吧</blockquote>
+没关注街机的剧情，前面几章好像有魔神柱吧？如果盖总没出场，大概会算是兽六魔兽赫的幼体？（猜测）
+
+*****
+
+####  UNISONIA  
+##### 86706#       发表于 2022-1-20 10:15
+
+建议还是不要事先假定街机和手游是互通或者连着的
+

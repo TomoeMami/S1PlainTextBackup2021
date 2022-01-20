@@ -3963,3 +3963,29 @@ Miosha的占卜重新看了还是感觉有点怪，说话有点狐化
 
 <img src="https://img.saraba1st.com/forum/202201/18/195441dcpaufdacidafad1.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 13895#       发表于 2022-1-20 10:12
+
+拿机翻看了一下你坛之前发的那个韩国Hololive Wiki
+
+别人的条目看起来都挺正常的，就绫总的条目
+[https://namu.wiki/w/%EB%82%98%ED ... 4%EC%95%BC%EB%A9%94](https://namu.wiki/w/%EB%82%98%ED%82%A4%EB%A6%AC%20%EC%95%84%EC%95%BC%EB%A9%94)
+
+<img src="https://img.saraba1st.com/forum/202201/20/100423u72hqclzjs7jzc67.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (94.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 10:04 上传
+
+？？？？？？
+
+往下一翻前面什么履历啊关联人物啊这些部分都和别人底边的长度差不多（虽说这两年确实没啥可说吧），批判论足足写了四五千字还带黑屁视频的链接，拥护论两千字都没有
+
+感觉韩国人不太能处
+
