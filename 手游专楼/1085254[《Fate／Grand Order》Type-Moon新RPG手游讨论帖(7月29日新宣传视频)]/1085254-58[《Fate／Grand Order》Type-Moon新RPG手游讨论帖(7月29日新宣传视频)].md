@@ -12178,3 +12178,74 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新高难双杀狐摩根3T 带个BB一人解两次DEBUFF 新换人服还能清一次
 
+
+
+*****
+
+####  UNISONIA  
+##### 86687#       发表于 2022-1-20 09:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果街机的harlot是Beast VII
+
+*****
+
+####  Jamaisvu  
+##### 86688#       发表于 2022-1-20 09:09
+
+ 本帖最后由 Jamaisvu 于 2022-1-20 09:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/20/090353wvm2mm7ry8e7ry71.jpg" referrerpolicy="no-referrer">
+
+<strong>1642640539787.jpg</strong> (312.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-20 09:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/090413umm4n5no9omea67e.png" referrerpolicy="no-referrer">
+
+<strong>1642640646098.png</strong> (73.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-1-20 09:04 上传
+
+街机的第六兽好像打完了，下一章名为“收束特异点”，该不会要和手游统一世界线了吧？
+
+例如手游到时候可以出个预热活动，说是第五兽的气息突然消失，然后限定卡池UP冠位骑诺亚，剧情本交代下街机故事线，然后双方同时推第七兽的R和L...
+
+（瞎奶一下，不过我真的想要诺亚...）
+
+当然，收束和终局一个意思，街机到此完结，提妈成为趁热捞一笔的绝唱我也双手赞成
+
+好像全想错了，貌似真的是完全不同的世界......
+
+那可就厉害了，beast都有所不同，岂不是两边可以出不同的冠位骗钱？
+
+*****
+
+####  Jamaisvu  
+##### 86689#       发表于 2022-1-20 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54361519&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-20 09:07</a>
+
+结果街机的harlot是Beast VII</blockquote>
+摘自百度百科：
+
+巴比伦大**骑在七头十角的朱红色兽上，身着紫色和朱红色衣服，手拿金杯，杯中盛满**的秽物，额上有字曰： “奥秘哉!大巴比伦，作世上**和一切可憎之物的母。”她喝了圣徒的血和为耶稣作见证之人的血，罪恶滔天，但在一天之内，便遭遇死亡和悲哀，又要被火烧尽。一般认为该**是“罗马帝国”的代称，其劣迹和结局反映了公元1世纪下半叶基督徒对罗马帝国极端仇恨的心理 。
+
+在七头龙之上，指的是地位的above，而非座位的on（迷惑发言）。
+
+不过之前一直以为尼禄和大**指的是一回事，下意识地以为是兽六了，没想到另有其人.....不知道街机的兽七是不是wada画...
+
+*****
+
+####  zakki  
+##### 86690#       发表于 2022-1-20 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54361519&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2022-1-20 09:07</a>
+结果街机的harlot是Beast VII</blockquote>
+是6啊，尼禄不都说了自己是6
+
