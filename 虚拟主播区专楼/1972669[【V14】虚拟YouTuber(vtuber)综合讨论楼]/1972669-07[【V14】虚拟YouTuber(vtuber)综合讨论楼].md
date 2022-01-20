@@ -14108,3 +14108,60 @@ yqqx这大师上的真是悄无声息
 
 夏大师：排位不如抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SZM48  
+##### 10206#       发表于 2022-1-20 13:14
+
+我超，四个阳性<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 10207#       发表于 2022-1-20 13:14
+
+我超day2无了，真病了
+
+*****
+
+####  屑屑代沟尼亚  
+##### 10208#       发表于 2022-1-20 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+QQ图片20220120131304.png
+(286.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 13:15 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/131539xscoryv3vzcsssao.png" referrerpolicy="no-referrer">
+
+QQ图片20220120131310.jpg
+(83.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-20 13:15 上传
+
+<img src="https://img.saraba1st.com/forum/202201/20/131539ptkxym3az8q6u0xy.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 10209#       发表于 2022-1-20 13:17
+
+全完了😨😨
+
+*****
+
+####  狐言乱语  
+##### 10210#       发表于 2022-1-20 13:20
+
+这就四杀了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
