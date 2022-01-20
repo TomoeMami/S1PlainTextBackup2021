@@ -14630,3 +14630,21 @@ Rofmao全阳性 这下圆满解散了
 
 好感动好喜欢，彩虹社让阿姨也可以做偶像<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 10266#       发表于 2022-1-20 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">于是今晚的同接虹女集体压虹男一头，梦回18年
+
+*****
+
+####  alcoholic1000  
+##### 10267#       发表于 2022-1-20 22:36
+
+火星了，虹教授的中之人是战国无双5中弥助的声优？
+ <blockquote>オリバーがパディライアンか
+[http://az-creative.com/agentoffice/profile/pg340.html](http://az-creative.com/agentoffice/profile/pg340.html)</blockquote>
+
