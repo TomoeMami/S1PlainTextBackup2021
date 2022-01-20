@@ -12618,3 +12618,24 @@ DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事录了个3t新低难 
 
+
+
+*****
+
+####  UNISONIA  
+##### 86717#       发表于 2022-1-20 15:01
+
+ 本帖最后由 UNISONIA 于 2022-1-20 15:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54362438&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 10:10</a>
+
+妖妃是索多玛之兽，666应该就是蛾摩拉之兽了，
+
+手游这几个兽其实都是不同体系的（圣经、苏美尔神话、印度神 ...</blockquote>
+リリム（Lilin）也是苏美尔神话和犹太神话里共通的夜魔，其实真女神已经出过这个了
+
+说起来爱歌在VITA的花札里有两个技能，一个叫圣都陷落（注音Sodom's Fall），另外一个叫圣都炎上（注音Gomorrah's Blaze）
+
+（其实还有第三个技能怪兽王女，注音是百兽母胎的那个Ποτνια θερων
+
+现在看起来那个陷落（Fall）可能是沉入海底的意思
+
