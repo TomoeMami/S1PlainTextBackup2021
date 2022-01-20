@@ -14099,3 +14099,12 @@ yqqx这大师上的真是悄无声息
 
 还不如学夏哥看开点，现在谁不尊称一句夏大师<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 10205#       发表于 2022-1-20 12:49
+
+夏大师：排位不如抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
