@@ -12715,3 +12715,27 @@ DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
 你大概忘了非洲人这个满宝5星本身就是为了抽4星的副产品</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">TMD 我为什么就抽不到这种副产品
 
+
+
+*****
+
+####  森兰丸  
+##### 86725#       发表于 2022-1-21 05:58
+
+ 本帖最后由 森兰丸 于 2022-1-21 06:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54371679&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-1-20 22:26</a>
+
+TMD 我为什么就抽不到这种副产品</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别上萌新的当了.....非洲人这辣鸡游戏玩了要快6年了也就撞了这么一次狗屎运....非洲人可是都发帖吐槽过自己想抽个4星是多么的难
+
+你看这都快要过去半年了萌新还每次都要提....这是要转移视线让大家忘记自己是个时不时就单抽出货的苟海豹
+
+*****
+
+####  森兰丸  
+##### 86726#       发表于 2022-1-21 06:00
+
+花了几分钟爬了下这2天的楼.....就没人说下这新加的几百个任务是什么鬼吗
+
+你送石头碎片也就算了....送一堆棋子到底是要闹哪样啊.....谁会缺这种东西啊....这又是做出来故意恶心人的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
