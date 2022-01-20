@@ -14087,3 +14087,15 @@ yqqx这大师上的真是悄无声息
 而且看队友，这含金量不是很足啊</blockquote>
 她自己早就说过只要组队就能上大师的，这次组队上大师反而算是承认自己的极限不在意这含金量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 10204#       发表于 2022-1-20 11:52
+
+日v那几个能稳定上钻的，说一句都能组队上大师也问题不大，难度看你队友组谁了
+卡着不上最大的好处也就是cr分，可是也确实打不出来
+
+还不如学夏哥看开点，现在谁不尊称一句夏大师<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
