@@ -12703,3 +12703,15 @@ DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
 4星而已 以你无课满宝限定5星的实力 不是小case吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你大概忘了非洲人这个满宝5星本身就是为了抽4星的副产品
 
+
+
+*****
+
+####  qixinno2  
+##### 86724#       发表于 2022-1-20 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54371511&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-20 22:05</a>
+
+你大概忘了非洲人这个满宝5星本身就是为了抽4星的副产品</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">TMD 我为什么就抽不到这种副产品
+

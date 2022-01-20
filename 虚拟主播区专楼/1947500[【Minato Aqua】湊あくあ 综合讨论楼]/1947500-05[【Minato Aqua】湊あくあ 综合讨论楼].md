@@ -17874,3 +17874,19 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
  主要这个赛季尾气好看的 不打可惜
 
+
+
+*****
+
+####  zpy393  
+##### 7482#       发表于 2022-1-20 22:05
+
+看了下日本这感染人数，怕不是live线下多半无了干脆打游戏得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 7483#       发表于 2022-1-20 22:09
+
+早该打游戏了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
