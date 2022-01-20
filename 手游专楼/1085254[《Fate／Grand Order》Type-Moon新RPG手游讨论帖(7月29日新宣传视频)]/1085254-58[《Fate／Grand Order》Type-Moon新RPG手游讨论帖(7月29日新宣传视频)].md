@@ -12249,3 +12249,48 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 结果街机的harlot是Beast VII</blockquote>
 是6啊，尼禄不都说了自己是6
 
+
+
+*****
+
+####  zakki  
+##### 86691#       发表于 2022-1-20 09:24
+
+ 本帖最后由 zakki 于 2022-1-20 09:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54361695&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2022-1-20 09:20</a>
+摘自百度百科：
+
+巴比伦大**骑在七头十角的朱红色兽上，身着紫色和朱红色衣服，手拿金杯，杯中盛满**的秽 ...</blockquote>
+你在说啥。。。街机黑幕是尼禄，大yin妇，自海而来的灾厄，持黄金杯的女人，就是第六兽啊
+
+<img src="https://p.sda1.dev/4/6b8dba295e88f56f8d659f2b607dead3/IMG_CMP_127173372.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 86692#       发表于 2022-1-20 09:41
+
+兽泥真名リリムハーロット啊
+
+而且在2016年，这个是模拟所罗门和盖提亚消失的重新演算吧
+
+*****
+
+####  Jamaisvu  
+##### 86693#       发表于 2022-1-20 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54361739&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-20 09:23</a>
+
+是6啊，尼禄不都说了自己是6</blockquote>
+我的意思是：之前以为巴比伦大碧池=尼禄=第六兽，没想到现在安排成第七兽了，兽六看宝具明显是尼禄变的，那么第七章这个莉莉哈洛特是啥就不好说了...
+
+*****
+
+####  UNISONIA  
+##### 86694#       发表于 2022-1-20 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54361739&amp;ptid=1085254" target="_blank">zakki 发表于 2022-1-20 09:23</a>
+
+是6啊，尼禄不都说了自己是6</blockquote>
+街机玛修那个新羁绊文本是针对街机终章的
+
