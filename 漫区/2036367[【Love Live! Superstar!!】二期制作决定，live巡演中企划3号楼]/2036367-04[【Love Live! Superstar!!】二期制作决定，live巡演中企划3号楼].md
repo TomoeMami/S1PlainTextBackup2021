@@ -187,3 +187,27 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zylwz  
+##### 4516#       发表于 2022-1-20 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">八成是把5ch段子手写的小段子当成新闻了吧
+
+人在日本工作和日本人打交道怎么可能会不学日语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大家都是社会人了这种东西根本不会去操心
+
+可能只有学生才会觉得这种东西和动画一样要前辈提醒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Karin11974  
+##### 4517#       发表于 2022-1-20 12:38
+
+那得看这个多学是指学什么，如果只是对话交流那根本不用特意学，但是如果要引用一些熟语或者要写小作文，文学素养还是要修炼的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
