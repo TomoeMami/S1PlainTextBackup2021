@@ -12670,3 +12670,36 @@ DC264FFB-BAD1-4735-9674-F0D9119E1F7D.jpeg
 
 才打完前置任务，一根柱子没摸到www
 
+
+
+*****
+
+####  森兰丸  
+##### 86721#       发表于 2022-1-20 21:51
+
+ 本帖最后由 森兰丸 于 2022-1-20 21:56 编辑 
+
+晚了1天打完了活动新追加的剧情.....这剧情又是想骗我抽フェイカー....我是不会上当的<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+你游真是剧情骗氪啊.....原作里一个基本没给观众留下太多印象的角色在手游新的剧情里这形象完全就立起来了
+
+*****
+
+####  alucardcz  
+##### 86722#       发表于 2022-1-20 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54371397&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-20 21:51</a>
+
+晚了1天打完了活动新追加的剧情.....这剧情又是想骗我抽フェイカー....我是不会上当的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星而已 以你无课满宝限定5星的实力 不是小case吗
+
+*****
+
+####  森兰丸  
+##### 86723#       发表于 2022-1-20 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54371436&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-20 21:57</a>
+
+4星而已 以你无课满宝限定5星的实力 不是小case吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你大概忘了非洲人这个满宝5星本身就是为了抽4星的副产品
+
