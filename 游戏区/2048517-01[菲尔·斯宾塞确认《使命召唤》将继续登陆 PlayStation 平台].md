@@ -724,3 +724,17 @@ XGP对于索尼依托分销网络和二手店的商业生态是毁灭性打击�
 
 作为索尼玩家双手双脚赞成xgp上ps，订阅制是游戏的未来
 
+
+
+*****
+
+####  qratosone  
+##### 74#       发表于 2022-1-21 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54382347&amp;ptid=2048517" target="_blank">andychen 发表于 2022-1-21 18:42</a>
+
+按主楼这段话的意思，希望Cod留在PS平台是微软方面的愿望吧
+
+看楼下的讨论怎么牛头不对马嘴</blockquote>
+这种事情是“愿望”而不是“承诺”本身就说明了不确定性，毕竟索尼显然不可能把COD赶走。而且从最基本的商业逻辑来看，微软花了700亿美元，必然有很多目标，且绝对不可能包括“无条件维持现状”
+

@@ -6762,3 +6762,13 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 如果找不回账号而且想要的话我可以在那楼代回算个人头</blockquote>
 不用了感谢
 
+
+
+*****
+
+####  rgauss  
+##### 5204#       发表于 2022-1-21 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抗压背锅吧咋还有人发1.0照片钓鱼啊 
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是真没想到还有这么多人对千鸟这么清楚
+

@@ -15046,3 +15046,12 @@ rrm最近播valo的同接都好高
 
 新冠得了，live没了，粉丝还去看en了，这也太惨了
 
+
+
+*****
+
+####  winda  
+##### 10302#       发表于 2022-1-21 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹这两天live没了紧急决定放以前live录像剪辑，看着好惨www
+

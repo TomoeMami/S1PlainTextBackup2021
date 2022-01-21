@@ -399,3 +399,52 @@ Petit lys ，是法语</blockquote>
 
 鲤鱼这鞋子还是巴黎世家的
 
+
+
+*****
+
+####  cat1230  
+##### 4533#       发表于 2022-1-21 21:49
+
+好奇查了下这鞋子的价格<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+7900人民币一双，果然星团给的工资够高啊。比单纯声优富多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  chenflyyy  
+##### 4534#       发表于 2022-1-21 21:51
+
+这里面降幡爱为密接，感觉有点危了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 4535#       发表于 2022-1-21 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54384526&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-21 21:49</a>
+
+好奇查了下这鞋子的价格
+
+7900人民币一双，果然星团给的工资够高啊。比单纯声优富多了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近也换了13ProMax
+
+*****
+
+####  cybernetics31  
+##### 4536#       发表于 2022-1-21 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">嘛，毕竟开了20多场live ，这工资肯定高的嘛
+
+*****
+
+####  stygian  
+##### 4537#       发表于 2022-1-21 22:00
+
+ホリプロ一直是给料制，正常按她这个艺历其实应该没多少钱
+
+不过超电和烂铁介绍过去，应该是有出来高。。。？
+
+btw巴黎世家真的就是智商税（
+
