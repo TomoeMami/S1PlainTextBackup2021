@@ -355,3 +355,19 @@
 
 Petit lys ，是法语
 
+
+
+*****
+
+####  zylwz  
+##### 4530#       发表于 2022-1-21 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54383137&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-21 19:46</a>
+
+Petit lys ，是法语</blockquote>
+看来我理解的方向错了
+
+还以为会用花的名字
+
+原来是直接就拿小百合翻译的<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
