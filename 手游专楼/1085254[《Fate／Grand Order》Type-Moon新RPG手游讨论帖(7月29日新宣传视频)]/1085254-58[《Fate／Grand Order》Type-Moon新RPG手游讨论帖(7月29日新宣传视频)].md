@@ -12754,3 +12754,14 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  承尘  
+##### 86728#       发表于 2022-1-21 07:52
+
+到现在骨系的还没打完<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
