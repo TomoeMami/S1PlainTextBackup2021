@@ -14863,3 +14863,20 @@ live没了以后能再开，可是身体搞废了可没有第二具了啊<img sr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">说明还是要大力发展元宇宙，等实现了完美的线上VR演唱会就不用担心这些了。其实现在这种情况倒是发展这种技术的好时机，可惜什么事都不可能那么快。
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 10288#       发表于 2022-1-21 12:16
+
+但阿巴蓝鸟对这件事极速打脸事件还是很蛮好笑的。
+
+<img src="https://img.saraba1st.com/forum/202201/21/121550f49de5tq00n01y42.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (64.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-21 12:15 上传
+

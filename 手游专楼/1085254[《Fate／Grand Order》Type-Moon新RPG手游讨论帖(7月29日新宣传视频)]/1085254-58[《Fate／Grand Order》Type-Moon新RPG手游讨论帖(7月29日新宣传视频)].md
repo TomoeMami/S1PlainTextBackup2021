@@ -12779,3 +12779,12 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 你送石头碎片也就算了....送一堆 ...</blockquote>
 都写了是教学任务了，给新人的啊
 
+
+
+*****
+
+####  khxooo  
+##### 86730#       发表于 2022-1-21 12:23
+
+给什么都没所谓，能不能优先小时活动任务？每次都是跳出一大堆提示，最后才出现活动任务<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
