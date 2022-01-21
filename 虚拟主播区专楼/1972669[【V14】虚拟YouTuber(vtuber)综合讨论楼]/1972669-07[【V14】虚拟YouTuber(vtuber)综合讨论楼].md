@@ -14736,3 +14736,44 @@ sena音游玩的可以啊，意外
 
 20 . ジョー力一 898万
 
+
+
+*****
+
+####  fastary  
+##### 10273#       发表于 2022-1-21 10:03
+
+条子干嘛了这么高，吓人……eden组没关心过数字，同接和订阅也很突出吗？
+
+*****
+
+####  死体残留  
+##### 10274#       发表于 2022-1-21 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">day1也无了 成员没事就好
+
+*****
+
+####  NBXX  
+##### 10275#       发表于 2022-1-21 10:09
+
+<img src="https://p.sda1.dev/4/388aa7bedf083ade76a221f95b496238/IMG_CMP_44767516.jpeg" referrerpolicy="no-referrer">
+补图
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  FCCHua  
+##### 10276#       发表于 2022-1-21 10:12
+
+哎...
+
+*****
+
+####  布莱士·西伯利  
+##### 10277#       发表于 2022-1-21 10:15
+
+从主播尽力练习结果啥都没了的角度很可惜，从抗疫的角度是好事。
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">而且感觉不是延后，是直接中止。
+
