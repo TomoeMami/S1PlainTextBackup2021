@@ -457,3 +457,19 @@ btw巴黎世家真的就是智商税（
 
 佩佩长大了，今晚鲤P拉满啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4539#       发表于 2022-1-21 22:54
+
+看了下翻译，pay评价鲤鱼表演时手指指尖的动作很漂亮，关注那么细的吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4540#       发表于 2022-1-21 23:01
+
+明天的广播投稿各位有啥灵感吗
+
