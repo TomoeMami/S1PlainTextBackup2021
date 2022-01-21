@@ -500,3 +500,20 @@ btw巴黎世家真的就是智商税（
 <img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gylq6432x2j20ip0sgmzg.jpg" referrerpolicy="no-referrer">
 <img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gylq89poolj20hs0p0dh0.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 4543#       发表于 2022-1-22 03:00
+
+ 本帖最后由 名津流 于 2022-1-22 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54385349&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-21 23:01</a>
+
+明天的广播投稿各位有啥灵感吗</blockquote>
+临近春节，问一下鲤鱼家里的长辈看了她工作的视频没，亲戚有什么评价吗？
+
+毕竟打铁她家里人都比较紧密地参与到她的工作了，不知道鲤鱼家里人看了她站在舞台上，台下那么多人为她欢呼的情景是什么感觉
+
+中国人去外国，还是日本，做偶像这种事情太前卫了，甚至还让那么多外国人都为她着迷，应该不是一般国内的长辈所能理解的
+
