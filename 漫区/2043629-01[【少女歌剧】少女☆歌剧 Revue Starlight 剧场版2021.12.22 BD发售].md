@@ -8287,3 +8287,12 @@ wayback machine这个站点下面输入推主相关信息或者直接网页链�
 
 之前看迷宫厨大触虹老师的p站，存图前摸了一天半，结果就这时间差清空p站跑路了，推上也只有一两个月内的，现在只能找各种快照了，悔不当初<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  致远星  
+##### 622#       发表于 2022-1-21 15:24
+
+期待下一次再演
+
