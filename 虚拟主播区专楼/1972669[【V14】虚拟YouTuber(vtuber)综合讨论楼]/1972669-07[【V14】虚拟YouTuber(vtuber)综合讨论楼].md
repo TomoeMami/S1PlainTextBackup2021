@@ -14920,3 +14920,13 @@ live没了以后能再开，可是身体搞废了可没有第二具了啊<img sr
 
 毕竟日本在对新冠政策上不是放开大家自己玩就是紧急事态宣言，不怪田角跟着政府路线摇摆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 10291#       发表于 2022-1-21 14:03
+
+朝からライブ中止になってぎっくり背中になったんですけど。【にじさんじ/笹木咲】
+[https://youtu.be/QcMo--Jv-8g](https://youtu.be/QcMo--Jv-8g)
+
