@@ -617,3 +617,61 @@ I confirmed our intent to honor all existing agreements upon acquisition of Acti
 
 说白了,收购了就是第一方,已经签约的不会毁约,但是之后的新作如天外世界2,星空,登录PS了吗?
 
+
+
+*****
+
+####  allenz3  
+##### 65#         楼主| 发表于 2022-1-21 16:17
+
+ 本帖最后由 allenz3 于 2022-1-21 16:19 编辑 
+
+看看国外英语媒体写的标题是怎样的，人家是不是不懂英语什么是intent和desire。
+
+<img src="https://img.saraba1st.com/forum/202201/21/161034kxd99l0kl395k6n0.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-01-21_17-09-58.png</strong> (285.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-21 16:10 上传
+
+COD以后要不要微软独占那也该是微软官方宣布，你要做解读预期没有问题，不代表转载个维特就该代替微软/斯宾塞说话，不然去当微软发言人算了。
+
+不太理解一些人，可以对论坛上的钓鱼标题钓鱼内容的帖子非常宽容，对一个标题正常内容出自本人之口无断章取义的帖子本身长编大论口诛笔伐，不满意就到推特上找本人留言去。
+
+
+
+*****
+
+####  zid99825  
+##### 66#       发表于 2022-1-21 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54380581&amp;ptid=2048517" target="_blank">allenz3 发表于 2022-1-21 16:17</a>
+
+看看国外英语媒体写的标题是怎样的，人家是不是不懂英语什么是intent和desire。</blockquote>
+wants嘛，说想也没什么问题。
+
+当年收购杯赛公开的时候，p3和todd的话不也被媒体到处传成上古卷轴和星空会接着给ps5么，结果大家也都看到了
+
+*****
+
+####  allenz3  
+##### 67#         楼主| 发表于 2022-1-21 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54380780&amp;ptid=2048517" target="_blank">zid99825 发表于 2022-1-21 16:32</a>
+
+wants嘛，说想也没什么问题。
+
+当年收购杯赛公开的时候，p3和todd的话不也被媒体到处传成上古卷轴和星空会 ...</blockquote>
+没签合同说什么都行，有签合同按合同办事，商业上大家还当体面人，死亡循环和幽灵线东京都是这样处理的，至于合同什么时候到期具体内容是什么只有他们自己知道了
+
+*****
+
+####  Tjodrek  
+##### 68#       发表于 2022-1-21 16:47
+
+ 本帖最后由 Tjodrek 于 2022-1-21 16:49 编辑 
+
+phil应该没说过b社游戏还会上ps，至少我前不久还看到新闻说他专门出来辟谣，还补了一句自己没说过这种话，是有些媒体编的
+

@@ -6719,3 +6719,23 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 某些人（）这个月的工时多半是要寄了
 
+
+
+*****
+
+####  andeloz  
+##### 5200#       发表于 2022-1-21 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在隔壁鸟楼roll2份舰长礼物 相信潭友都有屎黄色论坛账号吧
+
+
+
+*****
+
+####  haruhiismer  
+##### 5201#       发表于 2022-1-21 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54380345&amp;ptid=2013779" target="_blank">andeloz 发表于 2022-1-21 15:59</a>
+在隔壁鸟楼roll2份舰长礼物 相信潭友都有屎黄色论坛账号吧</blockquote>
+老账号忘了名字还找不回来，佛了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
