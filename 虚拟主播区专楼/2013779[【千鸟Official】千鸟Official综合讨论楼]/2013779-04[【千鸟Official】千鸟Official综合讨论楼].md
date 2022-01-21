@@ -6739,3 +6739,15 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 在隔壁鸟楼roll2份舰长礼物 相信潭友都有屎黄色论坛账号吧</blockquote>
 老账号忘了名字还找不回来，佛了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 5202#       发表于 2022-1-21 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54380791&amp;ptid=2013779" target="_blank">haruhiismer 发表于 2022-1-21 00:33</a>
+
+老账号忘了名字还找不回来，佛了</blockquote>
+如果找不回账号而且想要的话我可以在那楼代回算个人头
+
