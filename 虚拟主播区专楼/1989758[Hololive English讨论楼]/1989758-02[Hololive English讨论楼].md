@@ -967,3 +967,18 @@ It's the balance, the work-life balance.
 
 What I have been doing lately... I helped the animals. I guess it was volunteer work. And I hurt my back really bad. I blew my back out scooping up a bunch of animal poops all day.
 
+
+
+*****
+
+####  shimmy1996  
+##### 1595#       发表于 2022-1-21 11:36
+
+ 本帖最后由 shimmy1996 于 2022-1-21 11:42 编辑 
+
+Ame: yeah “ame doko”, “ame doko”, I’m asking the same question and nothing is happening. It’s not appearing. It’s not working <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">wow very cool [explosion] <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+5分钟后…
+
+Ame: today we are going to play the world of light campaign or whatever…camPAIN….camPAAAAIIIIIINNNNNNNNNNNNN<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 
+
