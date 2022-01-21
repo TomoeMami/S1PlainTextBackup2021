@@ -14786,3 +14786,47 @@ sena音游玩的可以啊，意外
 
 感觉夜见自闭了，估计昨晚野炊下播后就收到消息了，下播推不发，今天早上转了音声推就装死了，早安推也没了，看样子打击不小
 
+
+
+*****
+
+####  plok201  
+##### 10279#       发表于 2022-1-21 10:41
+
+明明一年前就应该纯线上的东西硬是惦记着那傻逼线下，好了，终于一次全完蛋
+
+*****
+
+####  fastary  
+##### 10280#       发表于 2022-1-21 10:46
+
+day1最后还是因为政府管制的影响终止了……也是好事
+
+被疫情橄榄这么多次live田角总该学乖了吧，后续还有什么线下live企划我觉得暂时也不用想了，先老老实实当主播公会吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asdhai  
+##### 10281#       发表于 2022-1-21 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54373166&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-1-21 01:42</a>
+
+我错了，是我有眼不识泰山了。
+
+男VTOP20</blockquote>
+准确地说这是用实际sc乘以一年/实际出道时间，按比例推算的，有刚出道buff会偏高。当然依然很高就是了
+
+*****
+
+####  ヒトニナル  
+##### 10282#       发表于 2022-1-21 10:52
+
+live没了以后能再开，可是身体搞废了可没有第二具了啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">为什么非要惦记那个live
+
+*****
+
+####  死体残留  
+##### 10283#       发表于 2022-1-21 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">演唱会发表是11月左右吧 新疫情爆发在12月，能预测有鬼了
+
