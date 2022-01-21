@@ -584,3 +584,36 @@ I don't see CoD on Playstation after the deal closes or the existing contractual
 
 还是那句话，只要cod首发xgp，除非是索索忠实信徒，或者就是想在ps玩cod，不然xbox把用户从ps那里抢过来只是时间问题罢了
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 63#       发表于 2022-1-21 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼唯一阻止微软抢COD用户的方法就是COD首发进PS+
+
+否则没多少COD用户会留在PS平台的
+
+*****
+
+####  苍白の正义  
+##### 64#       发表于 2022-1-21 15:01
+
+ 本帖最后由 苍白の正义 于 2022-1-21 15:04 编辑 
+
+想想B社收购完成前斯宾塞那些模棱两可的话,等B社收购完成后就变成"B社新作只会登录有XGP的平台."然后就是今年的星空登录PC/XBOX,不包含PS.
+
+I confirmed our intent to honor all existing agreements upon acquisition of Activision Blizzard and our desire to keep Call of Duty on PlayStation
+这句话也是含含糊糊的场面话,"confirmed"的是什么,是"our intent"和"our desire".
+
+"确认"的是微软有"遵守既有协议的意图"以及"保持COD继续登录PS的愿望"
+
+从这句模糊的看我看不出标题上"确认COD继续登录PS"这么板上钉钉的意思.
+
+联系上下文应该是在和索尼高层的电话里进行了交流,展示了微软的态度,说白了就是原则上同意,但也仅仅是"意图""愿望".
+
+如果有啥变故导致我改变意图,没实现愿望可别怪我,毕竟我也没斩钉截铁的明确说.
+
+说白了,收购了就是第一方,已经签约的不会毁约,但是之后的新作如天外世界2,星空,登录PS了吗?
+
