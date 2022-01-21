@@ -15055,3 +15055,16 @@ rrm最近播valo的同接都好高
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹这两天live没了紧急决定放以前live录像剪辑，看着好惨www
 
+
+
+*****
+
+####  free  
+##### 10303#       发表于 2022-1-21 23:30
+
+[https://twitter.com/NAGIxNAMI/status/1484508785247137792](https://twitter.com/NAGIxNAMI/status/1484508785247137792)
+
+先程の生配信にてお伝えしましたが、ナギナミちゃんねるは2022年3月31日をもちましてYouTube・Twitterの活動を休止とすることをご報告いたします。
+
+残り2ヶ月と少しの間、最後の日まで全力で活動していきますので、最後までナギナミを応援していただけますと幸いです。
+

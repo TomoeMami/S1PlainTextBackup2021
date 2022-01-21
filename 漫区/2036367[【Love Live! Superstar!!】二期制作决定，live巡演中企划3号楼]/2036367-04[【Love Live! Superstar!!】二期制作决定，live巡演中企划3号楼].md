@@ -473,3 +473,19 @@ btw巴黎世家真的就是智商税（
 
 明天的广播投稿各位有啥灵感吗
 
+
+
+*****
+
+####  musicat  
+##### 4541#       发表于 2022-1-21 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54385284&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-21 22:54</a>
+
+看了下翻译，pay评价鲤鱼表演时手指指尖的动作很漂亮，关注那么细的吗 ...</blockquote>
+说起这个，印象中水团有一套非常好看的蕾丝白手套，指尖部分是特别的质材的样子，特别的尖特别的好看。
+
+然后是D4DJ走色气路线的那团的露指黑手套更是<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+相比星就做的不够了，工业手套的样子。
+
