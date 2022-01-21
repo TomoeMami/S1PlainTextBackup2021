@@ -12788,3 +12788,33 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 给什么都没所谓，能不能优先小时活动任务？每次都是跳出一大堆提示，最后才出现活动任务<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86731#       发表于 2022-1-21 14:54
+
+骨头容易，机械才麻烦要120个
+
+*****
+
+####  v22325  
+##### 86732#       发表于 2022-1-21 15:18
+
+这次怎么一下给这么多任务  奖励还全是棋子什么的  太没用了吧
+
+*****
+
+####  森兰丸  
+##### 86733#       发表于 2022-1-21 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">草...时间神殿动画咕哒就直接扛着大盾和还是完整形态的人王干上了.....这魔改的
+
+*****
+
+####  qixinno2  
+##### 86734#       发表于 2022-1-21 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按这动画第二部剧情开场咕哒没一拳把卡多克打死应该是手下留情了
+
