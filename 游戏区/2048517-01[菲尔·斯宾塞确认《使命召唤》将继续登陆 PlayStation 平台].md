@@ -617,3 +617,26 @@ I confirmed our intent to honor all existing agreements upon acquisition of Acti
 
 说白了,收购了就是第一方,已经签约的不会毁约,但是之后的新作如天外世界2,星空,登录PS了吗?
 
+
+
+*****
+
+####  allenz3  
+##### 65#         楼主| 发表于 2022-1-21 16:17
+
+ 本帖最后由 allenz3 于 2022-1-21 16:19 编辑 
+
+看看国外英语媒体写的标题是怎样的，人家是不是不懂英语什么是intent和desire。
+
+<img src="https://img.saraba1st.com/forum/202201/21/161034kxd99l0kl395k6n0.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-01-21_17-09-58.png</strong> (285.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-21 16:10 上传
+
+COD以后要不要微软独占那也该是微软官方宣布，你要做解读预期没有问题，不代表转载个维特就该代替微软/斯宾塞说话，不然去当微软发言人算了。
+
+不太理解一些人，可以对论坛上的钓鱼标题钓鱼内容的帖子非常宽容，对一个标题正常内容出自本人之口无断章取义的帖子本身长编大论口诛笔伐，不满意就到推特上找本人留言去。
+
