@@ -3181,3 +3181,33 @@ roberu：asmr=あさむら
 
 这台本也太无聊了，就靠你麻在这强开换题
 
+
+
+*****
+
+####  YoMico  
+##### 7869#       发表于 2022-1-21 21:38
+
+这直播 看感觉到了一阵虚无
+
+*****
+
+####  路人庚  
+##### 7870#       发表于 2022-1-21 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉根本就没有台本，只能说聊天真就靠你咩姐
+
+*****
+
+####  rosevalley46  
+##### 7871#       发表于 2022-1-21 21:41
+
+没看过另外两位直播,感觉是不是都不是杂谈系的,略显尬啊
+
+*****
+
+####  T_Hb  
+##### 7872#       发表于 2022-1-21 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一开场我就run走了
+
