@@ -489,3 +489,14 @@ btw巴黎世家真的就是智商税（
 
 相比星就做的不够了，工业手套的样子。
 
+
+
+*****
+
+####  二月十日  
+##### 4542#       发表于 2022-1-21 23:49
+
+说起巴黎世家我想起来了，逢田姐以前也穿过，鲤鱼这其实是对逢田姐的Respect吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gylq6432x2j20ip0sgmzg.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gylq89poolj20hs0p0dh0.jpg" referrerpolicy="no-referrer">
+
