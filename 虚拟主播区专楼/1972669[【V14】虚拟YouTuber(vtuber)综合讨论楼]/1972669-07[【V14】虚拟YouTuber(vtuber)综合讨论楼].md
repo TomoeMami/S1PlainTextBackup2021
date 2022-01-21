@@ -14830,3 +14830,13 @@ live没了以后能再开，可是身体搞废了可没有第二具了啊<img sr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">演唱会发表是11月左右吧 新疫情爆发在12月，能预测有鬼了
 
+
+
+*****
+
+####  poipanchao  
+##### 10284#       发表于 2022-1-21 11:03
+
+会不会爆发心里没有逼数吗
+不过这个本质上国家路线问题，是cn赢了
+
