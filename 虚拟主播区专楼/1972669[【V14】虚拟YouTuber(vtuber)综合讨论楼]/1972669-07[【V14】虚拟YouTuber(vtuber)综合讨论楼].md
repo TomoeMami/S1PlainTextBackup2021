@@ -14840,3 +14840,26 @@ live没了以后能再开，可是身体搞废了可没有第二具了啊<img sr
 会不会爆发心里没有逼数吗
 不过这个本质上国家路线问题，是cn赢了
 
+
+
+*****
+
+####  rzrbtk  
+##### 10285#       发表于 2022-1-21 11:45
+
+只能替昨天豪言壮志day1好好搞的liver悲一下了，昨天白雪巴大晚上还开live前杂谈，估计中止也是紧急通报吧
+
+*****
+
+####  noHentai  
+##### 10286#       发表于 2022-1-21 11:51
+
+都不给好久没看管人的我一个看管的机会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨井绫  
+##### 10287#       发表于 2022-1-21 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">说明还是要大力发展元宇宙，等实现了完美的线上VR演唱会就不用担心这些了。其实现在这种情况倒是发展这种技术的好时机，可惜什么事都不可能那么快。
+
