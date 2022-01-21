@@ -982,3 +982,22 @@ Ame: yeah “ame doko”, “ame doko”, I’m asking the same question and not
 
 Ame: today we are going to play the world of light campaign or whatever…camPAIN….camPAAAAIIIIIINNNNNNNNNNNNN<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  PureIllusion  
+##### 1596#       发表于 2022-1-21 13:06
+
+Kronii这歌先偷跑了
+
+*****
+
+####  wuzhengkai  
+##### 1597#       发表于 2022-1-21 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54323104&amp;ptid=1989758" target="_blank">Austaras 发表于 2022-1-17 13:36</a>
+
+是不是很多人不喜欢 irys 的皮……可能是我被红汁**太深了</blockquote>
+真不行 没这皮应该已经金盾了
+
