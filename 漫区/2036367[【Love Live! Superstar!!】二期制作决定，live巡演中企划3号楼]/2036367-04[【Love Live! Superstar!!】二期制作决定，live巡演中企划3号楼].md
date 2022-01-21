@@ -371,3 +371,12 @@ Petit lys ，是法语</blockquote>
 
 原来是直接就拿小百合翻译的<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 4531#       发表于 2022-1-21 20:36
+
+我吐了，不知道是墙升级了还是我几个梯子全在吃屎还是日本人疯了，radiko一直无法辨认日本ip，ann只能等录音了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

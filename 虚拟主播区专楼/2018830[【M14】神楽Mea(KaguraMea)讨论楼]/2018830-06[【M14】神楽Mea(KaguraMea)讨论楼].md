@@ -3122,3 +3122,35 @@ roberu：asmr=あさむら
 
 传统艺能
 
+
+
+*****
+
+####  路人庚  
+##### 7862#       发表于 2022-1-21 20:36
+
+开了
+
+*****
+
+####  T_Hb  
+##### 7863#       发表于 2022-1-21 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">背景都懒得换一个是吧，直接用待机画面
+
+无台本尬聊吗，关了
+
+*****
+
+####  路人庚  
+##### 7864#       发表于 2022-1-21 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这都能出现器材问题吗，索尼是不是看到微软把暴雪买了就直接断气了啊
+
+*****
+
+####  T_Hb  
+##### 7865#       发表于 2022-1-21 20:43
+
+我猜他是异地登陆账号登不上去，换个号就开了
+
