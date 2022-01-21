@@ -1332,3 +1332,17 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 感觉试炼的地理位置很适合避战
 
+
+
+*****
+
+####  braverbt  
+##### 71#         楼主| 发表于 2022-1-21 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54380670&amp;ptid=2046838" target="_blank">猫不萌 发表于 2022-1-21 16:23</a>
+
+感觉试炼的地理位置很适合避战</blockquote>
+试炼山上很不错,无论是打狙击枪还是据守都很好.
+
+但是试炼内部就很糟糕.
+
