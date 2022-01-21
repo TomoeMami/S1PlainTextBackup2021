@@ -3211,3 +3211,30 @@ roberu：asmr=あさむら
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一开场我就run走了
 
+
+
+*****
+
+####  T_Hb  
+##### 7873#       发表于 2022-1-21 22:07
+
+今天聊到怪猎了吗，拉酱还行
+
+*****
+
+####  clvan_  
+##### 7874#       发表于 2022-1-21 22:07
+
+ 本帖最后由 clvan_ 于 2022-1-21 22:10 编辑 
+
+主题被限制了之后尬度成倍增长
+
+syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
+
+*****
+
+####  路人庚  
+##### 7875#       发表于 2022-1-21 22:09
+
+被朋友形容为激昂金狮子的阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
