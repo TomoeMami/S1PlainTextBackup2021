@@ -307,3 +307,29 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">トレーナーとパーカーには<strong>「小さい百合」</strong>を外国の言葉でデザイン。
 
+
+
+*****
+
+####  player3960  
+##### 4526#       发表于 2022-1-21 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54381806&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-01-21 17:53:16</a>
+を外国の言葉でデザイン。</blockquote>这个外国除了中国还能是哪呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  秋月艾莉  
+##### 4527#       发表于 2022-1-21 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54382009&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-21 18:12</a>
+
+这个外国除了中国还能是哪呢
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+不是吧，只是说一下这衣服把名字印上去这样
+
+是中文的话还能看不到吗hh
+
