@@ -675,3 +675,15 @@ wants嘛，说想也没什么问题。
 
 phil应该没说过b社游戏还会上ps，至少我前不久还看到新闻说他专门出来辟谣，还补了一句自己没说过这种话，是有些媒体编的
 
+
+
+*****
+
+####  qratosone  
+##### 69#       发表于 2022-1-21 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54379499&amp;ptid=2048517" target="_blank">苍白の正义 发表于 2022-1-21 15:01</a>
+
+想想B社收购完成前斯宾塞那些模棱两可的话,等B社收购完成后就变成"B社新作只会登录有XGP的平台."然后就是今 ...</blockquote>
+估计是准备借机跟索尼谈判了，要是索尼投降放自带账号体系的XGP上PS5那应该也不是没得谈
+
