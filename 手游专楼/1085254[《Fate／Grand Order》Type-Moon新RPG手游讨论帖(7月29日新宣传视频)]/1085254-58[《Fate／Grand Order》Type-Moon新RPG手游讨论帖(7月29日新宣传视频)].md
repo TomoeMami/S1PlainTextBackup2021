@@ -12765,3 +12765,17 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86729#       发表于 2022-1-21 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54373576&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-21 06:00</a>
+
+花了几分钟爬了下这2天的楼.....就没人说下这新加的几百个任务是什么鬼吗
+
+你送石头碎片也就算了....送一堆 ...</blockquote>
+都写了是教学任务了，给新人的啊
+
