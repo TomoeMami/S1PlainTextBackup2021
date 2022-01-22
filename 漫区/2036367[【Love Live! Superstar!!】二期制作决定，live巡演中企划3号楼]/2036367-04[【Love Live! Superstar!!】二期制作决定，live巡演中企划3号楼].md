@@ -789,3 +789,32 @@ liyuu前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 我还以为演唱会会开配信呢
 
+
+
+*****
+
+####  lj205  
+##### 4569#       发表于 2022-1-22 13:58
+
+<img src="https://img.saraba1st.com/forum/202201/22/135759let89mzkbeqehzgb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>64A633F8-8EBA-432E-B596-8029A275809B.jpeg</strong> (154.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 13:57 上传
+
+*****
+
+####  ayangsu  
+##### 4570#       发表于 2022-1-22 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54389964&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-22 13:45</a>
+之前说的大新闻是啥
+
+我还以为演唱会会开配信呢</blockquote>
+我也以为会是有线上呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+不过天大的好消息是1月6号说的，后面才宣布emi来，可能这就是天大的好消息吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
