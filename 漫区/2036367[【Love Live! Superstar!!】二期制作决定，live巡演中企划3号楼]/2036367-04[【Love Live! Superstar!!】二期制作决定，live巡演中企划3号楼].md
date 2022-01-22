@@ -1183,3 +1183,33 @@ D5D7E63D-7D78-4976-AF66-2BC1DEA9889C.jpeg
 全程健身操就算了，这个品字有必要吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可能是编舞的爱好？GK好像也搞过类似东西
 
+
+
+*****
+
+####  cat1230  
+##### 4593#       发表于 2022-1-22 21:32
+
+鲤鱼今天的广播穿的依然是国内带过去的
+
+买巴黎世家的鞋子是下了不少决心吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+l1.jpg
+(223.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/213148g54i2cacxnjgjung.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  musicat  
+##### 4594#       发表于 2022-1-22 21:42
+
+怎么还纠结这鞋子呢...
+
+之前大家都打趣唐家大小姐了，鲤鱼出生上海，初中还是高中都跑到日本玩Cos更是没什么黑料，不说大富之家中产肯定是没问题的啊。
+这个年纪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">假设把这个鞋子换成一个包包，一点波澜都不会有啊。
+

@@ -618,3 +618,15 @@ T组跟IW组都不是一个节奏，一个T组新作 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 69#       发表于 2022-1-22 21:39
+
+一年一作买的还是这些人，两年一作买的还是那些人。干嘛要两年一作呢?
+而且一作cod半年就腻了，一年一作差不多。微软倒是可以多招人，避免互相救火。
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
