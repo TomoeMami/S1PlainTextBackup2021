@@ -17914,3 +17914,112 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 又可以看打枪了，好耶~ヾ(✿ﾟ▽ﾟ)ノ
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 7486#       发表于 2022-1-22 12:16
+
+这几天私下复建还打了个双锤出来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zpy393  
+##### 7487#       发表于 2022-1-22 12:27
+
+难得单人同接上了三万，游戏民数字民狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 7488#       发表于 2022-1-22 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先吃一鸡庆祝下apex复活
+
+*****
+
+####  猫南北  
+##### 7489#       发表于 2022-1-22 12:31
+
+第一局排位就少人~
+
+
+
+*****
+
+####  猫南北  
+##### 7490#       发表于 2022-1-22 13:15
+
+感觉比以前强了好多。
+
+
+
+*****
+
+####  离魂仙  
+##### 7491#       发表于 2022-1-22 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">我要排卵了
+
+
+
+*****
+
+####  TiHaru  
+##### 7492#       发表于 2022-1-22 13:52
+
+是说的最近搬家了还是相对之前玩的时候搬家了啊
+
+
+
+*****
+
+####  越动天下  
+##### 7493#       发表于 2022-1-22 14:01
+
+说之前吧 
+
+*****
+
+####  面具13  
+##### 7494#       发表于 2022-1-22 14:17
+
+生猛海鲜
+
+
+
+*****
+
+####  乌鸦绅士  
+##### 7495#       发表于 2022-1-22 15:07
+
+去年最后一次直播apex账号等级481，现在489，如果一直有练习的话必然开了小号。如果把直播时间都拿去练a的话我愿称其为偶像梦和电竞梦都想要的硬实力梦想家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 7496#       发表于 2022-1-22 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">电竞梦谈不上 但可以说明apex真的解压
+
+
+
+*****
+
+####  ylssb10438  
+##### 7497#       发表于 2022-1-22 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那lol什么的，可以整吗
+
+
+
+*****
+
+####  面具13  
+##### 7498#       发表于 2022-1-22 17:47
+
+lol没数字，最多联动，否则肯定吃独食，现在多少个版本没碰了都不知道
+

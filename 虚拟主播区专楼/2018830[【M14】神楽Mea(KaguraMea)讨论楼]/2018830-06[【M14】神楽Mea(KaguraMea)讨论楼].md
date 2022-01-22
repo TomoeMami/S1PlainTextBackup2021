@@ -3238,3 +3238,60 @@ syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
 
 被朋友形容为激昂金狮子的阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 7876#       发表于 2022-1-22 09:07
+
+关注了3个画师（甚至还有死棺的原画，可还行
+
+
+
+*****
+
+####  梦魂落叶  
+##### 7877#       发表于 2022-1-22 15:53
+
+<img src="https://p.sda1.dev/4/ebcfbbf50437a6e38240d240c2d88de1/3185c00d40d276fd.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/4/681e494446f15b2d94725830aef83d87/-55c87f5176cf7cfd.jpg" referrerpolicy="no-referrer">
+太怪了，我都要怀疑你麻的人设是不是都是从哪里neta的了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">，这立本游戏作者也不太可能是立本天狗啊
+
+*****
+
+####  JY要塞  
+##### 7878#       发表于 2022-1-22 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议你麻好好学习怎么当麻
+
+*****
+
+####  aisakahammer  
+##### 7879#       发表于 2022-1-22 16:00
+
+- - 日本人打小钢珠很普通的
+
+
+
+*****
+
+####  璃絵和花瑠  
+##### 7880#       发表于 2022-1-22 16:51
+
+ 本帖最后由 璃絵和花瑠 于 2022-1-22 16:52 编辑 
+
+这作者自己其实没什么管人浓度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  路人庚  
+##### 7881#       发表于 2022-1-22 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏女主直播数字涨的飞快，就在这种状态都会随随便便心理压力爆炸
+
+只能说就这水平比你咩姐差了几百个华来士，也就是那么几个梗能跟你咩姐对上，但也仅此而已了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

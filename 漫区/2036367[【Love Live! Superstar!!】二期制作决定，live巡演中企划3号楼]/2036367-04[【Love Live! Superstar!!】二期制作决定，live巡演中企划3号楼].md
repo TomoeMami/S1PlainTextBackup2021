@@ -457,3 +457,526 @@ btw巴黎世家真的就是智商税（
 
 佩佩长大了，今晚鲤P拉满啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 4539#       发表于 2022-1-21 22:54
+
+看了下翻译，pay评价鲤鱼表演时手指指尖的动作很漂亮，关注那么细的吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4540#       发表于 2022-1-21 23:01
+
+明天的广播投稿各位有啥灵感吗
+
+
+
+*****
+
+####  musicat  
+##### 4541#       发表于 2022-1-21 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54385284&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-21 22:54</a>
+
+看了下翻译，pay评价鲤鱼表演时手指指尖的动作很漂亮，关注那么细的吗 ...</blockquote>
+说起这个，印象中水团有一套非常好看的蕾丝白手套，指尖部分是特别的质材的样子，特别的尖特别的好看。
+
+然后是D4DJ走色气路线的那团的露指黑手套更是<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+相比星就做的不够了，工业手套的样子。
+
+
+
+*****
+
+####  二月十日  
+##### 4542#       发表于 2022-1-21 23:49
+
+说起巴黎世家我想起来了，逢田姐以前也穿过，鲤鱼这其实是对逢田姐的Respect吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gylq6432x2j20ip0sgmzg.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/6840fbb0gy1gylq89poolj20hs0p0dh0.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  名津流  
+##### 4543#       发表于 2022-1-22 03:00
+
+ 本帖最后由 名津流 于 2022-1-22 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54385349&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-21 23:01</a>
+
+明天的广播投稿各位有啥灵感吗</blockquote>
+临近春节，问一下鲤鱼家里的长辈看了她工作的视频没，亲戚有什么评价吗？
+
+毕竟打铁她家里人都比较紧密地参与到她的工作了，不知道鲤鱼家里人看了她站在舞台上，台下那么多人为她欢呼的情景是什么感觉
+
+中国人去外国，还是日本，做偶像这种事情太前卫了，甚至还让那么多外国人都为她着迷，应该不是一般国内的长辈所能理解的
+
+
+
+*****
+
+####  lj205  
+##### 4544#       发表于 2022-1-22 09:04
+
+ 本帖最后由 lj205 于 2022-1-22 09:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/22/090209l6zck7vd3qdkgkk7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3DDEA25D-7295-4C2C-A926-2BC28CFC5AAA.jpeg</strong> (559.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 09:02 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/090211og4zgs45u44n5654.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F16E791F-9E7F-4E91-9166-5C80EDA92E70.jpeg</strong> (556.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 09:02 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/090210ixastgaxx2i4tqq8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF54AF27-F234-4A86-9C02-8A8404399FF0.jpeg</strong> (310.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 09:02 上传
+
+鲤鱼和佩佩这合照看到有人说是跩哥和纯妹的结婚照<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+佩佩这张还是鲤鱼拍的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+说起来她们手上的goods大半夜开卖，没多久全切了，我都还来不及找人帮忙下单……
+
+*****
+
+####  lj205  
+##### 4545#       发表于 2022-1-22 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54387007&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-22 03:00</a>
+临近春节，问一下鲤鱼家里的长辈看了她工作的视频没，亲戚有什么评价吗？
+
+毕竟打铁她家里人都比较紧密地参 ...</blockquote>
+虽然不符合今天的主题，不过感谢提供个思路，后面我找时间投稿
+
+
+
+*****
+
+####  starring  
+##### 4546#       发表于 2022-1-22 09:28
+
+跟鲤鱼站一起，pay这身高怎么看都有160+
+
+听了最近几期广播，跨年Live被sww抱过后，pay的痴汉化越来越严重<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 4547#       发表于 2022-1-22 11:41
+
+母女
+
+517F9D10-46DD-49EC-B54B-41D1A652C0E6.jpeg
+(203.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/114135f641yq3s3oyz4kg1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  stygian  
+##### 4548#       发表于 2022-1-22 12:03
+
+喷了，安定的出场事故
+
+还把一般路过EMI入镜了
+
+*****
+
+####  stygian  
+##### 4549#       发表于 2022-1-22 12:08
+
+线上票四成是外国IP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+horipro真不准备请懂中文的经纪人吗
+
+
+
+*****
+
+####  cybernetics31  
+##### 4550#       发表于 2022-1-22 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱线下去不了，线上活动还是能买爆的啦
+
+*****
+
+####  cybernetics31  
+##### 4551#       发表于 2022-1-22 12:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼这个月第四个蛋糕了吧
+
+*****
+
+####  lj205  
+##### 4552#       发表于 2022-1-22 12:19
+
+Endless no vacation 
+
+*****
+
+####  优妮可  
+##### 4553#       发表于 2022-1-22 12:20
+
+四成外国，这说明是我们这边买的多还是那边买的少啊。
+
+*****
+
+####  stygian  
+##### 4554#       发表于 2022-1-22 12:20
+
+拒否デス<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 4555#       发表于 2022-1-22 12:21
+
+鲤鱼戴口罩真有点男人，合照像公母俩
+
+
+
+*****
+
+####  stygian  
+##### 4556#       发表于 2022-1-22 12:25
+
+ 本帖最后由 stygian 于 2022-1-22 12:28 编辑 
+
+冬デス<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你🐟日语能力上达之后角色开始（正常）转到吐槽役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+=================================
+
+EMI这脸，感觉又瘦了
+
+但是嗓子还是很沙
+
+*****
+
+####  lj205  
+##### 4557#       发表于 2022-1-22 12:34
+
+鲤鱼这小粉丝
+
+*****
+
+####  stygian  
+##### 4558#       发表于 2022-1-22 12:36
+
+插个场外
+
+キ ャ ラ 固 定<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/22/123648vcuvzxe64v6cys2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 12:36 上传
+
+*****
+
+####  lj205  
+##### 4559#       发表于 2022-1-22 12:43
+
+Emi居然会说三角龙的中文
+
+*****
+
+####  stygian  
+##### 4560#       发表于 2022-1-22 12:44
+
+这啥节目啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4561#       发表于 2022-1-22 12:45
+
+青山：学狗叫不喊我
+
+
+
+*****
+
+####  stygian  
+##### 4562#       发表于 2022-1-22 12:51
+
+ 本帖最后由 stygian 于 2022-1-22 12:53 编辑 
+
+怎么又要哭了
+
+emi实质一直在救场
+
+可以，最后一个boke很好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4563#       发表于 2022-1-22 12:56
+
+今天这个完全是节目为鲤鱼办的专属一对一偶像见面会，算是节目给鲤鱼的生日礼物
+
+*****
+
+####  stygian  
+##### 4564#       发表于 2022-1-22 12:59
+
+5ch老哥：一股子emitn fight club味儿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4565#       发表于 2022-1-22 13:14
+
+Emi辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4566#       发表于 2022-1-22 13:16
+
+liyuu前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  优妮可  
+##### 4567#       发表于 2022-1-22 13:31
+
+小鲤鱼好啊
+
+*****
+
+####  lj205  
+##### 4568#       发表于 2022-1-22 13:45
+
+之前说的大新闻是啥<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+我还以为演唱会会开配信呢
+
+
+
+*****
+
+####  lj205  
+##### 4569#       发表于 2022-1-22 13:58
+
+<img src="https://img.saraba1st.com/forum/202201/22/135759let89mzkbeqehzgb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>64A633F8-8EBA-432E-B596-8029A275809B.jpeg</strong> (154.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 13:57 上传
+
+*****
+
+####  ayangsu  
+##### 4570#       发表于 2022-1-22 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54389964&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-22 13:45</a>
+之前说的大新闻是啥
+
+我还以为演唱会会开配信呢</blockquote>
+我也以为会是有线上呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+不过天大的好消息是1月6号说的，后面才宣布emi来，可能这就是天大的好消息吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  saya1892  
+##### 4571#       发表于 2022-1-22 14:01
+
+<img src="https://img.saraba1st.com/forum/202201/22/140143g556p9zcj91rijjf.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg</strong> (317.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 14:01 上传
+
+*****
+
+####  lj205  
+##### 4572#       发表于 2022-1-22 14:26
+
+<img src="https://img.saraba1st.com/forum/202201/22/142630fjee4069jggie5w2.png" referrerpolicy="no-referrer">
+
+<strong>E5A9CFF0-41B2-4D25-9044-96BDCFA1F212.png</strong> (423.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 14:26 上传
+
+
+
+*****
+
+####  仟音一心  
+##### 4573#       发表于 2022-1-22 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54390130&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-1-22 14:01</a></blockquote>
+再来个
+
+86641BD6-EEAF-4A43-8069-D083BF0E5B6E.jpeg
+(180.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 15:03 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/150358fwh2w1p21ulgjmv9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 4574#       发表于 2022-1-22 15:05
+
+小女孩和小百合差不多高吧
+
+41639AFB-ED45-4429-9E10-E162E2885AA5.jpeg
+(483.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/150549wl2zjya2hkkljyy2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4575#       发表于 2022-1-22 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">r3的场子真大，羡慕
+
+
+
+*****
+
+####  lj205  
+##### 4576#       发表于 2022-1-22 17:23
+
+R3这舞台设计这过场动画这衣服细节，星团真是寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  starring  
+##### 4577#       发表于 2022-1-22 17:30
+
+星团只有OP服的质量过关，wish song也行但是鞋子和手套质量不行。其它的质量实在一言难尽
+
+*****
+
+####  仟音一心  
+##### 4578#       发表于 2022-1-22 17:45
+
+华丽
+
+6B01DF4D-43BD-451B-8DC1-F70109CE35AC.jpeg
+(89.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512qsa5s1w61cc39f56.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E922C1FF-0685-4FB1-85B6-E39537F1B464.jpeg
+(196.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512nw2k9uw3732297zu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+640CE6BC-C93E-4817-BAD3-4E5C4FAB439C.jpeg
+(169.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512t86486an9ag8nkgs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1ECED101-CD1F-4A97-BDDF-CD9076B93F7A.jpeg
+(225.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512bmq4c4hd1e44emph.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FD5E35CC-4289-42E7-A5D4-D38528DF8108.jpeg
+(202.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512w31x2ry2zjrkjdu9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 4579#       发表于 2022-1-22 17:53
+
+草
+
+33DE75C6-0368-4112-A311-F68650F118EE.jpeg
+(114.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:53 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/175310v5dgm49wxomeo9ge.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
