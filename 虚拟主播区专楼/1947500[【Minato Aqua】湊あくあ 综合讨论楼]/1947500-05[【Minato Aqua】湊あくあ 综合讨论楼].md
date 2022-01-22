@@ -18023,3 +18023,12 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 lol没数字，最多联动，否则肯定吃独食，现在多少个版本没碰了都不知道
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 7499#       发表于 2022-1-22 21:11
+
+角色控制、aim、战况判断全方面的比以前也强太多了吧，这不是私下经常在打AP，而是私下经常在有计划的锻练AP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
