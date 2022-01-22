@@ -17914,3 +17914,12 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 又可以看打枪了，好耶~ヾ(✿ﾟ▽ﾟ)ノ
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 7486#       发表于 2022-1-22 12:16
+
+这几天私下复建还打了个双锤出来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
