@@ -1332,3 +1332,28 @@ l1.jpg
 
 女孩子给自己买双小贵的鞋子至于这么大惊小怪吗……
 
+
+
+*****
+
+####  lj205  
+##### 4607#       发表于 2022-1-22 22:49
+
+ 本帖最后由 lj205 于 2022-1-22 22:53 编辑 
+
+算了
+
+*****
+
+####  chenflyyy  
+##### 4608#       发表于 2022-1-22 22:54
+
+我还是觉得不要对小偶像的生活挖掘太多好，虽然鲤鱼的国人身份拉进了与大家距离，但也没必要穿什么多少钱点赞什么都要关注，太互联网跟踪狂了，还是适当保持点距离好<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4609#       发表于 2022-1-22 22:56
+
+后天那场活动配信签售是不是只有line live可以看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
