@@ -1275,3 +1275,60 @@ l1.jpg
 
 不行啊，我到现在还是接受不了这编舞，过于震撼
 
+
+
+*****
+
+####  lj205  
+##### 4601#       发表于 2022-1-22 22:30
+
+今天签售会某个地区的人真是够烦，就一直强调自己是哪里人，鲤鱼一直在尽量避免，结果最后staff还是按习惯性说国家和地区，鲤鱼也是挺难的，最好以后能提前跟staff提醒一下……
+
+*****
+
+####  player3960  
+##### 4602#       发表于 2022-1-22 22:31
+
+太迷惑了，这舞<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cat1230  
+##### 4603#       发表于 2022-1-22 22:34
+
+<blockquote>引用第4594楼lj205于2022-01-22 21:56发表的  :
+
+我还挺喜欢这身的</blockquote>
+@lj205
+
+鲤鱼的衣品真的挺好，就算便宜的衣服也搭配的好好看，当然主要是人美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  player3960  
+##### 4604#       发表于 2022-1-22 22:36
+
+身高也是关键，虽然在樱花妹面前看着太高，但是个子高驾驭一些服装效果它就是好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 4605#       发表于 2022-1-22 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54395568&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-22 22:30</a>
+今天签售会某个地区的人真是够烦，就一直强调自己是哪里人，鲤鱼一直在尽量避免，结果最后staff还是按习惯 ...</blockquote>
+现在湾湾多半都这样的。
+
+*****
+
+####  emmer  
+##### 4606#       发表于 2022-1-22 22:44
+
+女孩子给自己买双小贵的鞋子至于这么大惊小怪吗……
+

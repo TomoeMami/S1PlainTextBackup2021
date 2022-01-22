@@ -15211,3 +15211,24 @@ anrk短时间内也不敢找人去公司干活了吧……
 
 光君则是低烧情况比翔哥好些但说睡不着。
 
+
+
+*****
+
+####  free  
+##### 10314#       发表于 2022-1-22 22:27
+
+[https://twitter.com/VWP_virtual/status/148486038311018905](https://twitter.com/VWP_virtual/status/148486038311018905)
+
+V.W.Pメンバーによる対バンライブ「魔女集会」JOINT  LIVE(4/15)。そして、待望のV.W.P 1st ONE-MAN LIVE「現象」(4/16)を開催決定！
+
+魔女達の現象を刮目せよ。
+
+■会場チケット
+[https://l-tike.com/vwp-majyo/](https://l-tike.com/vwp-majyo/) 
+
+■詳細＆有料配信チケットはコチラから
+[http://kamitsubaki.jp/news/2022/01/22/1113/](http://kamitsubaki.jp/news/2022/01/22/1113/)
+
+裸春线下全团live，4.1516连开两天
+
