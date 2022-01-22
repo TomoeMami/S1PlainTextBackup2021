@@ -8345,3 +8345,18 @@ https://b23.tv/4fZ6tlW
 
 小时候的恋光真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  堆雪若叶  
+##### 627#         楼主| 发表于 2022-1-23 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54396964&amp;ptid=2043629" target="_blank">Lwhite 发表于 2022-1-23 01:19</a>
+
+渣光什么的 剧场版一开头不就告诉你了 “下次节目她要出演邪恶的菈薇妮娅大小姐” 
+
+小时候的恋光真 ...</blockquote>
+提到这个突然就想起TV开头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/370abca4ba1e151bdedb85e22e4db23a/9.jpg" referrerpolicy="no-referrer">
+

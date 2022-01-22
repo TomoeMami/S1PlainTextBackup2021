@@ -1468,3 +1468,66 @@ l1.jpg
 
 是代码搞错了什么吗
 
+
+
+*****
+
+####  cat1230  
+##### 4620#       发表于 2022-1-23 01:51
+
+我也扫出敬业福了，虽然一堆和谐爱国，但有一张敬业，凑齐了。
+
+感谢菜宝。
+
+真正的中国偶像<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cat1230  
+##### 4621#       发表于 2022-1-23 01:53
+
+ 本帖最后由 cat1230 于 2022-1-23 02:14 编辑 
+
+鲤鱼签售会的视频叔叔家有人传<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">评论区有人解答了。
+
+*****
+
+####  任天索尼子  
+##### 4622#       发表于 2022-1-23 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54397185&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-23 01:53</a>
+鲤鱼签售会的视频叔叔家有人传了知道为啥少了点时长了评论区有人解答了。
+
+ ...</blockquote>
+虽然我没看但我估计是台巴子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cxj649  
+##### 4623#       发表于 2022-1-23 03:07
+
+我也扫到敬业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 4624#       发表于 2022-1-23 03:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54397319&amp;ptid=2036367" target="_blank">任天索尼子 发表于 2022-1-23 02:22</a>
+
+虽然我没看但我估计是台巴子
+
+—— 来自 realme RMX2072, Android 11上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+恭喜你，学会抢答了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  A0171050  
+##### 4625#       发表于 2022-1-23 04:14
+
+被r3birth吸引了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好棒啊
+
