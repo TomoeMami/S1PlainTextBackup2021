@@ -596,3 +596,23 @@ btw巴黎世家真的就是智商税（
 
 <img src="https://img.saraba1st.com/forum/202201/22/114135f641yq3s3oyz4kg1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 4548#       发表于 2022-1-22 12:03
+
+喷了，安定的出场事故
+
+还把一般路过EMI入镜了
+
+*****
+
+####  stygian  
+##### 4549#       发表于 2022-1-22 12:08
+
+线上票四成是外国IP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+horipro真不准备请懂中文的经纪人吗
+

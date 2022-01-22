@@ -15096,3 +15096,14 @@ rrm最近播valo的同接都好高
 
 kawase这一队4个人全换了啊,这里面kinako和soraru是发烧，但pcr阴性，bobsappaim是阳性
 
+
+
+*****
+
+####  Ketestrait  
+##### 10305#       发表于 2022-1-22 11:58
+
+<img src="https://tvax3.sinaimg.cn/large/7c16af6bly1gymb9oi7z7j20y90lkted.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/0lIk2Ok83d4](https://youtu.be/0lIk2Ok83d4)
+
