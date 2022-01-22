@@ -8334,3 +8334,14 @@ https://b23.tv/4fZ6tlW
 
 —— 来自 OPPO PEEM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Lwhite  
+##### 626#       发表于 2022-1-23 01:19
+
+渣光什么的 剧场版一开头不就告诉你了 “下次节目她要出演邪恶的菈薇妮娅大小姐” <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+小时候的恋光真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
