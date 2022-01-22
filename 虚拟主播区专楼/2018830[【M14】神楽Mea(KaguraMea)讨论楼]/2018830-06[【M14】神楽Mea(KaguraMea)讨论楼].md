@@ -3247,3 +3247,27 @@ syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
 
 关注了3个画师（甚至还有死棺的原画，可还行
 
+
+
+*****
+
+####  梦魂落叶  
+##### 7877#       发表于 2022-1-22 15:53
+
+<img src="https://p.sda1.dev/4/ebcfbbf50437a6e38240d240c2d88de1/3185c00d40d276fd.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/4/681e494446f15b2d94725830aef83d87/-55c87f5176cf7cfd.jpg" referrerpolicy="no-referrer">
+太怪了，我都要怀疑你麻的人设是不是都是从哪里neta的了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">，这立本游戏作者也不太可能是立本天狗啊
+
+*****
+
+####  JY要塞  
+##### 7878#       发表于 2022-1-22 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议你麻好好学习怎么当麻
+
+*****
+
+####  aisakahammer  
+##### 7879#       发表于 2022-1-22 16:00
+
+- - 日本人打小钢珠很普通的
+

@@ -18005,3 +18005,12 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">电竞梦谈不上 但可以说明apex真的解压
 
+
+
+*****
+
+####  ylssb10438  
+##### 7497#       发表于 2022-1-22 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那lol什么的，可以整吗
+
