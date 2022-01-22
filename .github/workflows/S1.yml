@@ -1,11 +1,11 @@
 # This workflow will upload a Python Package using Twine when a release is created
 # For more information see: https://help.github.com/en/actions/language-and-framework-guides/using-python-with-github-actions#publishing-to-package-registries
 
-name: S1AutoBackup
+name: S1B
 
 on:
   # workflow_dispatch:
-  # push
+  push
 jobs:
 
   # UpdateS1:
@@ -68,7 +68,7 @@ jobs:
         pip install setuptools wheel twine pathlib
     - name: DataGenerate
       run: |
-        python ./data.py
+        python ./S1B.py
     - name: Pushes S1B folder
       uses: crykn/copy_folder_to_another_repo_action@v1.0.6
       env:
