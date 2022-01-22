@@ -17989,3 +17989,19 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 生猛海鲜
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 7495#       发表于 2022-1-22 15:07
+
+去年最后一次直播apex账号等级481，现在489，如果一直有练习的话必然开了小号。如果把直播时间都拿去练a的话我愿称其为偶像梦和电竞梦都想要的硬实力梦想家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 7496#       发表于 2022-1-22 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">电竞梦谈不上 但可以说明apex真的解压
+
