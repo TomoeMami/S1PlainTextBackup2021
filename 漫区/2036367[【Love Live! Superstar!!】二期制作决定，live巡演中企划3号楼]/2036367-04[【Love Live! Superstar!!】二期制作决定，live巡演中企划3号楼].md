@@ -1080,3 +1080,38 @@ syl这舞台挺用心的
 
 <img src="https://img.saraba1st.com/forum/202201/22/191817ddoucubt0uddzlol.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 4585#       发表于 2022-1-22 19:29
+
+我严重怀疑rebirth和星团编曲目单的是一个人，就会玩儿高强度<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 4586#       发表于 2022-1-22 19:39
+
+终于回去看了鲤鱼的新MV，好棒<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4587#       发表于 2022-1-22 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54393176&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-1-22 19:16</a>
+
+开始签了我才发现邮件里写着不会写昵称不是to签</blockquote>
+海报不要卖我
+
+*****
+
+####  一个陆仁贾  
+##### 4588#       发表于 2022-1-22 19:47
+
+看鲤鱼和pay互夸的切片，pay的那声“诶嘿”太好玩了
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
