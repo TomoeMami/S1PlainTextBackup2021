@@ -1405,3 +1405,40 @@ l1.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，我也扫到了，谢谢菜宝
 
+
+
+*****
+
+####  优妮可  
+##### 4614#       发表于 2022-1-22 23:50
+
+骗人，四富强四和谐
+
+*****
+
+####  仟音一心  
+##### 4615#       发表于 2022-1-22 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54396199&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-22 23:37</a>
+我也去试了一下真就敬业福</blockquote>
+我只扫到了爱国，爱国已经十几个了，谁能来我沾一下福气的？
+
+*****
+
+####  仟音一心  
+##### 4616#       发表于 2022-1-22 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54396287&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-22 23:50</a>
+骗人，四富强四和谐</blockquote>
+和谐福我也要的
+
+*****
+
+####  iuhehc  
+##### 4617#       发表于 2022-1-23 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54396320&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-22 23:54</a>
+
+我只扫到了爱国，爱国已经十几个了，谁能来我沾一下福气的？</blockquote>
+我把那张图发朋友群里七八个人扫了敬业福出来 就离谱
+
