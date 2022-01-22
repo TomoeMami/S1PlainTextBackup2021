@@ -1124,3 +1124,15 @@ syl这舞台挺用心的
 
 应该是签50张吧
 
+
+
+*****
+
+####  a92063256  
+##### 4590#       发表于 2022-1-22 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54393432&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-22 19:43</a>
+
+海报不要卖我</blockquote>
+没懂，你是不是少打字了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 我自己的直签是不打算出的，抱歉了
+
