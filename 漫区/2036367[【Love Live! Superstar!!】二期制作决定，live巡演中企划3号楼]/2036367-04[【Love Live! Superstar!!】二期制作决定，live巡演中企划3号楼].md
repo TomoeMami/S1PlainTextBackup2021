@@ -1240,3 +1240,38 @@ l1.jpg
 你不是以为是to签吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 我开玩笑的，1+1和台历我早都买完了，也算是超话里比较早到货的那批人
 
+
+
+*****
+
+####  iuhehc  
+##### 4597#       发表于 2022-1-22 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54394494&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-22 21:03</a>
+
+全程健身操就算了，这个品字有必要吗</blockquote>
+这个编舞我看到时真的是 <strong>大 震 撼</strong>
+
+*****
+
+####  zylwz  
+##### 4598#       发表于 2022-1-22 22:14
+
+整个舞看着都是deep impact<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且那个编舞跳起来看着就很累人
+
+*****
+
+####  chenflyyy  
+##### 4599#       发表于 2022-1-22 22:20
+
+你拉搞这种又丑又累的编舞是为了什么，这么看星的编舞算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4600#       发表于 2022-1-22 22:27
+
+不行啊，我到现在还是接受不了这编舞，过于震撼
+
