@@ -3238,3 +3238,12 @@ syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
 
 被朋友形容为激昂金狮子的阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 7876#       发表于 2022-1-22 09:07
+
+关注了3个画师（甚至还有死棺的原画，可还行
+

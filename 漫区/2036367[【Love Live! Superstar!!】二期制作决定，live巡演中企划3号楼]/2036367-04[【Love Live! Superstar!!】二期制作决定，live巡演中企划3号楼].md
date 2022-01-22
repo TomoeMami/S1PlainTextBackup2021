@@ -517,3 +517,53 @@ btw巴黎世家真的就是智商税（
 
 中国人去外国，还是日本，做偶像这种事情太前卫了，甚至还让那么多外国人都为她着迷，应该不是一般国内的长辈所能理解的
 
+
+
+*****
+
+####  lj205  
+##### 4544#       发表于 2022-1-22 09:04
+
+ 本帖最后由 lj205 于 2022-1-22 09:08 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/22/090209l6zck7vd3qdkgkk7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3DDEA25D-7295-4C2C-A926-2BC28CFC5AAA.jpeg</strong> (559.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 09:02 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/090211og4zgs45u44n5654.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F16E791F-9E7F-4E91-9166-5C80EDA92E70.jpeg</strong> (556.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 09:02 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/090210ixastgaxx2i4tqq8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF54AF27-F234-4A86-9C02-8A8404399FF0.jpeg</strong> (310.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 09:02 上传
+
+鲤鱼和佩佩这合照看到有人说是跩哥和纯妹的结婚照<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+佩佩这张还是鲤鱼拍的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+说起来她们手上的goods大半夜开卖，没多久全切了，我都还来不及找人帮忙下单……
+
+*****
+
+####  lj205  
+##### 4545#       发表于 2022-1-22 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54387007&amp;ptid=2036367" target="_blank">名津流 发表于 2022-1-22 03:00</a>
+临近春节，问一下鲤鱼家里的长辈看了她工作的视频没，亲戚有什么评价吗？
+
+毕竟打铁她家里人都比较紧密地参 ...</blockquote>
+虽然不符合今天的主题，不过感谢提供个思路，后面我找时间投稿
+

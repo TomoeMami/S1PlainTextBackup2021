@@ -1049,3 +1049,12 @@ MTHFR突变与自闭症和多动症高度重合，古拉有这两种疾病的明
 
 补充甲基化形式的B族维生素（特别是甲基叶酸和甲基钴胺），严格避免非甲基化形式的B族维生素，因为你的身体不能处理这些维生素，它们会 "堵塞工程"（避免这些形式的B族维生素很难，例如，美国几乎所有的面包产品都强化了一种B族维生素，你的身体不能正确处理）。</blockquote>
 
+
+
+*****
+
+####  shimmy1996  
+##### 1600#       发表于 2022-1-22 08:58
+
+Buffson time<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
