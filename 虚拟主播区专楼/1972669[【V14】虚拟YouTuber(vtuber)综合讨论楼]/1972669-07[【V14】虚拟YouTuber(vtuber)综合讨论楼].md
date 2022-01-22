@@ -15107,3 +15107,14 @@ kawase这一队4个人全换了啊,这里面kinako和soraru是发烧，但pcr阴
 
 [https://youtu.be/0lIk2Ok83d4](https://youtu.be/0lIk2Ok83d4)
 
+
+
+*****
+
+####  free  
+##### 10306#       发表于 2022-1-22 13:26
+
+[https://twitter.com/Virtual_avex/status/1484692291767836676](https://twitter.com/Virtual_avex/status/1484692291767836676)
+
+まりなす「奏天まひろ」無期限活動休止のお知らせ
+
