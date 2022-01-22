@@ -660,3 +660,69 @@ Endless no vacation
 
 鲤鱼戴口罩真有点男人，合照像公母俩
 
+
+
+*****
+
+####  stygian  
+##### 4556#       发表于 2022-1-22 12:25
+
+ 本帖最后由 stygian 于 2022-1-22 12:28 编辑 
+
+冬デス<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你🐟日语能力上达之后角色开始（正常）转到吐槽役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+=================================
+
+EMI这脸，感觉又瘦了
+
+但是嗓子还是很沙
+
+*****
+
+####  lj205  
+##### 4557#       发表于 2022-1-22 12:34
+
+鲤鱼这小粉丝
+
+*****
+
+####  stygian  
+##### 4558#       发表于 2022-1-22 12:36
+
+插个场外
+
+キ ャ ラ 固 定<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/22/123648vcuvzxe64v6cys2u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 12:36 上传
+
+*****
+
+####  lj205  
+##### 4559#       发表于 2022-1-22 12:43
+
+Emi居然会说三角龙的中文
+
+*****
+
+####  stygian  
+##### 4560#       发表于 2022-1-22 12:44
+
+这啥节目啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 4561#       发表于 2022-1-22 12:45
+
+青山：学狗叫不喊我
+

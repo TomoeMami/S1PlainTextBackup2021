@@ -17923,3 +17923,26 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 这几天私下复建还打了个双锤出来<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 7487#       发表于 2022-1-22 12:27
+
+难得单人同接上了三万，游戏民数字民狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 7488#       发表于 2022-1-22 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先吃一鸡庆祝下apex复活
+
+*****
+
+####  猫南北  
+##### 7489#       发表于 2022-1-22 12:31
+
+第一局排位就少人~
+
