@@ -15068,3 +15068,31 @@ rrm最近播valo的同接都好高
 
 残り2ヶ月と少しの間、最後の日まで全力で活動していきますので、最後までナギナミを応援していただけますと幸いです。
 
+
+
+*****
+
+####  winda  
+##### 10304#       发表于 2022-1-22 11:34
+
+<blockquote>[#こっどふぇす](https://twitter.com/hashtag/%E3%81%93%E3%81%A3%E3%81%A9%E3%81%B5%E3%81%87%E3%81%99?src=hashtag_click) 本日18時開祭<img src="https://abs-0.twimg.com/emoji/v2/svg/2764-fe0f-200d-1f525.svg" height="1" id="aimg_Isb2S" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)<img src="https://abs-0.twimg.com/emoji/v2/svg/1f969.svg" height="1" id="aimg_aGOf5" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)カワセさんチームは一部のメンバーが体調不良のため、大事を取って参加を見送り<img src="https://abs-0.twimg.com/emoji/v2/svg/1f440.svg" height="1" id="aimg_gnVtZ" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)代わりに、Ak1to([@Ak1to_JP](https://twitter.com/Ak1to_JP)
+)さんチームが新たに参加<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="1" id="aimg_Zm9rG" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)急遽ご参加ありがとうございます<img src="https://abs-0.twimg.com/emoji/v2/svg/263a.svg" height="1" id="aimg_hyrZz" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)その他、全チームの参加メンバーが確定<img src="https://abs-0.twimg.com/emoji/v2/svg/1f44d.svg" height="1" id="aimg_CIKJU" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)本配信URL<img src="https://abs-0.twimg.com/emoji/v2/svg/1f447.svg" height="1" id="aimg_DPc2I" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)[https://youtu.be/KKU0n0ckPWs](https://t.co/2HZDwoKmZA)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/22/113220xuyuuy46guo6gvk3.jpg" referrerpolicy="no-referrer">
+
+<strong>FJi5QyEacAUAS1H.jpg</strong> (788.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/113229rhn266s6kn2ennh6.jpg" referrerpolicy="no-referrer">
+
+<strong>FJrA3mEacAAQbsb.jpg</strong> (796.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 11:32 上传
+
+kawase这一队4个人全换了啊,这里面kinako和soraru是发烧，但pcr阴性，bobsappaim是阳性
+
