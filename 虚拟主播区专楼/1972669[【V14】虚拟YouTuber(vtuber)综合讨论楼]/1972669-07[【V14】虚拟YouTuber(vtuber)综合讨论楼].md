@@ -15118,3 +15118,24 @@ kawase这一队4个人全换了啊,这里面kinako和soraru是发烧，但pcr阴
 
 まりなす「奏天まひろ」無期限活動休止のお知らせ
 
+
+
+*****
+
+####  fastary  
+##### 10307#       发表于 2022-1-22 14:20
+
+我现在越发觉得他原本真的打算剧情结束就毕业了……
+
+看起来好像完成代表作的长篇系列以后陷入瓶颈暂时封笔的作家(比划)
+
+虽然听起来可能有点kimo，不过我有时真会觉得这人当v难道不是为了赚钱不是作为工作而是真的想vtb这一形式的内容创作者，但自身才华又配不上此等心气<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/22/140210o52v3ompjrpjimei.jpg" referrerpolicy="no-referrer">
+
+<strong>9eab0af2cb5c511.jpg</strong> (167.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 14:02 上传
+
