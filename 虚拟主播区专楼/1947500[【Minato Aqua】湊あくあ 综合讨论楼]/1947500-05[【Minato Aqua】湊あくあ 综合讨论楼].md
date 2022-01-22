@@ -18032,3 +18032,12 @@ lol没数字，最多联动，否则肯定吃独食，现在多少个版本没�
 
 角色控制、aim、战况判断全方面的比以前也强太多了吧，这不是私下经常在打AP，而是私下经常在有计划的锻练AP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Scardy  
+##### 7500#       发表于 2022-1-22 23:09
+
+明天中午继续派<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

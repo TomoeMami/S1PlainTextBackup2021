@@ -15232,3 +15232,22 @@ V.W.Pメンバーによる対バンライブ「魔女集会」JOINT  LIVE(4/15
 
 裸春线下全团live，4.1516连开两天
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10315#       发表于 2022-1-22 23:06
+
+<img src="https://img.saraba1st.com/forum/202201/22/230015itlltyydztmdqoly.png" referrerpolicy="no-referrer">
+
+<strong>Siska Leontyne 【NIJISANJI ID】.png</strong> (85.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 23:00 上传
+
+Siska10w了，虹ID第二枚银盾，Taka也9.6W了，真不容易<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"> 
+
+Mika和Bobon高强度联EN也涨了不少
+
