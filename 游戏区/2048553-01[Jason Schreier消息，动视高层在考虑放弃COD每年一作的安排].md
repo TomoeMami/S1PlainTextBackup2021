@@ -593,3 +593,17 @@ T组跟IW组都不是一个节奏，一个T组新作 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  捧读小见川  
+##### 67#       发表于 2022-1-22 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54387958&amp;ptid=2048553" target="_blank">Ashice 发表于 2022-1-22 09:38</a>
+
+欧美服务型游戏要的不就是年货加每年都要花钱买一次吗，难道现在的cod不是服务型游戏?
+
+—— 来自 S1Fun ...</blockquote>
+肯定不算，这几个COD又不能匹配到一起，
+
