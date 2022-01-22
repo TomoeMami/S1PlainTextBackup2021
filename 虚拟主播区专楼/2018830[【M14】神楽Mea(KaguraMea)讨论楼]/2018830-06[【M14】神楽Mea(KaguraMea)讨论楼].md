@@ -3271,3 +3271,16 @@ syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
 
 - - 日本人打小钢珠很普通的
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 7880#       发表于 2022-1-22 16:51
+
+ 本帖最后由 璃絵和花瑠 于 2022-1-22 16:52 编辑 
+
+这作者自己其实没什么管人浓度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
