@@ -3284,3 +3284,14 @@ syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
 
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  路人庚  
+##### 7881#       发表于 2022-1-22 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏女主直播数字涨的飞快，就在这种状态都会随随便便心理压力爆炸
+
+只能说就这水平比你咩姐差了几百个华来士，也就是那么几个梗能跟你咩姐对上，但也仅此而已了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

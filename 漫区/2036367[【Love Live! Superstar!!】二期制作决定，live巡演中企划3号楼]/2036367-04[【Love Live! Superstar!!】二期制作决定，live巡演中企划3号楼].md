@@ -901,3 +901,64 @@ liyuu前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 R3这舞台设计这过场动画这衣服细节，星团真是寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4577#       发表于 2022-1-22 17:30
+
+星团只有OP服的质量过关，wish song也行但是鞋子和手套质量不行。其它的质量实在一言难尽
+
+*****
+
+####  仟音一心  
+##### 4578#       发表于 2022-1-22 17:45
+
+华丽
+
+6B01DF4D-43BD-451B-8DC1-F70109CE35AC.jpeg
+(89.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512qsa5s1w61cc39f56.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E922C1FF-0685-4FB1-85B6-E39537F1B464.jpeg
+(196.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512nw2k9uw3732297zu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+640CE6BC-C93E-4817-BAD3-4E5C4FAB439C.jpeg
+(169.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512t86486an9ag8nkgs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1ECED101-CD1F-4A97-BDDF-CD9076B93F7A.jpeg
+(225.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512bmq4c4hd1e44emph.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+FD5E35CC-4289-42E7-A5D4-D38528DF8108.jpeg
+(202.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 17:45 上传
+
+<img src="https://img.saraba1st.com/forum/202201/22/174512w31x2ry2zjrkjdu9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
