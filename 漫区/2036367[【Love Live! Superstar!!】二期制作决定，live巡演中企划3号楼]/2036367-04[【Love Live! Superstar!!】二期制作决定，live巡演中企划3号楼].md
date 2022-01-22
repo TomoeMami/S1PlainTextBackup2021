@@ -1213,3 +1213,30 @@ l1.jpg
 之前大家都打趣唐家大小姐了，鲤鱼出生上海，初中还是高中都跑到日本玩Cos更是没什么黑料，不说大富之家中产肯定是没问题的啊。
 这个年纪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">假设把这个鞋子换成一个包包，一点波澜都不会有啊。
 
+
+
+*****
+
+####  lj205  
+##### 4595#       发表于 2022-1-22 21:56
+
+<img src="https://img.saraba1st.com/forum/202201/22/215541vf2gw9zzz8ao2sxa.png" referrerpolicy="no-referrer">
+
+<strong>6799638F-E98E-4200-9BDF-55F9972EF5F6.png</strong> (635.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-22 21:55 上传
+
+我还挺喜欢这身的
+
+*****
+
+####  lj205  
+##### 4596#       发表于 2022-1-22 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54394160&amp;ptid=2036367" target="_blank">a92063256 发表于 2022-1-22 20:40</a>
+没懂，你是不是少打字了 如果你是少打个要字，想要直签的话可以去代购店看看他们还有没有囤1+1或 ...</blockquote>
+你不是以为是to签吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+我开玩笑的，1+1和台历我早都买完了，也算是超话里比较早到货的那批人
+

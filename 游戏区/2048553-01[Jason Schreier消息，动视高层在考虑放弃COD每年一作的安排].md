@@ -630,3 +630,12 @@ T组跟IW组都不是一个节奏，一个T组新作 ...</blockquote>
 
 —— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  operatbig  
+##### 70#       发表于 2022-1-22 22:09
+
+遇上开发事故适当延迟发售日期就行，要是搞成2年一做甚至更久，那整个社区活力肯定大打折扣。
+
