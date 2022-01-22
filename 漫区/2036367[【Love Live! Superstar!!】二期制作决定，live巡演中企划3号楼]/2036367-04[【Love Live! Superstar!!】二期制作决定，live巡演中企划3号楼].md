@@ -892,3 +892,12 @@ liyuu前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">r3的场子真大，羡慕
 
+
+
+*****
+
+####  lj205  
+##### 4576#       发表于 2022-1-22 17:23
+
+R3这舞台设计这过场动画这衣服细节，星团真是寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
