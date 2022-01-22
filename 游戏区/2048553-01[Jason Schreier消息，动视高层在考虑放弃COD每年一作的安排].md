@@ -607,3 +607,14 @@ T组跟IW组都不是一个节奏，一个T组新作 ...</blockquote>
 —— 来自 S1Fun ...</blockquote>
 肯定不算，这几个COD又不能匹配到一起，
 
+
+
+*****
+
+####  l⑨th_Knight  
+##### 68#       发表于 2022-1-22 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就已经是3年的工期了，要不搞一年一作我要玩t组下一款cod那不是要等6年
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
