@@ -755,3 +755,19 @@ emi实质一直在救场
 
 5ch老哥：一股子emitn fight club味儿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4565#       发表于 2022-1-22 13:14
+
+Emi辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4566#       发表于 2022-1-22 13:16
+
+liyuu前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
