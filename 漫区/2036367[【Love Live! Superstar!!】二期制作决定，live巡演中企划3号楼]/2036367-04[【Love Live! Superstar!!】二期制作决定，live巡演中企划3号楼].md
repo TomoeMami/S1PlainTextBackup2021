@@ -726,3 +726,32 @@ Emi居然会说三角龙的中文
 
 青山：学狗叫不喊我
 
+
+
+*****
+
+####  stygian  
+##### 4562#       发表于 2022-1-22 12:51
+
+ 本帖最后由 stygian 于 2022-1-22 12:53 编辑 
+
+怎么又要哭了
+
+emi实质一直在救场
+
+可以，最后一个boke很好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4563#       发表于 2022-1-22 12:56
+
+今天这个完全是节目为鲤鱼办的专属一对一偶像见面会，算是节目给鲤鱼的生日礼物
+
+*****
+
+####  stygian  
+##### 4564#       发表于 2022-1-22 12:59
+
+5ch老哥：一股子emitn fight club味儿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
