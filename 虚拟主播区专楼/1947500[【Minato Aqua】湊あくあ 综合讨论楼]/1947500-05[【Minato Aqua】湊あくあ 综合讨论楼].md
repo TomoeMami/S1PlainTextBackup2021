@@ -18014,3 +18014,12 @@ live前有个吉尔时间去练apex。等一个apex直播被自己菜哭
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那lol什么的，可以整吗
 
+
+
+*****
+
+####  面具13  
+##### 7498#       发表于 2022-1-22 17:47
+
+lol没数字，最多联动，否则肯定吃独食，现在多少个版本没碰了都不知道
+

@@ -5470,3 +5470,14 @@ One in nine recent virus cases in Israel are ...</blockquote>
 
 但其他一些国家和专家对南非的情况表示谨慎，并指出南非较低人口年龄以及此前疫情中获得的较高自然免疫力或许是其疫情影响较轻的原因。
 
+
+
+*****
+
+####  pushare  
+##### 3428#       发表于 2022-1-22 17:58
+
+仓鼠传播链条
+
+<img src="https://p.sda1.dev/4/3f350579f265ec09eb41dd325321ed66/IMG_CMP_260132324.jpeg" referrerpolicy="no-referrer">
+
