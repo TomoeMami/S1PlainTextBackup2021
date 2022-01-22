@@ -569,3 +569,27 @@ XGP到底怎么分钱的？怎么这些工作室一进了XGP好像就不用靠�
 
 T组跟IW组都不是一个节奏，一个T组新作等三年？
 
+
+
+*****
+
+####  Moritaka  
+##### 65#       发表于 2022-1-22 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54387814&amp;ptid=2048553" target="_blank">Exm842 发表于 2022-1-22 09:15</a>
+这论坛的人是没玩过COD还是怎样？半年暗物质都肝完了不等新作等什么
+
+T组跟IW组都不是一个节奏，一个T组新作 ...</blockquote>
+卧槽，842菊苣出狱了！恭迎842菊苣<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ashice  
+##### 66#       发表于 2022-1-22 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54377743&amp;ptid=2048553" target="_blank">捧读小见川 发表于 2022-1-21 12:52</a>
+反正COD每一作PVP玩起来都那味，挑一作最受欢迎的做成服务型游戏不好吗 ...</blockquote>
+欧美服务型游戏要的不就是年货加每年都要花钱买一次吗，难道现在的cod不是服务型游戏?
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
