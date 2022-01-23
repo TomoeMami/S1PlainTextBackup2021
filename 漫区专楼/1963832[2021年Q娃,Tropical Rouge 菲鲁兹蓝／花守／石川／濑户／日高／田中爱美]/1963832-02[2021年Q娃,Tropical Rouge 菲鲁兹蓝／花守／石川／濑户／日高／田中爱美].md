@@ -13261,3 +13261,23 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 这个必杀我觉得比较可惜的点就是两个戒指结果是一个人使用化妆盒，画个新画面啊喂！
 
+
+
+*****
+
+####  haojie_ma  
+##### 2504#       发表于 2022-1-23 19:35
+
+这鬼畜的最终大招，让我想到了Cyriak的视频
+
+看预告，萝拉记忆的问题，是不是留在陆地上这事就算过去了？
+
+*****
+
+####  adsn  
+##### 2505#       发表于 2022-1-23 19:41
+
+可恶，为什么之前电影联动的时候没有抓心跟热Q一起开大<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+为什么联动电影要出的那么早<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
