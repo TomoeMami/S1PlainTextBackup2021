@@ -2011,3 +2011,13 @@ https://item.rakuten.co.jp/kaneshiro2021/q2106llt3 ...</blockquote>
 要不是现在疫情麻烦点，海淘中国比在日本买便宜多了啊。淘宝店里写的是原创，突然感觉这小牌子挺牛逼了[f ...</blockquote>
 之前就有新闻爆出来某艺能人品牌买淘宝货当自家货在日本卖
 
+
+
+*****
+
+####  lj205  
+##### 4663#       发表于 2022-1-23 23:46
+
+前面潭友昵称和留言内容没对上的问题破案了，只能说相当郁闷啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+不过能被读到也不错了
+
