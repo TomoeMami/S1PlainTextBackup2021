@@ -18,3 +18,12 @@
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Yukimi7  
+##### 7503#       发表于 2022-1-23 09:09
+
+夸昨天恰了会儿独食，现在已经白金二了
+
