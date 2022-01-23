@@ -1111,3 +1111,13 @@ Gura和Mumei声音确实像，最近一段时间最有意思的rrat就是Mumei�
 
 mumei说话喜欢咬牙，这是区别
 
+
+
+*****
+
+####  shimmy1996  
+##### 1606#       发表于 2022-1-23 19:59
+
+Ame说buffson/动捕3d从2020年底就开始筹划，过了一年多到到最近才集齐所有需要的东西。动捕服应该是她自己弄的吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">zatsudan ame is cuter than usual
+
