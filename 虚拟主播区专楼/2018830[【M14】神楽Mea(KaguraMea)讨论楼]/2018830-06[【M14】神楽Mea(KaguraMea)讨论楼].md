@@ -3304,3 +3304,19 @@ syl，激昂辣酱太草了，你麻居然提pc版mhr了，这是要玩嘛
 
 那你把100W放缩成1W不就好了 数字而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TomDu  
+##### 7883#       发表于 2022-1-23 16:53
+
+这几天都不怎么动<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rosevalley46  
+##### 7884#       发表于 2022-1-23 16:58
+
+感觉摸了很久了,但看了下直播频率还行,就是lol多了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

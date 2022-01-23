@@ -12848,3 +12848,12 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  zore  
+##### 86738#       发表于 2022-1-23 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有一键领取实属fw
+
