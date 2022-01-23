@@ -13290,3 +13290,12 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 解决的还是太快，而且这死法有些惨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kerfars  
+##### 2507#       发表于 2022-1-23 20:41
+
+就看下一集怎么处理萝拉的问题，看萝拉怎么选了
+
