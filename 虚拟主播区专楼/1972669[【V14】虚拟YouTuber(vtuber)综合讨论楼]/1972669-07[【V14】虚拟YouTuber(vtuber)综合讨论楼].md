@@ -15471,3 +15471,25 @@ mysta在国内的风评是不是产生了微妙的变化
 
 三周年fes还有接力两天有各种liver参与的各种纪念节目(直播联动)呢，怎么四周年按计划举行的目前也只有16人live、神七企划和15人周边，难道说年前后那些大型联动也是四周年纪念活动的一环吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10332#       发表于 2022-1-23 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54404502&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-23 20:44</a>
+为什么你虹4周年纪念主题的谷子还要只挑15个人出啊，真就狼性企业呗
+
+不过反正柄图一言难尽，也无所 ...</blockquote>
+这才第一阵，别急啊
+
+另外我见过的百人（全员）谷大概也就灰姑娘出过一次，还有就是one piece的超级毒池吧，挑人出谷才是正常的
+
+*****
+
+####  IDIDIDID  
+##### 10333#       发表于 2022-1-23 21:18
+
+公式一军不上新任sc王上鲨鱼妹疑似是架在火上烤了
+
