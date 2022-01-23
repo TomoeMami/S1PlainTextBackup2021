@@ -15538,3 +15538,61 @@ mysta在国内的风评是不是产生了微妙的变化
 
 虽然很不厚道但我的评价是多混，还能减价<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10337#       发表于 2022-1-23 21:42
+
+ 本帖最后由 fastary 于 2022-1-23 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405123&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-1-23 21:37</a>
+
+三周年Fes跟在热门男v粉后面捡漏收女v简直美滋滋，gamers女很容易入手，世怜女我也凑了一套
+
+虽然很不厚 ...</blockquote>
+你知道我平时除了虹楼和黛灰切片评论栏以外在各个sns平台都没见过几个活的黛推，结果出了抽选周边看一圈谷群开的团都不剩黛灰位的痛吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  alcoholic1000  
+##### 10338#       发表于 2022-1-23 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405159&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-23 21:42</a>
+
+你知道我平时除了虹楼和黛灰切片评论栏以外在各个sns平台都没见过几个活的黛推，结果出了抽选周边看一圈谷 ...</blockquote>
+看了一眼黑客池子只有谢林和他两个男v，感觉不好收，单推人不容易
+
+（顺便知道我的便宜エリー噗徽章怎么来的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 1|呜呜呜|
+
+查看全部评分
+
+*****
+
+####  noHentai  
+##### 10339#       发表于 2022-1-23 21:53
+
+这冬之阵不是每年都有么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -378,3 +378,41 @@ v87真的是
 
 前两个半小时在白金段位，上了900分。后面在钻石一个小时只上了100多分<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  面具13  
+##### 7547#       发表于 2022-1-23 21:45
+
+ 本帖最后由 面具13 于 2022-1-23 21:47 编辑 
+
+“诶？这个是可以发表的吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又一首原创曲，有钱啊。IOSYS啊
+
+*****
+
+####  离魂仙  
+##### 7548#       发表于 2022-1-23 21:49
+
+ 本帖最后由 离魂仙 于 2022-1-23 21:57 编辑 
+
+あくたんのこと好きすぎ<strong>☆</strong>ソング
+
+对症下药搞洗脳曲，目标是tiktok蓝海吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">油土鳖，你的播放老子不要了
+
+我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">没有火的要素
+
+*****
+
+####  面具13  
+##### 7549#       发表于 2022-1-23 21:50
+
+想唱，但是被拦了。现在听，你不要播放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7550#       发表于 2022-1-23 21:53
+
+电脑连歌都放不了？50包邮收了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
