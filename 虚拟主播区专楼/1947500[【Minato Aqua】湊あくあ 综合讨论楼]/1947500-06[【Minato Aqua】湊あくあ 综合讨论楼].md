@@ -27,3 +27,19 @@
 
 夸昨天恰了会儿独食，现在已经白金二了
 
+
+
+*****
+
+####  面具13  
+##### 7504#       发表于 2022-1-23 12:08
+
+君の帧数 not good
+
+*****
+
+####  Scardy  
+##### 7505#       发表于 2022-1-23 12:13
+
+l2d卡爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
