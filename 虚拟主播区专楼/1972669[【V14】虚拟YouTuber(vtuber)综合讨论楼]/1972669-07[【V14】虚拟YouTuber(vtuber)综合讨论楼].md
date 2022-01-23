@@ -15282,3 +15282,15 @@ Mika和Bobon高强度联EN也涨了不少
 
 慢报：你虹二姐换人了。
 
+
+
+*****
+
+####  FCCHua  
+##### 10319#       发表于 2022-1-23 09:47
+
+ 本帖最后由 FCCHua 于 2022-1-23 09:53 编辑 
+
+胡桃明显就是在故意玩啊，正好kmt还是个阿宅，逗起来可太简单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最近管他叫黑白头的露娜更是来势汹汹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
