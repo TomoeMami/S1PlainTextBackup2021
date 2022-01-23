@@ -1987,3 +1987,27 @@ https://item.rakuten.co.jp/kaneshiro2021/q2106llt388/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这估计都是工作提供
 
+
+
+*****
+
+####  cat1230  
+##### 4661#       发表于 2022-1-23 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405669&amp;ptid=2036367" target="_blank">二月十日 发表于 2022-1-23 22:19</a>
+
+日本也有得卖的，但价格是这边的两倍都不止
+
+https://item.rakuten.co.jp/kaneshiro2021/q2106llt3 ...</blockquote>
+要不是现在疫情麻烦点，海淘中国比在日本买便宜多了啊。淘宝店里写的是原创，突然感觉这小牌子挺牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4662#       发表于 2022-1-23 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54406233&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-23 23:11</a>
+
+要不是现在疫情麻烦点，海淘中国比在日本买便宜多了啊。淘宝店里写的是原创，突然感觉这小牌子挺牛逼了[f ...</blockquote>
+之前就有新闻爆出来某艺能人品牌买淘宝货当自家货在日本卖
+
