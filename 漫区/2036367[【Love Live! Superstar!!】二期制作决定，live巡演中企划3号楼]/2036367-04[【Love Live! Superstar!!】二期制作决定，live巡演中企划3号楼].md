@@ -1978,3 +1978,12 @@ https://item.rakuten.co.jp/kaneshiro2021/q2106llt388/
 没收到邮件，看来签名抽选是寄了怎么感觉全世界就我没中了</blockquote>
 我也没中，还好我从不相信自己的运气，直接买了yahoo的必签套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 4660#       发表于 2022-1-23 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这估计都是工作提供
+
