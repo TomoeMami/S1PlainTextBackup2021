@@ -12887,3 +12887,12 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后帖子很快就锁了
 
+
+
+*****
+
+####  khxooo  
+##### 86742#       发表于 2022-1-24 01:39
+
+锁了还行，连批判都不给，菌皇就是菌皇，面子真大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
