@@ -12818,3 +12818,22 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按这动画第二部剧情开场咕哒没一拳把卡多克打死应该是手下留情了
 
+
+
+*****
+
+####  alucardcz  
+##### 86735#       发表于 2022-1-23 14:41
+
+这活动怎么还有9天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 86736#       发表于 2022-1-23 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54400715&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-23 14:41</a>
+
+这活动怎么还有9天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每天上线一次打三次自由本轻松毕业活动
+
