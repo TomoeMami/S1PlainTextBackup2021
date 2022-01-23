@@ -601,3 +601,40 @@ ps5上的原神听说性能好的一比秒加载？</blockquote>
 
 — from Google Pixel 6, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  庸necro  
+##### 67#       发表于 2022-1-24 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54406055&amp;ptid=2048938" target="_blank">hypnossz86 发表于 2022-1-23 22:52</a>
+还有pc都没有的独占体积云呢</blockquote>
+索尼应该是给原神在国外发行帮了不小忙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  时代广场蟋蟀  
+##### 68#       发表于 2022-1-24 03:52
+
+马上回重庆了好慌<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+原神在重庆确实火，国庆回家顺便看了眼本地漫展全是原神。。。
+
+*****
+
+####  不热爱讨论  
+##### 69#       发表于 2022-1-24 04:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405453&amp;ptid=2048938" target="_blank">miao123177 发表于 2022-1-23 22:03</a>
+狗屎配狗屎 SONY是脑抽了搞这个 真不知道自己客户群体是什么吗</blockquote>
+你是对ps上最赚钱的游戏有什么误解？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刘清  
+##### 70#       发表于 2022-1-24 05:44
+
+我靠("▔㉨▔) 跨个火盆.jpg
+

@@ -1121,3 +1121,12 @@ mumei说话喜欢咬牙，这是区别
 Ame说buffson/动捕3d从2020年底就开始筹划，过了一年多到到最近才集齐所有需要的东西。动捕服应该是她自己弄的吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">zatsudan ame is cuter than usual
 
+
+
+*****
+
+####  shimmy1996  
+##### 1607#       发表于 2022-1-24 01:53
+
+yagoo on EN vrchat collab(s): アメリアさんは本当にすごいだなって思ってます。可能性を感じます <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

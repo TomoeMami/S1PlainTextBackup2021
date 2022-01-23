@@ -13308,3 +13308,30 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 我还以为能打个几百回合，结果两分钟完事了，确实遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  钱君  
+##### 2509#       发表于 2022-1-24 02:25
+
+ 本帖最后由 钱君 于 2022-1-24 02:44 编辑 
+
+Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/24/022441coj912f1z1691so9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>R-C (8).jpeg</strong> (255 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 02:24 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/023123jxq5przxpdzybvzp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220124-022813.jpg</strong> (276.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 02:31 上传
+
