@@ -15493,3 +15493,48 @@ mysta在国内的风评是不是产生了微妙的变化
 
 公式一军不上新任sc王上鲨鱼妹疑似是架在火上烤了
 
+
+
+*****
+
+####  fastary  
+##### 10334#       发表于 2022-1-23 21:25
+
+ 本帖最后由 fastary 于 2022-1-23 21:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54404695&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2022-1-23 21:00</a>
+
+这才第一阵，别急啊
+
+另外我见过的百人（全员）谷大概也就灰姑娘出过一次，还有就是one piece的超级毒池 ...</blockquote>
+也不知道最后能有几阵……
+
+有一说一，三周年fes周边还真出了12张多人视觉图把全员出完了甚至带了分社12人玩，图也好看<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+虽然我看上的周边全是大毒池抽选卖法所以最后没买<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 10335#       发表于 2022-1-23 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54404974&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-23 21:25</a>
+也不知道最后能有几阵……
+
+有一说一，三周年fes周边还真出了12张多人视觉图把全员出完了甚至带了分社12人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以等后续呗，一回出完不可能的嘛
+不过后续还是这个柄（大概率）的话我会吐
+
+*****
+
+####  alcoholic1000  
+##### 10336#       发表于 2022-1-23 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54404974&amp;ptid=1972669" target="_blank">fastary 发表于 2022-1-23 21:25</a>
+
+也不知道最后能有几阵……
+
+有一说一，三周年fes周边还真分了大概七八个大池把全员出完了甚至带了分社玩， ...</blockquote>
+三周年Fes跟在热门男v粉后面捡漏收女v简直美滋滋，gamers女很容易入手，世怜女我也凑了一套
+
+虽然很不厚道但我的评价是多混，还能减价<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

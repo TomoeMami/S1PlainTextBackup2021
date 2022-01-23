@@ -8426,3 +8426,19 @@ https://b23.tv/4fZ6tlW
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  青龙圣者  
+##### 634#       发表于 2022-1-23 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54402941&amp;ptid=2043629" target="_blank">雷囧羊 发表于 2022-1-23 18:11</a>
+
+原谅我直到今天才看剧场版
+
+看完直接进入了燃烧殆尽的贤者模式
+
+南京有没有可能组织线下放映啊</blockquote>
+南京早就放完了...
+
