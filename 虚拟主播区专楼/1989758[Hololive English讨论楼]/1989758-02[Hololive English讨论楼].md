@@ -1076,3 +1076,18 @@ ame推91 拉97 然后难度1
 
 irys声带发炎歇至少一周 ina严重咳嗽也要休息 gura之前把背伤了 mori过劳而且要去做手术 多灾多难了属于是
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1603#       发表于 2022-1-23 16:04
+
+Ame: the ookami blues mv needs to be reworked due to its scenes are too similar to what's in the anime 到底版权方脑子有屎还是cover脑子有屎
+
+It's not like the VR stuff, more like suits Cover给他们一人发了一套动捕服？
+
+I feel like i'm not giving my best streams in the past few months 呜呜呜
+
+syl: calli把自己整炎上了
+
