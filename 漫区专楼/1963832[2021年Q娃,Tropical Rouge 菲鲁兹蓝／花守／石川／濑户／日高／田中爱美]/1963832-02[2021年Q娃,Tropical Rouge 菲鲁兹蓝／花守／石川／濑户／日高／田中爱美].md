@@ -13206,3 +13206,22 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 同样是变出一个女人，怎么这次的这么鬼畜呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2498#       发表于 2022-1-23 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54400081&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2022-1-23 13:33</a>
+
+修正前原画和成品。芳山是真的画嗨了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话原画有点恶人颜
+
+*****
+
+####  暗黑能乐  
+##### 2499#       发表于 2022-1-23 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传Q那个太鬼畜了，让人忍不住笑出声。所以传Q和魔女是死后升入热带天堂了吗（
+
