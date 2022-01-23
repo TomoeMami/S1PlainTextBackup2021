@@ -15314,3 +15314,72 @@ Mika和Bobon高强度联EN也涨了不少
 
 mysta在国内的风评是不是产生了微妙的变化
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10322#       发表于 2022-1-23 17:15
+
+被卡掉的重大披露：
+
+にじさんじ4周年・冬の大型企画
+
+「にじさんじ冬の陣2022」開催！
+
+4周年を飾る豪華企画をご用意！
+
+本日、その＜第一陣＞を公開！
+
+<img src="https://img.saraba1st.com/forum/202201/23/171142osl5fafgmjn9ubfb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【「にじさんじ冬の陣2022」開催決定！！】.jpeg</strong> (324.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-23 17:11 上传
+
+■ ①「にじさんじのくじじゅうじ」一夜限りの復活！
+
+2018〜2019年に掛けて放送された人気番組「にじさんじのくじじゅうじ」が、一夜限りで復活！
+
+日時：2/3(木) 21:00～
+
+出演：タイムマシーン3号、家長むぎ、える、剣持刀也、静凛、樋口楓、月ノ美兎、物述有栖
+
+<img src="https://img.saraba1st.com/forum/202201/23/171245lcm930spde1mmc5e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>「にじさんじのくじじゅうじ」.jpeg</strong> (353.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-23 17:12 上传
+
+■ ②「にじさんじ 4th ANNIVERSARYフェア in animate」開催！
+
+様々なにじさんじ4周年記念グッズを発売！
+
+#にじストア およびアニメイト通販では2/5(土)10時〜、アニメイト各店舗では同日開店時間より販売開始！
+
+また、アニメイトフェアおよびオンリーショップを開催！
+
+<img src="https://img.saraba1st.com/forum/202201/23/171333rr5vmy20ogjzryyr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>「にじさんじ 4th ANNIVERSARYフェア in animate」.jpeg</strong> (331.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-23 17:13 上传
+
+なお、にじさんじ 4th Anniversaryイラストは、Yostar Pictures様（ @YostarPictures ）に制作いただきました。
+
+また、各企画の詳細は、明日1/24(月)にプレスリリースにて公開予定！
+
+公式Twitterでもお伝えいたします！！
+
+<strong>
+
+1.神七限定复活
+
+2.官定一军出周边（悠星制作）</strong>
+
