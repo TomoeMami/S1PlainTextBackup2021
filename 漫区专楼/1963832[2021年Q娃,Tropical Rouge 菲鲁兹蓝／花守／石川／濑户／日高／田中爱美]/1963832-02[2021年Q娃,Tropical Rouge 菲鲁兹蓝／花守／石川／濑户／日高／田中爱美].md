@@ -13161,3 +13161,13 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 —— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Cloudslin  
+##### 2494#       发表于 2022-1-23 13:33
+
+<img src="https://p.sda1.dev/4/548b2584f72c7673270683aa94658739/IMG_CMP_10101776.jpeg" referrerpolicy="no-referrer">
+修正前原画和成品。芳山是真的画嗨了。
+

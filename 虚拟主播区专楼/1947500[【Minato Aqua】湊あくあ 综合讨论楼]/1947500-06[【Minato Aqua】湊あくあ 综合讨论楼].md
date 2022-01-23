@@ -63,3 +63,57 @@ l2d卡爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png
 
 这把太强了，乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">铂金1了
 
+
+
+*****
+
+####  TiHaru  
+##### 7508#       发表于 2022-1-23 13:25
+
+为什么要给敖犬起外号啊
+
+*****
+
+####  面具13  
+##### 7509#       发表于 2022-1-23 13:27
+
+乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7510#       发表于 2022-1-23 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54399982&amp;ptid=1947500" target="_blank">TiHaru 发表于 2022-1-23 13:25</a>
+
+为什么要给敖犬起外号啊</blockquote>
+獒犬那个是直播梗，有次烫嘴说错了，看观众有反应就时不时拿出来玩一玩。
+
+*****
+
+####  面具13  
+##### 7511#       发表于 2022-1-23 13:34
+
+又是吃鸡的预感
+
+*****
+
+####  越动天下  
+##### 7512#       发表于 2022-1-23 13:37
+
+厉害厉害
+
+*****
+
+####  猫南北  
+##### 7513#       发表于 2022-1-23 13:39
+
+开播90分钟，吃了3把鸡。打白金如杀鸡。
+
+*****
+
+####  离魂仙  
+##### 7514#       发表于 2022-1-23 13:39
+
+舍己为人鸡，我又要湿了
+

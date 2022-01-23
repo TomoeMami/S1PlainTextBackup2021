@@ -1613,3 +1613,85 @@ GK的new romantic sailors这段远没有这么难看，下面的双爱趴着就�
 —— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
 昨天签名写错名字了，第二次错了。
 
+
+
+*****
+
+####  仟音一心  
+##### 4633#       发表于 2022-1-23 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54399905&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-23 13:18</a>
+是不是这个编舞喜欢有美国大学啦啦队情节？
+
+可千万别让她管星团的编舞，求求 ...</blockquote>
+和那个应该无关，这个叫组体操，是日本学校体育祭的传统保留节目。<img src="https://p.sda1.dev/4/a21e88636f070f45cafc1bcb8f4f2757/IMG_CMP_193588421.jpeg" referrerpolicy="no-referrer">
+从水团开始编舞的杂技式整活一直不少的（侧翻接后手翻与连续跳山羊之类），虹这么整还是第一次就是了。
+星应该没什么好担心的。
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 4634#       发表于 2022-1-23 13:32
+
+看了回放才发现念到我的留言了，但发现昵称不是，这玩意还能分开的么
+
+*****
+
+####  lj205  
+##### 4635#       发表于 2022-1-23 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54399933&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-23 13:21</a>
+昨天签名写错名字了，第二次错了。</blockquote>
+不是签名写错，是她发微博的时候把名字打成LIyuu，上一次则是写错写成Liyyu
+
+这妹妹连自己名字都这么随便<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4636#       发表于 2022-1-23 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54400066&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-23 13:32</a>
+看了回放才发现念到我的留言了，但发现昵称不是，这玩意还能分开的么</blockquote>
+你收到中签邮件了吗？没收到应该不是你。
+我昨天也听到一个跟我昵称几乎一摸一样发音的，不过我没收到中签邮件，所以应该是别人
+
+*****
+
+####  仟音一心  
+##### 4637#       发表于 2022-1-23 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54400087&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-23 13:34</a>
+不是签名写错，是她发微博的时候把名字打成LIyuu，上一次则是写错写成Liyyu
+
+这妹妹连自己名字都这么随便 ...</blockquote>
+好吧，签名直播我没看完，原来如此。
+毕竟是自己起的名，很正常了。
+
+*****
+
+####  优妮可  
+##### 4638#       发表于 2022-1-23 13:39
+
+ 本帖最后由 优妮可 于 2022-1-23 13:47 编辑 
+
+没邮件，我找得淘宝代购。
+
+Screenshot_20220123_131738.jpg
+(11.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-23 13:38 上传
+
+<img src="https://img.saraba1st.com/forum/202201/23/133835pjjoamjmkjdhts9p.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 4639#       发表于 2022-1-23 13:44
+
+鲤鱼的老腰守护了星团
+
