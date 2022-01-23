@@ -117,3 +117,62 @@ l2d卡爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png
 
 舍己为人鸡，我又要湿了
 
+
+
+*****
+
+####  越动天下  
+##### 7515#       发表于 2022-1-23 13:40
+
+哪个中国人在队里的 还发言的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 7516#       发表于 2022-1-23 13:41
+
+湾湾总统辣辣米，叠buff是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不公屏乳滑把直播间...哦已经没了
+
+*****
+
+####  saraba7th  
+##### 7517#       发表于 2022-1-23 13:46
+
+ 脆鲨p用没有<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7518#       发表于 2022-1-23 13:47
+
+b站没了真好啊，不用担惊受怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 7519#       发表于 2022-1-23 13:48
+
+v87真的是
+
+*****
+
+####  TiHaru  
+##### 7520#       发表于 2022-1-23 13:48
+
+“不想抛弃队友”
+她太团队了•̩̩̩́ ˑ̫ •̩̩̩̀
+
+*****
+
+####  IDIDIDID  
+##### 7521#       发表于 2022-1-23 13:49
+
+所以可以别做偶像梦了吗，哪条路容易🔥不是一看就懂吗
+
+*****
+
+####  离魂仙  
+##### 7522#       发表于 2022-1-23 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">两天纸尿裤就没脱下来过
+
