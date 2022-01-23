@@ -13139,3 +13139,14 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 之前依田爆出里马甲 被阴阳怪气一番 想想遥空 傻笑和心跳女主呀 只能说“时代变了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最强惠酱  
+##### 2492#       发表于 2022-1-23 12:58
+
+这集作画太劲了，结尾这么搞预告却是搞笑回，才留意到下集最终话，不舍啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
