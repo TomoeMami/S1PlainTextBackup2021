@@ -1102,3 +1102,12 @@ ARK KINO！整个一emotional rollercoaster。
 
 Gura和Mumei声音确实像，最近一段时间最有意思的rrat就是Mumei和Gura是同一人，同时出现的话就是pre-recorded
 
+
+
+*****
+
+####  nowaki  
+##### 1605#       发表于 2022-1-23 17:47
+
+mumei说话喜欢咬牙，这是区别
+

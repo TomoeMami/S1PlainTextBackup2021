@@ -15409,3 +15409,32 @@ mysta在国内的风评是不是产生了微妙的变化
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10326#       发表于 2022-1-23 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54402669&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2022-1-23 17:38</a>
+因为是德川方，杏只剩半年了
+这和悠星关系挺亲密的，是不是要联动啥，不过悠星旗下适合联动虹的就雀魂了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">如果单指日服的话，也许可以，舟
+
+*****
+
+####  真飞鸟i  
+##### 10327#       发表于 2022-1-23 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那虹人有福了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  渡鸦骑士  
+##### 10328#       发表于 2022-1-23 17:56
+
+这个logo我不知为啥想到的是天之杯……
+省一楼，悠星动画的实力现在不太够吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
