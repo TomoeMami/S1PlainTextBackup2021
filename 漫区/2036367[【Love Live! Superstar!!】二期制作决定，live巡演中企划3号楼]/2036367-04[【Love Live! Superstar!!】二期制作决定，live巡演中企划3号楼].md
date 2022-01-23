@@ -1829,3 +1829,21 @@ syl，5ch老哥的怪xp永远超乎我的想象<img src="https://static.saraba1s
 
 超次元祭居然跟马娘分别表演15分钟<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chenflyyy  
+##### 4649#       发表于 2022-1-23 19:15
+
+15分钟就3首歌吧，其他的都单独占一个时段，就星要和马分，搞不懂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4650#       发表于 2022-1-23 19:17
+
+星星的歌一般都3分多时长好像
+
+但是搞不懂两天只有星和马这样安排
+

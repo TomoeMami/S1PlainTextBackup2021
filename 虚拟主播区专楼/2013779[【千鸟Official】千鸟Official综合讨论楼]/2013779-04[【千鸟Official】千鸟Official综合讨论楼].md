@@ -6935,3 +6935,12 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 虽然书读的很一般，但晚安曲还是好的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 5223#       发表于 2022-1-23 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝快把主播女孩重度依赖玩成对话模拟器了
+
