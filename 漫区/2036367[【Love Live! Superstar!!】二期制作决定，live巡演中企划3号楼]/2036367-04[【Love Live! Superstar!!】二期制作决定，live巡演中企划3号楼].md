@@ -1719,3 +1719,26 @@ Screenshot_20220123_131738.jpg
 不知道了，我昨天听到喊我昵称那个发音的时候还特别兴奋呢，但是邮箱翻遍也没翻到中签邮件，所以就当是巧 ...</blockquote>
 等到货就知道了，反正念到了不亏。
 
+
+
+*****
+
+####  stygian  
+##### 4642#       发表于 2022-1-23 14:11
+
+缪水星的编舞是石川yumi，虹是g-rabby。
+
+编舞也是看发注要求的好吧，缪编的就偏简单，水团更靠近桃草那边的整活。昨天r3我和nga有位老哥看法差不多，多半是r3自己想整活才加进去的，也就玩两场的事，真不用这么一惊一乍的
+
+syl，5ch老哥的怪xp永远超乎我的想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202201/23/141155mjwwsk99xv1s45b6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-23 14:11 上传
+
+[http://lovelivematocha.com/blog-entry-31306.html](http://lovelivematocha.com/blog-entry-31306.html)
+
