@@ -8371,3 +8371,23 @@ https://b23.tv/4fZ6tlW
 
 一边听罗大佑光阴的故事一边脑补爱城华恋和神乐光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雷囧羊  
+##### 629#       发表于 2022-1-23 18:11
+
+原谅我直到今天才看剧场版
+看完直接进入了燃烧殆尽的贤者模式
+南京有没有可能组织线下放映啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MASKA-1  
+##### 630#       发表于 2022-1-23 18:25
+
+昨晚泛式直播几乎看了一遍原片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 瞒天过海了属于是
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
