@@ -308,3 +308,37 @@ v87真的是
 
 下把如果进前三或者-48就结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梅斯之围  
+##### 7539#       发表于 2022-1-23 15:27
+
+上钻石就脑死了。好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 7540#       发表于 2022-1-23 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这队友
+
+*****
+
+####  面具13  
+##### 7541#       发表于 2022-1-23 15:37
+
+ 本帖最后由 面具13 于 2022-1-23 15:39 编辑 
+
+还行吧，差点灭队总算救回一个，还前三了，估计没了。
+
+卧槽，奶出鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7542#       发表于 2022-1-23 15:39
+
+怎么吃了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

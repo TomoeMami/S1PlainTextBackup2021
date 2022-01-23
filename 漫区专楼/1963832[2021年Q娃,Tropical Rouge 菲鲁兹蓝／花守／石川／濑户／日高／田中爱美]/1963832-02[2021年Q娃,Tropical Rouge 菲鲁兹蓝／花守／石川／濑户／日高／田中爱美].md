@@ -13180,3 +13180,20 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 [https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4728751003730006?from=old_pc_videoshow)
 
+
+
+*****
+
+####  leleq  
+##### 2496#       发表于 2022-1-23 15:35
+
+打斗的作画上来了（嗨起来了） 召唤大招麻衣笑死了 三干部mvp<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+法老王 外星人睡袋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏夏那是海葵？
+
+今年重点不在打斗boss基本就是个过程 真正重要的是和大家一起的时间 最后最重要的小两口的归宿放在了最后一集 这点有点像法Q 不过基调欢乐多了
+
+感觉夏夏和罗拉要过几年远距离恋爱的日子了
+
+最后真·摸鱼怪之王粉海豹
+
