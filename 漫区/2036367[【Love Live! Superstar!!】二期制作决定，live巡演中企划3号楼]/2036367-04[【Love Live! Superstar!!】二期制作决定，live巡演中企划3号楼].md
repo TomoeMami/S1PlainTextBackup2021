@@ -1569,3 +1569,47 @@ l1.jpg
 
 莫名其妙整个line live，买了专还看不了，郁闷
 
+
+
+*****
+
+####  仟音一心  
+##### 4629#       发表于 2022-1-23 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54394719&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-1-22 21:19</a>
+可能是编舞的爱好？GK好像也搞过类似东西</blockquote>
+GK的new romantic sailors这段远没有这么难看，下面的双爱趴着就行不需要露脸唱歌，只要上面的逢田姐放完灭世波就结束了。<img src="https://p.sda1.dev/4/f2147bb2a6ba0b03f7e5ed8ec3c88bb3/IMG_CMP_233742233.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR RNA-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  一个陆仁贾  
+##### 4630#       发表于 2022-1-23 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54398935&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-23 11:30</a>
+气得亲自出警</blockquote>
+有没有前情提要
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  lj205  
+##### 4631#       发表于 2022-1-23 13:18
+
+是不是这个编舞喜欢有美国大学啦啦队情节？
+
+可千万别让她管星团的编舞，求求
+
+*****
+
+####  仟音一心  
+##### 4632#       发表于 2022-1-23 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54399894&amp;ptid=2036367" target="_blank">一个陆仁贾 发表于 2022-1-23 13:17</a>
+有没有前情提要
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+昨天签名写错名字了，第二次错了。
+

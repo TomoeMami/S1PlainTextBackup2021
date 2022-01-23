@@ -13150,3 +13150,14 @@ lumiere到底是本名和q娃称号都没有搞清楚的和服前辈
 
 —— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  最强惠酱  
+##### 2493#       发表于 2022-1-23 13:16
+
+话说现在还有什么能看周日朝转播的地方吗？
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

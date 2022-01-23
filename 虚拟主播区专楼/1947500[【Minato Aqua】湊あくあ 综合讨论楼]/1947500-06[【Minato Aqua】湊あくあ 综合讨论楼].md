@@ -54,3 +54,12 @@ l2d卡爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png
 
 这把能鸡，吃鸡了，2k2伤，carry了一把
 
+
+
+*****
+
+####  乌鸦绅士  
+##### 7507#       发表于 2022-1-23 13:19
+
+这把太强了，乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">铂金1了
+
