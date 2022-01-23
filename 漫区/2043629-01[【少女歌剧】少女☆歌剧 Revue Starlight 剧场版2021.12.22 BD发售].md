@@ -8391,3 +8391,26 @@ https://b23.tv/4fZ6tlW
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  JustW  
+##### 631#       发表于 2022-1-23 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54403065&amp;ptid=2043629" target="_blank">MASKA-1 发表于 2022-1-23 18:25</a>
+昨晚泛式直播几乎看了一遍原片 瞒天过海了属于是
+
+  -- 来自 能手机投票的 Stage1官方 Android客户 ...</blockquote>
+把revue切片全播了一遍（指正）
+
+*****
+
+####  MASKA-1  
+##### 632#       发表于 2022-1-23 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54403149&amp;ptid=2043629" target="_blank">JustW 发表于 2022-01-23 18:34:57</a>
+把revue切片全播了一遍（指正）</blockquote>两小时的切片，挑了点看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
