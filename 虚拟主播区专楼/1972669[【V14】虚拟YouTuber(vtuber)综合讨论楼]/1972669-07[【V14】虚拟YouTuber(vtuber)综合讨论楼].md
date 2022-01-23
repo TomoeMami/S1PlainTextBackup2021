@@ -15383,3 +15383,29 @@ mysta在国内的风评是不是产生了微妙的变化
 
 2.官定一军出周边（悠星制作）</strong>
 
+
+
+*****
+
+####  FCCHua  
+##### 10323#       发表于 2022-1-23 17:25
+
+这谷子...画的一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 10324#       发表于 2022-1-23 17:35
+
+怎么叫冬之阵，也不起个吉利点的名字
+
+*****
+
+####  真飞鸟i  
+##### 10325#       发表于 2022-1-23 17:38
+
+因为是德川方，杏只剩半年了
+这和悠星关系挺亲密的，是不是要联动啥，不过悠星旗下适合联动虹的就雀魂了吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

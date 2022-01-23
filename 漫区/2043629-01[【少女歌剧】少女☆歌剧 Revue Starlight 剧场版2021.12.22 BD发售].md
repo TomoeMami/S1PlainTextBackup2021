@@ -8360,3 +8360,14 @@ https://b23.tv/4fZ6tlW
 提到这个突然就想起TV开头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/4/370abca4ba1e151bdedb85e22e4db23a/9.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 628#       发表于 2022-1-23 17:26
+
+发黄的相片古老的信还有褪色的圣诞卡
+
+一边听罗大佑光阴的故事一边脑补爱城华恋和神乐光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
