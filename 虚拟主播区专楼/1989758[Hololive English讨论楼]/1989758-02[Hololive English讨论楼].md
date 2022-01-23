@@ -1091,3 +1091,14 @@ I feel like i'm not giving my best streams in the past few months 呜呜呜
 
 syl: calli把自己整炎上了
 
+
+
+*****
+
+####  PureIllusion  
+##### 1604#       发表于 2022-1-23 16:19
+
+ARK KINO！整个一emotional rollercoaster。
+
+Gura和Mumei声音确实像，最近一段时间最有意思的rrat就是Mumei和Gura是同一人，同时出现的话就是pre-recorded
+
