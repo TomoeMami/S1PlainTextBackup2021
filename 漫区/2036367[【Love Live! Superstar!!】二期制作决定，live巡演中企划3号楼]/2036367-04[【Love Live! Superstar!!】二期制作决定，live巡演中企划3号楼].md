@@ -1960,3 +1960,21 @@ https://item.rakuten.co.jp/kaneshiro2021/q2106llt388/
 
 所以昨天衣服鞋子能讨论这么久我就觉得滑稽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真当是私服？
 
+
+
+*****
+
+####  Norkey1  
+##### 4658#       发表于 2022-1-23 22:45
+
+没收到邮件，看来签名抽选是寄了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么感觉全世界就我没中了
+
+*****
+
+####  lj205  
+##### 4659#       发表于 2022-1-23 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405973&amp;ptid=2036367" target="_blank">Norkey1 发表于 2022-1-23 22:45</a>
+没收到邮件，看来签名抽选是寄了怎么感觉全世界就我没中了</blockquote>
+我也没中，还好我从不相信自己的运气，直接买了yahoo的必签套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
