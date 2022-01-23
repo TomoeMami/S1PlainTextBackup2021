@@ -15447,3 +15447,27 @@ mysta在国内的风评是不是产生了微妙的变化
 
 花芽姐这个初歌回，可爱就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 10330#       发表于 2022-1-23 20:42
+
+堇这个气跟大福一时瑜亮了
+
+窒息唱法
+
+建议合唱一首看看谁才是真正的断气
+
+*****
+
+####  fastary  
+##### 10331#       发表于 2022-1-23 20:44
+
+为什么你虹4周年纪念主题的谷子还要只挑15个人出啊，真就狼性企业呗<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+不过反正柄图一言难尽，也无所谓了……
+
+三周年fes还有接力两天有各种liver参与的各种纪念节目(直播联动)呢，怎么四周年按计划举行的目前也只有16人live、神七企划和15人周边，难道说年前后那些大型联动也是四周年纪念活动的一环吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

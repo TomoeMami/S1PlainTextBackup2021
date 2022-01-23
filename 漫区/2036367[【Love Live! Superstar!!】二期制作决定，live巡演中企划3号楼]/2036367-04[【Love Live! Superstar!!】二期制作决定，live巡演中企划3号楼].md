@@ -1847,3 +1847,14 @@ syl，5ch老哥的怪xp永远超乎我的想象<img src="https://static.saraba1s
 
 但是搞不懂两天只有星和马这样安排
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 4651#       发表于 2022-1-23 20:56
+
+鲤鱼和emi那节目有人做熟肉了吗？
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
