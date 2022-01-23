@@ -12866,3 +12866,15 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 隔壁再次试探2.6风评，看样子这次是五五开？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 86740#       发表于 2022-1-23 22:19
+
+你们不要乱讲，到时候又给你们扣一个a1转楼黝黑我坛
+
+人家明明是在说对自己很不错，你不喜欢那是你的问题，我们菌哥哥还是好的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

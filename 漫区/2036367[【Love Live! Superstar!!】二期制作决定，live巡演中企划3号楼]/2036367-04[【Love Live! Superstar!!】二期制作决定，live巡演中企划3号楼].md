@@ -1939,3 +1939,24 @@ pay点赞了
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  二月十日  
+##### 4656#       发表于 2022-1-23 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405379&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-1-23 21:58</a>
+官方买衣服也上淘宝
+
+----发送自 Xiaomi Redmi K20 Pro,Android 9</blockquote>
+日本也有得卖的，但价格是这边的两倍都不止<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+https://item.rakuten.co.jp/kaneshiro2021/q2106llt388/
+
+*****
+
+####  仟音一心  
+##### 4657#       发表于 2022-1-23 22:26
+
+所以昨天衣服鞋子能讨论这么久我就觉得滑稽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真当是私服？
+

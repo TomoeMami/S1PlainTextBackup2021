@@ -15596,3 +15596,12 @@ mysta在国内的风评是不是产生了微妙的变化
 
 这冬之阵不是每年都有么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  死体残留  
+##### 10340#       发表于 2022-1-23 22:01
+
+夏芽玩游戏王1w同接了 玩mtg终于有回报了
+
