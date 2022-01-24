@@ -8476,3 +8476,25 @@ https://b23.tv/4fZ6tlW
 
 没找到总集篇剧场版的资源，可以在这球一下不
 
+
+
+*****
+
+####  堆雪若叶  
+##### 638#         楼主| 发表于 2022-1-24 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54411377&amp;ptid=2043629" target="_blank">RPG-7 发表于 2022-1-24 13:02</a>
+
+没找到总集篇剧场版的资源，可以在这球一下不</blockquote>
+影片源应该不难找吧，转个字幕[https://bbs.acgrip.com/thread-8598-1-1.html](https://bbs.acgrip.com/thread-8598-1-1.html)（说起来自己都忘了看熟的总集篇了
+
+*****
+
+####  RPG-7  
+##### 639#       发表于 2022-1-24 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54415014&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-1-24 17:53</a>
+
+影片源应该不难找吧，转个字幕[https://bbs.acgrip.com/thread-8598-1-1.html](https://bbs.acgrip.com/thread-8598-1-1.html)（说起来自己都忘了看熟的总 ...</blockquote>
+没找到熟肉， 怪
+
