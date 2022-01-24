@@ -12896,3 +12896,12 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 锁了还行，连批判都不给，菌皇就是菌皇，面子真大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sosgame67  
+##### 86743#       发表于 2022-1-24 07:57
+
+对菌皇的忠诚不绝对就是绝对不忠诚！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1130,3 +1130,36 @@ Ame说buffson/动捕3d从2020年底就开始筹划，过了一年多到到最近
 
 yagoo on EN vrchat collab(s): アメリアさんは本当にすごいだなって思ってます。可能性を感じます <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1608#       发表于 2022-1-24 07:53
+
+ 本帖最后由 shimmy1996 于 2022-1-24 07:54 编辑 
+
+ame新头像
+
+<img src="https://img.saraba1st.com/forum/202201/24/074822d285awn5webyvfnc.png" referrerpolicy="no-referrer">
+
+<strong>wat.png</strong> (10.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 07:48 上传
+
+-&gt;
+
+<img src="https://img.saraba1st.com/forum/202201/24/074822d3xa8x8zhl71s5p9.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-01-23_17-31-57.png</strong> (20.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 07:48 上传
+
+昨天ame杂谈说的fps新手是kiwawa（明天paladins collab）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+想到之前digikomi ame 说要教 kiara how to be a real gamer<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
