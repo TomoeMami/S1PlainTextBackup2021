@@ -2570,3 +2570,19 @@ B站上看到了。
 
 巡演都结束了……我东京场的特典票还没寄出来…………
 
+
+
+*****
+
+####  yevvet  
+##### 4698#       发表于 2022-1-24 22:27
+
+liyuu是不是真的胖了。感觉脸大了一圈
+
+*****
+
+####  lj205  
+##### 4699#       发表于 2022-1-24 22:38
+
+长焦镜头拍的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
