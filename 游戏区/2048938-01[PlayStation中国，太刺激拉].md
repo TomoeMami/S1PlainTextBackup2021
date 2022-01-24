@@ -724,3 +724,46 @@ PS5携原宇宙（元神）神州大陆自由行，击败软软破宇宙轻而�
 狗屎配狗屎 SONY是脑抽了搞这个 真不知道自己客户群体是什么吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真当自己买1 2个70刀游戏就有说话权？
 
+
+
+*****
+
+####  kg21xhunter  
+##### 80#       发表于 2022-1-24 08:32
+
+背景和游戏玩家有啥关系，为什么要帮同人女的腔，还想被背刺一次？
+
+*****
+
+####  烽火  
+##### 81#       发表于 2022-1-24 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54407969&amp;ptid=2048938" target="_blank">fatimagg01 发表于 2022-1-24 08:19</a>
+
+有没有更清晰的图.exe</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/24/083744o8kse1whz3sshsew.jpg" referrerpolicy="no-referrer">
+
+<strong>a8e764e6gy1gymkhcbrqdj21900u0qgt (1).jpg</strong> (387.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 08:37 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/083757ep51fbza8ha5fkuh.jpg" referrerpolicy="no-referrer">
+
+<strong>a8e764e6gy1gymkhc7sncj21910u04cl.jpg</strong> (405.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 08:37 上传
+
+*****
+
+####  元気一发  
+##### 82#       发表于 2022-1-24 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405453&amp;ptid=2048938" target="_blank">miao123177 发表于 2022-1-23 22:03</a>
+狗屎配狗屎 SONY是脑抽了搞这个 真不知道自己客户群体是什么吗</blockquote>
+国行不就这一个ps5游戏过审了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
