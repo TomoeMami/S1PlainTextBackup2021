@@ -767,3 +767,77 @@ PS5携原宇宙（元神）神州大陆自由行，击败软软破宇宙轻而�
 狗屎配狗屎 SONY是脑抽了搞这个 真不知道自己客户群体是什么吗</blockquote>
 国行不就这一个ps5游戏过审了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ayre不发糖哟  
+##### 83#       发表于 2022-1-24 08:50
+
+李宁的肖战也能a到索尼，只管输出情绪<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  糖然君  
+##### 84#       发表于 2022-1-24 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54408047&amp;ptid=2048938" target="_blank">kg21xhunter 发表于 2022-1-24 08:32</a>
+背景和游戏玩家有啥关系，为什么要帮同人女的腔，还想被背刺一次？</blockquote>
+就算不是肖战换蔡徐坤难道就好看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这些流量在这本身就很碍眼，肖战格外恶心而已
+
+*****
+
+####  crosz  
+##### 85#       发表于 2022-1-24 08:57
+
+那玩意儿不是商场自己的广告吗有些人是真不明白还是揣着明白装糊涂呢
+
+<img src="https://img.saraba1st.com/forum/202201/24/085657vcpfua310pw9f9u0.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2752.JPG</strong> (573.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 08:56 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  索尼客观玩家  
+##### 86#       发表于 2022-1-24 08:59
+
+添田武人最晦气
+
+*****
+
+####  HOLIDAY  
+##### 87#       发表于 2022-1-24 09:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还是天降奇缘，这下三÷狂喜了
+
+*****
+
+####  eulereld  
+##### 88#       发表于 2022-1-24 09:03
+
+明顯是假兇/nude bra+衣服皺褶啊爭什麼呢，這都看不出是不是cos少看了
+快進到戰戰代言PS5，廢虾買爆再退爆
+
+*****
+
+####  hhgjf  
+##### 89#       发表于 2022-1-24 09:03
+
+实在low穿地心。不过可能也是没办法吧，入乡随俗。
+
+*****
+
+####  椎名mahuyo  
+##### 90#       发表于 2022-1-24 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mihuyo在重庆花了不少钱，之前观音桥整个站都是广告，最近米游社那LIVE形象占领了沙坪坝地铁站
+
+挺好的
+
