@@ -1057,3 +1057,16 @@ sony现在就靠这种下三滥的手段和XGP一战了<img src="https://static.
 
 不管是褶皱还是没穿，至少p个图应该没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  minysun  
+##### 112#       发表于 2022-1-24 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54413264&amp;ptid=2048938" target="_blank">hypnossz86 发表于 2022-1-24 15:38</a>
+49年入国军
+00年挺世嘉
+22年买索尼</blockquote>
+类比国军不合适，索尼还没low到那种地步。真要比得还是42年的蝗军，一波骚操作取得优势后大体量对手真正认真起来发力开始进攻，接下来会发生什么就很有看头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
