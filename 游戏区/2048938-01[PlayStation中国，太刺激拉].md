@@ -1036,3 +1036,15 @@ sony现在就靠这种下三滥的手段和XGP一战了<img src="https://static.
 00年挺世嘉
 22年买索尼&lt;--new
 
+
+
+*****
+
+####  shimotsuki14  
+##### 110#       发表于 2022-1-24 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54408004&amp;ptid=2048938" target="_blank">reficul 发表于 2022-1-24 08:27</a>
+
+虽然但是，背景是李宁只能说拍照的人很懂</blockquote>
+啊这
+
