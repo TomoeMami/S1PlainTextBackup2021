@@ -488,3 +488,24 @@ manager一开始不让唱，后来只让播，然后又装傻放完全曲，估�
 
 我看这丫头小心机不少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新磕娘  
+##### 7559#       发表于 2022-1-24 10:10
+
+补了两天的apex直播，还是一如既往的好看，今天中午还有a派直播吗
+
+*****
+
+####  面具13  
+##### 7560#       发表于 2022-1-24 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54408975&amp;ptid=1947500" target="_blank">新磕娘 发表于 2022-1-24 10:10</a>
+
+补了两天的apex直播，还是一如既往的好看，今天中午还有a派直播吗</blockquote>
+不播的概率更高一些。
+
+昨天播之前提前一天就有预告；今天有早安推，但是还没开窗；昨天歌回最后嗓子状况一般；吸引了热度，告知了原创曲，该卖的票也差不多卖出去了；钻石往上播观感不见得足够好，不播的时候停留在观众里的想象中的夸宝还是很强的，把gamer人设撑起来，live结束后再来吃瘪。
+
