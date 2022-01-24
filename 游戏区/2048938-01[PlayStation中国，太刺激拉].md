@@ -952,3 +952,23 @@ sony已经死了.jpg
 
 2022-1-24 12:28 上传
 
+
+
+*****
+
+####  afer  
+##### 102#       发表于 2022-1-24 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们就不吐槽这两个同时出现么？
+<img src="https://p.sda1.dev/4/c17a73c171dbd25daf66b3c113371902/IMG_CMP_104545983.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/4/fc419df69634d9909f42720fd2414b89/IMG_CMP_54862590.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nervpp  
+##### 103#       发表于 2022-1-24 12:54
+
+后面那个就是肖战吗？虽然不是很明白，暂时记李宁一个不要购买了
+
