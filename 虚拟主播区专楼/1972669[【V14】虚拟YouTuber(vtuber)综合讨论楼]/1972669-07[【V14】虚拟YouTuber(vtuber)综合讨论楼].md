@@ -15747,3 +15747,14 @@ Live没了可不就只剩谷了吗
 
 有请2000讲一下太监囚人的葵皇买粉论<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10354#       发表于 2022-1-24 20:50
+
+等了好久健康报告总算等到ymen推动了，还有心思发推吐槽自己新买的室内用袜子破了洞是否证明这人没什么事老老实实待在家里闲的慌啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+好在他远离线下活动甚至还休了，就算毫无情报至少目前(大概)是最安全的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
