@@ -915,3 +915,23 @@ sony已经死了.jpg
 
 快倒闭的刺激？
 
+
+
+*****
+
+####  zawakyandoru  
+##### 99#       发表于 2022-1-24 11:13
+
+晦气
+
+*****
+
+####  鹅大人  
+##### 100#       发表于 2022-1-24 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54407077&amp;ptid=2048938" target="_blank">法拉 发表于 2022-1-24 01:08</a>
+感觉也就值一两百，不过只穿一次的话这么贵也不是不能理解吧</blockquote>
+和同质量正常衣服比确实只值几百块，但是这玩意又不像日常衣服能工厂批量生产降低成本，那只能被手工费收割咯，而且角色还有各种小饰品也是费手工
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

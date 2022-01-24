@@ -1163,3 +1163,24 @@ ame新头像
 
 想到之前digikomi ame 说要教 kiara how to be a real gamer<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimmy1996  
+##### 1609#       发表于 2022-1-24 11:20
+
+ 本帖最后由 shimmy1996 于 2022-1-24 11:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202201/24/111533o372dmeskm1swddl.jpg" referrerpolicy="no-referrer">
+
+<strong>genki.jpg</strong> (64.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 11:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">today was a good day
+
+最后ame在bubb4bot里放这个：[A tiny angry squeaking Frog 🐸 | Super Cute Animals - BBC](https://www.youtube.com/watch?v=HBxn56l9WcU)
+
