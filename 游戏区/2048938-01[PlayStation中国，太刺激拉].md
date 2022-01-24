@@ -658,3 +658,69 @@ PS5携原宇宙（元神）神州大陆自由行，击败软软破宇宙轻而�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  你这瓜保熟吗  
+##### 73#       发表于 2022-1-24 08:11
+
+能不能给上面那个打个码，太晦气了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  云隐  
+##### 74#       发表于 2022-1-24 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54407554&amp;ptid=2048938" target="_blank">时代广场蟋蟀 发表于 2022-1-24 03:52</a>
+马上回重庆了好慌
+原神在重庆确实火，国庆回家顺便看了眼本地漫展全是原神。。。 ...</blockquote>
+以前还老有割割粉丝拉横幅投广告<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fatimagg01  
+##### 75#       发表于 2022-1-24 08:19
+
+有没有更清晰的图.exe<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先生空气  
+##### 76#       发表于 2022-1-24 08:25
+
+神奇构图
+
+*****
+
+####  reficul  
+##### 77#       发表于 2022-1-24 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54406981&amp;ptid=2048938" target="_blank">shimotsuki14 发表于 2022-1-24 00:47</a>
+
+原神无所谓，背景真是恶心到家了。
+
+文字火盆跨一下
+
+索尼真的是罪大恶极，搞得群众怨声载道 ...</blockquote>
+虽然但是，背景是李宁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说拍照的人很懂
+
+*****
+
+####  hu794  
+##### 78#       发表于 2022-1-24 08:29
+
+饭圈+主机界饭圈+手游界饭圈
+
+三者同框，真是齐活了！
+
+*****
+
+####  404489039  
+##### 79#       发表于 2022-1-24 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405453&amp;ptid=2048938" target="_blank">miao123177 发表于 2022-1-23 22:03</a>
+
+狗屎配狗屎 SONY是脑抽了搞这个 真不知道自己客户群体是什么吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真当自己买1 2个70刀游戏就有说话权？
+
