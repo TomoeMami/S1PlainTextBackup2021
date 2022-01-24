@@ -8456,3 +8456,14 @@ https://b23.tv/4fZ6tlW
 
 只能蹲一个再放送了
 
+
+
+*****
+
+####  MASKA-1  
+##### 636#       发表于 2022-1-24 12:49
+
+<img src="https://p.sda1.dev/4/6e32783302bfd50bd78c8cd57ab7904c/5AF27856829B6C24F054D54EFE6585E1.jpg" referrerpolicy="no-referrer">果然是spaceX
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
