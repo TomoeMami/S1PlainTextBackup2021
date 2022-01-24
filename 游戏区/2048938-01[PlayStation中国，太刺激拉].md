@@ -972,3 +972,17 @@ sony已经死了.jpg
 
 后面那个就是肖战吗？虽然不是很明白，暂时记李宁一个不要购买了
 
+
+
+*****
+
+####  斑驳的阴影  
+##### 104#       发表于 2022-1-24 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54408288&amp;ptid=2048938" target="_blank">椎名mahuyo 发表于 2022-1-24 09:04</a>
+
+mihuyo在重庆花了不少钱，之前观音桥整个站都是广告，最近米游社那LIVE形象占领了沙坪坝地铁站
+
+挺好 ...</blockquote>
+我头一次在线下看到有人对xz发情就是在观音桥，地铁站一上来就听到后面一堆人在叫，转头一看商场外面巨幕大屏上在放xz的古装剧广告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
