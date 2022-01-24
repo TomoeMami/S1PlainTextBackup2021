@@ -2311,3 +2311,33 @@ Liyuu的免费live，刚开始，无需登录翻墙直接看
 
 居然能看！！！！
 
+
+
+*****
+
+####  名津流  
+##### 4683#       发表于 2022-1-24 19:03
+
+为什么我翻墙也打不开，还是已经结束了？
+
+*****
+
+####  player3960  
+##### 4684#       发表于 2022-1-24 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54415775&amp;ptid=2036367" target="_blank">名津流 发表于 2022-01-24 19:03:36</a>
+为什么我翻墙也打不开，还是已经结束了？</blockquote>结束了，我只看到签名部分，看到两首歌的切片，话说一共唱了几首歌啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  仟音一心  
+##### 4685#       发表于 2022-1-24 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54415784&amp;ptid=2036367" target="_blank">player3960 发表于 2022-1-24 19:04</a>
+结束了，我只看到签名部分，看到两首歌的切片，话说一共唱了几首歌啊
+
+  -- 来自 能看大图的 Stage1官方 An ...</blockquote>
+就两首，Magic Words和ルルカワイマ
+

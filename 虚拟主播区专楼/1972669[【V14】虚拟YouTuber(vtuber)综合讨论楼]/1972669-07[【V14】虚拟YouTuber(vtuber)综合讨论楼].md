@@ -15686,3 +15686,19 @@ QQ图片20220124104200.png
 
 你虹这周年新闻是不是到现在除了谷子没别的了？
 
+
+
+*****
+
+####  FCCHua  
+##### 10347#       发表于 2022-1-24 18:55
+
+没等到valo大会，r6大会反而又来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布莱士·西伯利  
+##### 10348#       发表于 2022-1-24 18:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">翔哥踩雷了，只剩阴角王还好好的了...虽然光君也说身体不舒服。
+
