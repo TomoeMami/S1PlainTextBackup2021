@@ -986,3 +986,15 @@ mihuyo在重庆花了不少钱，之前观音桥整个站都是广告，最近�
 挺好 ...</blockquote>
 我头一次在线下看到有人对xz发情就是在观音桥，地铁站一上来就听到后面一堆人在叫，转头一看商场外面巨幕大屏上在放xz的古装剧广告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 105#       发表于 2022-1-24 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54408409&amp;ptid=2048938" target="_blank">cosx 发表于 2022-1-24 09:16</a>
+
+能赚钱就行，电子游戏又不是高雅艺术</blockquote>
+你说原神不是高雅艺术？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
