@@ -1070,3 +1070,21 @@ sony现在就靠这种下三滥的手段和XGP一战了<img src="https://static.
 22年买索尼</blockquote>
 类比国军不合适，索尼还没low到那种地步。真要比得还是42年的蝗军，一波骚操作取得优势后大体量对手真正认真起来发力开始进攻，接下来会发生什么就很有看头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  egged5  
+##### 113#       发表于 2022-1-24 20:28
+
+buff拉满了，黑红营销算是给索尼玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  LLLLLuB  
+##### 114#       发表于 2022-1-24 20:38
+
+就这cos的质量，就是告诉你敷衍的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
