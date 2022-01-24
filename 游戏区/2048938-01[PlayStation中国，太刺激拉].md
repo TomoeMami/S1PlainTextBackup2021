@@ -998,3 +998,21 @@ mihuyo在重庆花了不少钱，之前观音桥整个站都是广告，最近�
 能赚钱就行，电子游戏又不是高雅艺术</blockquote>
 你说原神不是高雅艺术？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  m98626  
+##### 106#       发表于 2022-1-24 15:14
+
+这就是化解700亿天劫的东西么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天使日又日  
+##### 107#       发表于 2022-1-24 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面的割割确实不关SONY事啊，只是个巧合而已
+
