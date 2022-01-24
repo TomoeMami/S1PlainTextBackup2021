@@ -1016,3 +1016,23 @@ mihuyo在重庆花了不少钱，之前观音桥整个站都是广告，最近�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面的割割确实不关SONY事啊，只是个巧合而已
 
+
+
+*****
+
+####  hjgg65876  
+##### 108#       发表于 2022-1-24 15:33
+
+sony现在就靠这种下三滥的手段和XGP一战了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 已经颓势尽显了啊，现在sony挣扎的样子和xgp比起来就像当年的国共一样
+
+*****
+
+####  hypnossz86  
+##### 109#       发表于 2022-1-24 15:38
+
+ 本帖最后由 hypnossz86 于 2022-1-24 15:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">49年入国军
+00年挺世嘉
+22年买索尼&lt;--new
+
