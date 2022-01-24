@@ -2188,3 +2188,97 @@ sayu可总算想起来还有ins来了，然后就腹泻更新<img src="https://s
 —— 来自 S1Fun</blockquote>
 端水是一个leader的必备素养
 
+
+
+*****
+
+####  优妮可  
+##### 4678#       发表于 2022-1-24 17:27
+
+https://realsound.jp/2022/01/post-952905.html
+
+*****
+
+####  仟音一心  
+##### 4679#       发表于 2022-1-24 17:28
+
+<blockquote>#Liyuu[超话]# 「Reply」🍀
+
+新歌听起来哇！ </blockquote>
+
+4A7C3FAF-EBAD-4E53-8E3B-4AACCEECA576.jpeg
+(1.36 MB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/172802qy1c4a8u16b1x1ik.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 4680#       发表于 2022-1-24 17:42
+
+<blockquote>Liyuu Staff
+
+「Real Sound」采访刊登啦❣️
+
+Liyuu初次以“Ballade”来歌唱传达内心
+
+诉说痛苦的那些日子与感谢的心情 </blockquote>
+
+EABA9B53-77EA-4B4A-9431-816CDCC26926.jpeg
+(54.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/174219rci5nzih0cxbhuc0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+66B726B0-A64A-4361-A73E-E7737EACF16C.jpeg
+(92.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/174219faemd7ntdmwaemca.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+25068CC8-C791-4CD7-B30B-29386B192B7D.jpeg
+(47.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/174219pji8ezqfaaivhhha.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+5BE8C59A-5FD9-4FDF-9982-4C30F45FB8FF.jpeg
+(60.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/174219bp9rj2o9d9m4e3po.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+9A07A215-3956-4C00-B4A8-A3A56234C067.jpeg
+(220.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/174219pwptpg4erp0phgr7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+D745553E-D355-4FE3-BDE1-80B515041295.jpeg
+(42.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 17:42 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/174219x4244e8g4y714zew.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
