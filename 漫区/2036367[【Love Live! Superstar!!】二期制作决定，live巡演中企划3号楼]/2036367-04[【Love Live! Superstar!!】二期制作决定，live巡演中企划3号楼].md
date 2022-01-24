@@ -2341,3 +2341,140 @@ Liyuu的免费live，刚开始，无需登录翻墙直接看
   -- 来自 能看大图的 Stage1官方 An ...</blockquote>
 就两首，Magic Words和ルルカワイマ
 
+
+
+*****
+
+####  优妮可  
+##### 4686#       发表于 2022-1-24 20:11
+
+<img src="https://img.saraba1st.com/forum/202201/24/201106hh0vz057z1axx549.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_AonStore_2Lbro.jpg</strong> (342.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201106q1xitrjqrcc6rmrb.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Animate_Lbr.jpg</strong> (255.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201106xb55prp5o9bidbdp.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Animate_CanBadge.jpg</strong> (82.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201106t4yj61ar1jzbdyal.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_amiami_Lbro.jpg</strong> (432.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201107esus5luukbdsjm9w.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Amazon_Lbro.jpg</strong> (134.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201107lvsszow9txts1jb9.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_HMV_2Lbro.jpg</strong> (499.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201108qs5skt2nk0kttxct.jpg" referrerpolicy="no-referrer">
+
+<strong>155a07d88a56fa18fec20d60f67260f3.jpg</strong> (402.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201108bdsxx338tmywwtns.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Gamers_CanBadge.jpg</strong> (78.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201109w73v3dwd38juv1d7.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_gamers_Bromide_forTsujo.jpg</strong> (414.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201109yddd7f85f11f8icy.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Sofmap_A4NunoPoster.jpg</strong> (125.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201109yyz2zjvz3ra9m99m.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Sofmap_2Lbromide_forTsujo.jpg</strong> (154.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201110l4441rf1f3qm7z77.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Tower_Lbro.jpg</strong> (335.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201110lds95xa95d9vpc9e.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_TSUTAYA_Lbro.jpg</strong> (290.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/201110mpv8wu0ydv8oy0at.jpg" referrerpolicy="no-referrer">
+
+<strong>Liyuu_Toranoana_Lbro.jpg</strong> (293.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 20:11 上传
+
+*****
+
+####  musicat  
+##### 4687#       发表于 2022-1-24 20:23
+
+B站上看到了。
+
+怎么说呢，现在专辑的歌都透得差不多了，相比裂拉的歌，鲤鱼的总感觉那里差一点，起码不会是不会拿来循环的那种。
+
+制作人实力差很多吗？不清楚作词作曲这方面的事情。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4688#       发表于 2022-1-24 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">青山的IMO協会都上趋势了还行
+
