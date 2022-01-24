@@ -580,3 +580,12 @@ manager一开始不让唱，后来只让播，然后又装傻放完全曲，估�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看夸cos我练就了一手一眼识别男娘的绝活
 
+
+
+*****
+
+####  OldGlory  
+##### 7564#       发表于 2022-1-24 15:54
+
+推特夸夸cos十有九男
+
