@@ -509,3 +509,65 @@ manager一开始不让唱，后来只让播，然后又装傻放完全曲，估�
 
 昨天播之前提前一天就有预告；今天有早安推，但是还没开窗；昨天歌回最后嗓子状况一般；吸引了热度，告知了原创曲，该卖的票也差不多卖出去了；钻石往上播观感不见得足够好，不播的时候停留在观众里的想象中的夸宝还是很强的，把gamer人设撑起来，live结束后再来吃瘪。
 
+
+
+*****
+
+####  千月星痕  
+##### 7561#       发表于 2022-1-24 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下iTunes的排行，两场打枪后歌回发表的あくたんのこと好きすぎ☆ソング和for the win
+
+<img src="https://img.saraba1st.com/forum/202201/24/131452tkg62t6tz7lzkq1z.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220124131116.png</strong> (64.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 13:14 上传
+
+<img src="https://img.saraba1st.com/forum/202201/24/131452mu7z1horuvrvol77.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220124131201.png</strong> (63.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 13:14 上传
+
+三周年纪念live发表的海想列车
+
+<img src="https://img.saraba1st.com/forum/202201/24/131452ev6zpvi1ysjbzj1y.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220124131237.png</strong> (65.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 13:14 上传
+
+线下live发布回发表的kirakira
+
+<img src="https://img.saraba1st.com/forum/202201/24/131453wb5bk595552fyk5k.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220124131310.png</strong> (65.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 13:14 上传
+
+生日回发表的uni-birth
+
+<img src="https://img.saraba1st.com/forum/202201/24/131453ndqd0odfqz3f1ooz.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20220124131336.png</strong> (65.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 13:14 上传
+
+*****
+
+####  ylssb10438  
+##### 7562#       发表于 2022-1-24 13:28
+
+为什么推特上的阿夸cos那么多男娘，这合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
