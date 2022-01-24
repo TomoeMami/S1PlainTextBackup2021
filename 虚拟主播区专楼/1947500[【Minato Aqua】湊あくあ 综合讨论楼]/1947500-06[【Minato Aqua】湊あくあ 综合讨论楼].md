@@ -571,3 +571,12 @@ manager一开始不让唱，后来只让播，然后又装傻放完全曲，估�
 
 为什么推特上的阿夸cos那么多男娘，这合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 7563#       发表于 2022-1-24 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看夸cos我练就了一手一眼识别男娘的绝活
+
