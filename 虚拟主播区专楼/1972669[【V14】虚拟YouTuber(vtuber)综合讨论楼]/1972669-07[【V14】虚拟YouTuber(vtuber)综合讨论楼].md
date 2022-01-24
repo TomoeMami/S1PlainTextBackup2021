@@ -15767,3 +15767,46 @@ Live没了可不就只剩谷了吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">小夜你到底去哪了
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 10356#       发表于 2022-1-24 23:41
+
+感慨。
+
+（选取自[KONLULU!!] PDF版 第14页）
+以下内容需要积分高于 20000 才可浏览
+
+<img src="https://img.saraba1st.com/forum/202201/24/234057wjpl198445gm541a.jpg" referrerpolicy="no-referrer">
+
+<strong>KONLULU[P14].jpg</strong> (465.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-24 23:40 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ポップコーン| + 1|真好|
+
+查看全部评分
+
+*****
+
+####  fastary  
+##### 10357#       发表于 2022-1-24 23:48
+
+好奇去听了mysta的奥术，老实说我比较喜欢他平静状态的这个低音<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">(话说好像也没用奥术麦就只是单纯凑近麦小声说话而已啊
+
+结果开场就是我以前怎么怎么样blabla给我干卖惨ptsd了，往后跳着听了几段才发现就是大段大段念那种“你不必太过关心他人而无法拒绝”“不要焦虑你已经很好了”之类的鸡汤然后掺点自己人生经历进去………
+
+然后我就切走去听耳かき杂谈奥术了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
