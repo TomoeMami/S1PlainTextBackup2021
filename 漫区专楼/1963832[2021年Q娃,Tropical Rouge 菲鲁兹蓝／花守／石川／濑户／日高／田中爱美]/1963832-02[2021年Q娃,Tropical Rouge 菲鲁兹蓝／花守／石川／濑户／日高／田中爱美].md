@@ -13374,3 +13374,12 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 这二选一也是女王给足了面子了，感觉按以往来说过完最后一天留念回去当女王没跑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 今年观感真的太棒了都舍不得结局了
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2514#       发表于 2022-1-25 14:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">今年不知道还看不看，看个几集吧，要是很一般我就去追老的
+
