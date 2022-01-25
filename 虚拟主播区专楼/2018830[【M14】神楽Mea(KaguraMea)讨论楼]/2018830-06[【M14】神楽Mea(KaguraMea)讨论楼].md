@@ -3464,3 +3464,32 @@ mea酱病好了 我病还没好<img src="https://static.saraba1st.com/image/smil
 
 每天半夜会打两把
 
+
+
+*****
+
+####  十九号大侠  
+##### 7901#       发表于 2022-1-25 11:54
+
+这数据
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 7902#       发表于 2022-1-25 11:54
+
+ 本帖最后由 十九号大侠 于 2022-1-25 11:56 编辑 
+
+这把可C
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 7903#       发表于 2022-1-25 11:57
+
+H好送
+
