@@ -6991,3 +6991,16 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 什么测谎网络
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 5229#       发表于 2022-1-25 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54395327&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2022-1-22 22:10</a>
+很难想象，coco这种文静性格会有纹身</blockquote>
+有切片吗
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
