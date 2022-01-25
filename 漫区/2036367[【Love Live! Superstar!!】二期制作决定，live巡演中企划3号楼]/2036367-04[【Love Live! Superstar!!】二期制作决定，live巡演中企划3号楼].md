@@ -2677,3 +2677,12 @@ liyuu唱歌的声线有点尖的难受。
 
 Nagi今天那个魔性画笑到吐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 4705#       发表于 2022-1-25 19:27
+
+在小百合的影响下，nako也开始练习吉他
+
