@@ -2829,3 +2829,12 @@ Pay今晚的直播造型是双麻花，Nagi昨天也是双麻花，另外三人�
 
 pay什么时候能放弃这yhm标志的刘海就好了，之前有张露额头的照片让我看后直呼老婆<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Norkey1  
+##### 4717#       发表于 2022-1-26 00:05
+
+至少在画技这块，青山是挺照顾同款厨的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

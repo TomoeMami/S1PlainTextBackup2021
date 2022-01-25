@@ -7062,3 +7062,12 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  Quark  
+##### 5236#       发表于 2022-1-25 23:48
+
+静子下意识挑逆天弹幕是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
