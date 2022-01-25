@@ -1127,3 +1127,14 @@ buff拉满了，黑红营销算是给索尼玩明白了<img src="https://static.
 
 索狗是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  炮炮鸽  
+##### 119#       发表于 2022-1-25 10:40
+
+双厨狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
