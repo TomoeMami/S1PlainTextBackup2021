@@ -8498,3 +8498,14 @@ https://b23.tv/4fZ6tlW
 影片源应该不难找吧，转个字幕[https://bbs.acgrip.com/thread-8598-1-1.html](https://bbs.acgrip.com/thread-8598-1-1.html)（说起来自己都忘了看熟的总 ...</blockquote>
 没找到熟肉， 怪
 
+
+
+*****
+
+####  JustW  
+##### 640#       发表于 2022-1-25 07:58
+
+【【少女☆歌剧】HE or BE？是「Starlight」式的结局方式——边看边聊Super Star Spectacle中和ED内的小细节-哔哩哔哩】 [https://b23.tv/eN94L1z](https://b23.tv/eN94L1z)
+
+这个视频对光恋revue和ed做了很好的拉片和补充
+
