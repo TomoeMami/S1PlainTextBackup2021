@@ -2807,3 +2807,16 @@ pay子的脸真的不适合刘海
 
 说不好运营刚找了海盗返生大兄弟要了ass，鱼菜现在正在连麦校对呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qratosone  
+##### 4715#       发表于 2022-1-25 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54427812&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-25 20:46</a>
+Pay今晚的直播造型是双麻花，Nagi昨天也是双麻花，另外三人什么时候也做个双麻花 ...</blockquote>
+不得不说Pay子这个脸型实在不适合
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
