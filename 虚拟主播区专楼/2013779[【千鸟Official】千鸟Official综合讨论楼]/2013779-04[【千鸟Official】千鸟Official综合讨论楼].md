@@ -7051,3 +7051,14 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 本来对这游戏没啥兴趣的 今天我理解了 还得是看静子玩
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5235#       发表于 2022-1-25 22:14
+
+大do特do
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
