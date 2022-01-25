@@ -15837,3 +15837,16 @@ Qu酱自从发降低活动频率公告后平均五天发一首歌，就连私号
 
 也可能是走前的回光返照
 
+
+
+*****
+
+####  FCCHua  
+##### 10361#       发表于 2022-1-25 20:07
+
+ 本帖最后由 FCCHua 于 2022-1-25 20:09 编辑 
+
+草，杂志都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【橘ひなの/雑談】雑誌掲載について、先日おれあぽで受けたインタビューについて語る橘さん。
+[https://youtu.be/RyOvo_OP3EY](https://youtu.be/RyOvo_OP3EY)
+
