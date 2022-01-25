@@ -671,3 +671,12 @@ manager一开始不让唱，后来只让播，然后又装傻放完全曲，估�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">应该是无了
 
+
+
+*****
+
+####  新磕娘  
+##### 7573#       发表于 2022-1-25 20:26
+
+打枪看来只能live后了啊，令人感叹
+
