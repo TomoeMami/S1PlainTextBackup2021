@@ -854,3 +854,26 @@ solo打法 anti变多 熬夜冲分上不去 anti更多 自暴自弃惩罚crew �
 
 这不是狙到了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 7593#       发表于 2022-1-26 20:54
+
+但是现在踩没有了，再也看不到战犯之后踩狂升的场面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OldGlory  
+##### 7594#       发表于 2022-1-26 20:56
+
+踩其实是有的 别人看不到主播自己看得到
+
+*****
+
+####  aisakahammer  
+##### 7595#       发表于 2022-1-26 20:57
+
+ 踩可以设置隐藏 但主播自己还是看得到啊
+
