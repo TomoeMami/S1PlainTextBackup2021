@@ -877,3 +877,28 @@ solo打法 anti变多 熬夜冲分上不去 anti更多 自暴自弃惩罚crew �
 
  踩可以设置隐藏 但主播自己还是看得到啊
 
+
+
+*****
+
+####  面具13  
+##### 7596#       发表于 2022-1-26 21:03
+
+带队友送一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7597#       发表于 2022-1-26 21:11
+
+ 本帖最后由 面具13 于 2022-1-26 21:15 编辑 
+
+28号live结束后可能会开后日谈再收波钱。战犯之夜，送，团灭，sry，一气呵成<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  猫南北  
+##### 7598#       发表于 2022-1-26 21:17
+
+低头看了眼小说，队友又没了。
+
