@@ -15915,3 +15915,28 @@ Qu酱自从发降低活动频率公告后平均五天发一首歌，就连私号
 23号目前唯一幸存者感言，话里话外也没确定会不会有雪耻演唱会就是了。
 [https://www.bilibili.com/video/BV1ir4y1e7Gr](https://www.bilibili.com/video/BV1ir4y1e7Gr)
 
+
+
+*****
+
+####  吃咸菜的  
+##### 10368#       发表于 2022-1-26 23:56
+
+苔姨最近又是gamers又是小动画，前人的路还是好走
+
+<img src="https://img.saraba1st.com/forum/202201/26/235549nmajlb7kus3wzukz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-26 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202201/26/235324xolozv5j88qf2qkv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-26 23:53 上传
+
