@@ -698,3 +698,20 @@ manager一开始不让唱，后来只让播，然后又装傻放完全曲，估�
 
 a与不a的你楼kpi对比太真实了
 
+
+
+*****
+
+####  面具13  
+##### 7576#       发表于 2022-1-26 13:49
+
+<blockquote>今日はソロマスちゃれんじやる！֊ ̫ ֊</blockquote>
+哦，居然要播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7577#       发表于 2022-1-26 14:00
+
+6点呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

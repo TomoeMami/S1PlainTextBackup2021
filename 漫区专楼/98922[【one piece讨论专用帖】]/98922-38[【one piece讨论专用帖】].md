@@ -10691,3 +10691,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 大妈也快GG了，和之国正在加速烂尾<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  抽烟的猴  
+##### 56334#       发表于 2022-1-26 13:41
+
+大妈和凯多如果都在这里狗带我只能<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
