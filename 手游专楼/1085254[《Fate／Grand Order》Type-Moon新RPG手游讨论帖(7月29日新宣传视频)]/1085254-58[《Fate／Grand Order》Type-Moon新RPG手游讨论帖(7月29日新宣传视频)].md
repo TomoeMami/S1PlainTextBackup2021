@@ -12970,3 +12970,46 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">等所有材料+1的礼装出完到时可以出铜材料掉落+1 银材料掉落+1 金材料掉落+1 甚至还能出全材料掉落+1
 
+
+
+*****
+
+####  quanlix  
+##### 86751#       发表于 2022-1-26 17:27
+
+5%乘算，有个蛋用
+
+*****
+
+####  森兰丸  
+##### 86752#       发表于 2022-1-26 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54437139&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-26 17:17</a>
+
+你要5宝艾蕾了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">梦里啥都有
+
+*****
+
+####  AbigailWilliams  
+##### 86753#       发表于 2022-1-26 17:37
+
+那我带个5%羁绊复合礼装挖矿算不算提升圣晶石掉率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 86754#       发表于 2022-1-26 17:37
+
+这up礼装太搞笑了，是新的收藏品吗（指以后出一整套）
+
+*****
+
+####  alucardcz  
+##### 86755#       发表于 2022-1-26 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54437112&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-1-26 17:15</a>
+
+关键是这个效果在打柱子的时候有没有用，如果有用某些素材还是很赚的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5%还是乘算 我觉得批用都没 不如羁绊礼装稳定提升石头掉率
+
