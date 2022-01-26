@@ -15905,3 +15905,13 @@ Qu酱自从发降低活动频率公告后平均五天发一首歌，就连私号
 
 但屑社还是屑社<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">Qu酱和花剪刀会咋样真不好说，希望不要把小狮子也搞出事来……
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 10367#       发表于 2022-1-26 18:16
+
+23号目前唯一幸存者感言，话里话外也没确定会不会有雪耻演唱会就是了。
+[https://www.bilibili.com/video/BV1ir4y1e7Gr](https://www.bilibili.com/video/BV1ir4y1e7Gr)
+
