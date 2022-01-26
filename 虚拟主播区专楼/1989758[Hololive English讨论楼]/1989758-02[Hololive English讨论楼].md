@@ -1184,3 +1184,14 @@ ame新头像
 
 最后ame在bubb4bot里放这个：[A tiny angry squeaking Frog 🐸 | Super Cute Animals - BBC](https://www.youtube.com/watch?v=HBxn56l9WcU)
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 1610#       发表于 2022-1-26 13:36
+
+想看议会开牛郎店
+
+不过欧美好像没这种风潮?
+
