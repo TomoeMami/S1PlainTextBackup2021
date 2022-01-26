@@ -3030,3 +3030,43 @@ pay什么时候能放弃这yhm标志的刘海就好了，之前有张露额头�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">周五啊，还得请个假了
 
+
+
+*****
+
+####  kata魂  
+##### 4741#       发表于 2022-1-26 14:49
+
+虽然时间对不上，但这价格完全不亏啊
+
+*****
+
+####  cqc1021  
+##### 4742#       发表于 2022-1-26 14:59
+
+仅售66元，约等于0.2跳绳，惊了。
+之前yoasobi 1st live才一个小时都要卖179，乃木坂46的要卖277。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4743#       发表于 2022-1-26 15:03
+
+0.2跳绳草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彻底变成计量单位了
+
+*****
+
+####  chenflyyy  
+##### 4744#       发表于 2022-1-26 15:03
+
+之前在B站看的皮套人live都要200多还有几首歌被版权掉不能播的，这66元是真的太便宜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 4745#       发表于 2022-1-26 15:04
+
+谢谢鲤鱼让我的价值观得到了一点纠正<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
