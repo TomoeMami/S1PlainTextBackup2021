@@ -3263,3 +3263,42 @@ QQ图片20220126172310.jpg
 
 看它们急得这样，还整得出来活吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">难道还能live当天ddos攻击b站？
 
+
+
+*****
+
+####  stygian  
+##### 4765#       发表于 2022-1-26 18:31
+
+阿b会员购上一波谷么意思是
+
+<img src="https://img.saraba1st.com/forum/202201/26/183110rnichnih446m8i8k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-26 18:31 上传
+
+*****
+
+####  lj205  
+##### 4766#       发表于 2022-1-26 18:34
+
+她把官网贴出来了，大概因为官网也寄国际吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+我跟几个人凑了单摊下来邮费一个人也才50左右
+
+*****
+
+####  cat1230  
+##### 4767#       发表于 2022-1-26 18:41
+
+阿b怎么不想办法把东西弄上会员购啊，好歹之前也是你自家的艺人啊，不知道现在还是不是。
+
+*****
+
+####  chenflyyy  
+##### 4768#       发表于 2022-1-26 18:42
+
+现在简介都没写超电了，估计不是了吧
+
