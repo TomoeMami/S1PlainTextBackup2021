@@ -10700,3 +10700,14 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 大妈和凯多如果都在这里狗带我只能<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  晃来晃去  
+##### 56335#       发表于 2022-1-26 14:05
+
+<blockquote>银翼的维罗西 发表于 2022-1-15 11:16
+磁磁果实不靠谱，因为基德这角色从剧作的角度没有那么大的权重，看了逼乎那么多分析，还是倾向于五黄的橡胶 ...</blockquote>
+桃之助吃的不是人工培育的么？
+

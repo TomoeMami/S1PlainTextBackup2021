@@ -2911,3 +2911,56 @@ pay什么时候能放弃这yhm标志的刘海就好了，之前有张露额头�
 
 用的个人号，超电这波赢麻了
 
+
+
+*****
+
+####  ayangsu  
+##### 4727#       发表于 2022-1-26 14:10
+
+太便宜了有些不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  player3960  
+##### 4728#       发表于 2022-1-26 14:10
+
+票已买，这不得支持一波，鲤鱼还是对娘家人好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 4729#       发表于 2022-1-26 14:11
+
+挺好的，买了
+
+*****
+
+####  chenflyyy  
+##### 4730#       发表于 2022-1-26 14:11
+
+看多了日系live感觉这么便宜真的可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 4731#       发表于 2022-1-26 14:13
+
+买了买了，顺便考虑再拉两个人
+
+*****
+
+####  优妮可  
+##### 4732#       发表于 2022-1-26 14:18
+
+太便宜了，毫不犹豫的买了
+
+*****
+
+####  稀勢のささ  
+##### 4733#       发表于 2022-1-26 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这价是真的便宜  以前看皮套人的都贵多了
+
