@@ -12905,3 +12905,12 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 对菌皇的忠诚不绝对就是绝对不忠诚！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 86744#       发表于 2022-1-26 16:20
+
+隔壁为什么热衷于洗2.6的群体印象，是因为觉得日服经历过一部六章和CCC联动的还在玩的人已经灭绝了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
