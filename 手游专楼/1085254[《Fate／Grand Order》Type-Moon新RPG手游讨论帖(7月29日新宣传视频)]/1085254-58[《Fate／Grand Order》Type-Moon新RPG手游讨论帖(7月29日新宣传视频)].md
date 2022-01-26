@@ -12923,3 +12923,50 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾雷唐突复课
 
+
+
+*****
+
+####  alucardcz  
+##### 86746#       发表于 2022-1-26 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑灰掉率up礼装。。。。。。。太弱智了  那么多素材你准备一个一礼装吗。就不能出个all的吗
+
+*****
+
+####  森兰丸  
+##### 86747#       发表于 2022-1-26 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54437016&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-26 17:08</a>
+
+黑灰掉率up礼装。。。。。。。太弱智了  那么多素材你准备一个一礼装吗。就不能出个all的吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这么多材料不正好能慢慢挤牙膏似的出礼装么....一下子都给你出完了运营还玩球啊
+
+然后你就是出个掉率加成100%的礼装我也不会去刷黑灰啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 86748#       发表于 2022-1-26 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54437016&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-26 17:08</a>
+ 黑灰掉率up礼装。。。。。。。太弱智了  那么多素材你准备一个一礼装吗。就不能出个all的吗 ...</blockquote>
+关键是这个效果在打柱子的时候有没有用，如果有用某些素材还是很赚的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86749#       发表于 2022-1-26 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54437074&amp;ptid=1085254" target="_blank">森兰丸 发表于 2022-1-26 17:12</a>
+
+这么多材料不正好能慢慢挤牙膏似的出礼装么....一下子都给你出完了运营还玩球啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要5宝艾蕾了吗
+
+*****
+
+####  qixinno2  
+##### 86750#       发表于 2022-1-26 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">等所有材料+1的礼装出完到时可以出铜材料掉落+1 银材料掉落+1 金材料掉落+1 甚至还能出全材料掉落+1
+
