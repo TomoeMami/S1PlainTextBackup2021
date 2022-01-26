@@ -10682,3 +10682,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 世界ZF 把 “巨大化果实” 改名叫 “橡胶果实”，然后骗人 ...</blockquote>
 如果是巨大化，空岛那里剧情杀艾尼路就有矛盾了.
 
+
+
+*****
+
+####  ⊙天上天下  
+##### 56333#       发表于 2022-1-26 12:24
+
+大妈也快GG了，和之国正在加速烂尾<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
