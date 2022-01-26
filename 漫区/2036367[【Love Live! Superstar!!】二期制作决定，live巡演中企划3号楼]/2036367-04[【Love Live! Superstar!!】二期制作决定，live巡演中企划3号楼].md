@@ -3192,3 +3192,12 @@ QQ图片20220126172310.jpg
 
 <img src="https://img.saraba1st.com/forum/202201/26/172322sgx64mgemnnxpfxn.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 4756#       发表于 2022-1-26 17:57
+
+东京今天超过1万4确诊，病床快过50%……
+

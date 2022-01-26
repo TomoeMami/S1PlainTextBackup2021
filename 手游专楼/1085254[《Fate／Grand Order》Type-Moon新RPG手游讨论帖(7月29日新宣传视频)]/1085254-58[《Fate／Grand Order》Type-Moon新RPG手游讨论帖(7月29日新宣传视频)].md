@@ -13013,3 +13013,29 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 关键是这个效果在打柱子的时候有没有用，如果有用某些素材还是很赚的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5%还是乘算 我觉得批用都没 不如羁绊礼装稳定提升石头掉率
 
+
+
+*****
+
+####  angelooo  
+##### 86756#       发表于 2022-1-26 17:47
+
+就给一张，满破都不知道啥时候了，要是真要出一整套这游戏得苟到猴年马月去了
+
+*****
+
+####  qixinno2  
+##### 86757#       发表于 2022-1-26 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候出个材料掉落UP礼装池不就好了
+
+*****
+
+####  rooarr  
+##### 86758#       发表于 2022-1-26 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54437379&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-1-26 17:40</a>
+
+ 5%还是乘算 我觉得批用都没 不如羁绊礼装稳定提升石头掉率</blockquote>
+满破25%，加上好友就是50%啊，打柱子固定掉落数的情况下基本可以保证大部分出特定材料了
+
