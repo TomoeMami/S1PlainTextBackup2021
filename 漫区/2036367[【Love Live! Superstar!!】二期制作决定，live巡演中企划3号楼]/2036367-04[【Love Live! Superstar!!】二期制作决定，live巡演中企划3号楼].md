@@ -3070,3 +3070,16 @@ pay什么时候能放弃这yhm标志的刘海就好了，之前有张露额头�
 
 谢谢鲤鱼让我的价值观得到了一点纠正<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  L7lv6  
+##### 4746#       发表于 2022-1-26 15:29
+
+<blockquote>chenflyyy 发表于 2022-1-26 15:03
+之前在B站看的皮套人live都要200多还有几首歌被版权掉不能播的，这66元是真的太便宜了 ...</blockquote>
+管人是这样的，毕竟vtb舔狗。
+
+像仓木麻衣live也就128，花泽香菜的就59。
+
