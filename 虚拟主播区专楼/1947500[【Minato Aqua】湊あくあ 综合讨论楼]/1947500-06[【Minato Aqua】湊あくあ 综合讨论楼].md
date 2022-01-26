@@ -836,3 +836,12 @@ SOLOLIVE。又回到去年的感觉了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">记忆确实都回来了
 
+
+
+*****
+
+####  nowaki  
+##### 7591#       发表于 2022-1-26 20:05
+
+solo打法 anti变多 熬夜冲分上不去 anti更多 自暴自弃惩罚crew 一年不播 复活apex上大师。一种循环
+
