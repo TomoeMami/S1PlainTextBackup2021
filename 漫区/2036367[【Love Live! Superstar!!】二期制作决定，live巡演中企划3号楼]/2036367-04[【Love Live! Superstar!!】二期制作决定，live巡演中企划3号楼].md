@@ -3083,3 +3083,51 @@ pay什么时候能放弃这yhm标志的刘海就好了，之前有张露额头�
 
 像仓木麻衣live也就128，花泽香菜的就59。
 
+
+
+*****
+
+####  普之舜舜  
+##### 4747#       发表于 2022-1-26 15:46
+
+管人那个环境泰复杂了，不愿意接触
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  stygian  
+##### 4748#       发表于 2022-1-26 15:53
+
+<img src="https://img.saraba1st.com/forum/202201/26/155337hcullz1uqkj3lci3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-26 15:53 上传
+
+拉板鱼串看到这个回帖喷了
+
+*****
+
+####  黑雪姫  
+##### 4749#       发表于 2022-1-26 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54436168&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-26 15:53</a>
+
+拉板鱼串看到这个回帖喷了</blockquote>
+什么梗？ 查了一下是个棒球选手？
+
+*****
+
+####  stygian  
+##### 4750#       发表于 2022-1-26 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54436235&amp;ptid=2036367" target="_blank">黑雪姫 发表于 2022-1-26 16:01</a>
+
+什么梗？ 查了一下是个棒球选手？</blockquote>
+大谷在日本国内成绩挺不错，但是去了美国打出历史级别成绩，发展比在日本好很多
+
+类似墙内开花墙外香的感觉（当然也不是很贴切）
+
