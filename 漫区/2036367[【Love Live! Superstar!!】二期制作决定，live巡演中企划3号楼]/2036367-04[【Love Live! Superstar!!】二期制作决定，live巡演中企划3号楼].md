@@ -2964,3 +2964,69 @@ pay什么时候能放弃这yhm标志的刘海就好了，之前有张露额头�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这价是真的便宜  以前看皮套人的都贵多了
 
+
+
+*****
+
+####  starring  
+##### 4734#       发表于 2022-1-26 14:23
+
+66元票价实属便宜，买就完了
+
+下午四点半开始这个时间有点微妙，不知道支不支持回看
+
+*****
+
+####  cybernetics31  
+##### 4735#       发表于 2022-1-26 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">66元也太便宜了
+
+*****
+
+####  stygian  
+##### 4736#       发表于 2022-1-26 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54435069&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-26 14:23</a>
+
+66元票价实属便宜，买就完了
+
+下午四点半开始这个时间有点微妙，不知道支不支持回看 ...</blockquote>
+皮套人live我看过几次，都没有回看的，放心肯定有人录像
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4737#       发表于 2022-1-26 14:31
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-1-26 14:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ayangsu  
+##### 4738#       发表于 2022-1-26 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54435069&amp;ptid=2036367" target="_blank">starring 发表于 2022-1-26 14:23</a>
+66元票价实属便宜，买就完了
+
+下午四点半开始这个时间有点微妙，不知道支不支持回看 ...</blockquote>
+好像已经说明没回放了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 4739#       发表于 2022-1-26 14:32
+
+看不到，没关系，我也保证不了能看。先支持一波让门票数据好看点，有空找回放看就是了
+
+*****
+
+####  cybernetics31  
+##### 4740#       发表于 2022-1-26 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">周五啊，还得请个假了
+
