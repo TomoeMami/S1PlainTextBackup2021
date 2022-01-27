@@ -8539,3 +8539,17 @@ https://b23.tv/4fZ6tlW
 
 毕业+女同，第一个联想到的是利兹和青鸟，我还以为观众重合度应该挺高，翻了下专楼，好像并不是？
 
+
+
+*****
+
+####  堆雪若叶  
+##### 643#         楼主| 发表于 2022-1-27 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54443108&amp;ptid=2043629" target="_blank">ipcjs 发表于 2022-1-27 06:45</a>
+
+你们吹的也太高了，没对上电波，感觉就是个TV的加强版（
+
+毕业+女同，第一个联想到的是利兹和青鸟，我还以 ...</blockquote>
+只是泥潭往这方面讨论的少一点，其实观众重合率还是比较高的（楼里京吹头像的都不少）。其他地方也造了不少梗，比如再推一遍这个[https://www.bilibili.com/video/BV1sZ4y1S77J](https://www.bilibili.com/video/BV1sZ4y1S77J)<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
