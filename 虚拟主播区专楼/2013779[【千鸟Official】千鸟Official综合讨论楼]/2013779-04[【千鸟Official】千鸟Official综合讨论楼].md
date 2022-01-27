@@ -7182,3 +7182,46 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  T型钉宫病毒  
+##### 5249#       发表于 2022-1-27 14:46
+
+十万了，一波抽奖涨了快一千粉，静盾要来了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人民de救星  
+##### 5250#       发表于 2022-1-27 14:46
+
+静盾，来！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  灰色的狐狸  
+##### 5251#       发表于 2022-1-27 14:48
+
+盾来！
+
+*****
+
+####  袜子  
+##### 5252#       发表于 2022-1-27 14:54
+
+令人感慨，静子也十万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Quark  
+##### 5253#       发表于 2022-1-27 15:00
+
+盾来！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
