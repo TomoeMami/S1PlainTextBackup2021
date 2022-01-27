@@ -788,3 +788,15 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 作者后面不是还说了嘛，虽然导致的结果可能并不是审查的本意，但是他认为审查者是看过他的书从而做出了一 ...</blockquote>
 是啊，就是审查这个行为本身很值得喷，但负责修改的人还是看了小说的，就好像红楼梦后面是不是续写的是一回事，是否算狗尾续貂就是另一回事了。
 
+
+
+*****
+
+####  薄皮破船  
+##### 65#       发表于 2022-1-27 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54451589&amp;ptid=2049564" target="_blank">形式主义 发表于 2022-1-27 20:33</a>
+
+电影还好，后面书商对着电影的结局改原著的结局</blockquote>
+草哈哈哈哈哈哈哈······
+

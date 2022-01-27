@@ -4167,3 +4167,14 @@ https://nyfco.org/nakiriayame-zense/ ...</blockquote>
 https://nyfco.org/nakiriayame-zense/ ...</blockquote>
 看了眼老图了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 13914#       发表于 2022-1-27 21:12
+
+杯具啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+宝可梦世界的冠军就是用来被打败的
+
