@@ -5523,3 +5523,79 @@ One in nine recent virus cases in Israel are ...</blockquote>
 德奥合并总算来了，AY.4+BA.1，不知道毒性如何，不过感觉下一个大流行变种已经快来了 ...</blockquote>
 怎么说呢这么一波波大流行的情况下，筛选出逃逸变种概率也不会小
 
+
+
+*****
+
+####  jxwats1  
+##### 3433#       发表于 2022-1-28 02:11
+
+美国这轮疫情日均死亡数超过Delta峰值了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+[https://thehill.com/policy/healt ... -surpass-delta-peak](https://thehill.com/policy/healthcare/591430-us-covid-deaths-surpass-delta-peak)
+
+*****
+
+####  废狗  
+##### 3434#       发表于 2022-1-28 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454090&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-28 02:11</a>
+
+美国这轮疫情日均死亡数超过Delta峰值了
+
+https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
+令人愉悦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laotoutou  
+##### 3435#       发表于 2022-1-28 02:49
+
+who估计给资本背书了
+
+*****
+
+####  armedangel  
+##### 3436#       发表于 2022-1-28 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454090&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-28 02:11</a>
+美国这轮疫情日均死亡数超过Delta峰值了
+
+https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
+怕啥，过一周就“清·零”了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琉璃  
+##### 3437#       发表于 2022-1-28 04:06
+
+ 本帖最后由 琉璃 于 2022-1-28 04:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454090&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-28 02:11</a>
+
+美国这轮疫情日均死亡数超过Delta峰值了
+[https://thehill.com/policy/healt](https://thehill.com/policy/healt) ... -surpass-delta-pea ...</blockquote>
+英国也创自2021年2月以来的日死亡新高了。没错，各国现在奥密克戎的日死亡都开始破德尔塔创的记录了。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大江户战士  
+##### 3438#       发表于 2022-1-28 04:18
+
+ 本帖最后由 大江户战士 于 2022-1-28 04:22 编辑 
+
+西方各国对omicron采取放任错误而不是delta当时的还有点挽救的样子，直接导致本轮疫情严重扩大化，实际感染人数远高于报告数
+
+实际上，虽然没有进行强制封城，但部分地区已经进入到了自然封城的地步，大量工作人员生病导致各机构不能正常运转，公共服务、政府机构、甚至医院都进入停摆状态
+
+*****
+
+####  烦死了  
+##### 3439#       发表于 2022-1-28 04:29
+
+ 本帖最后由 烦死了 于 2022-1-28 04:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454366&amp;ptid=2039422" target="_blank">大江户战士 发表于 2022-1-28 04:18</a>
+
+西方各国对omicron采取放任错误而不是delta当时的还有点挽救的样子，直接导致本轮疫情严重扩大化，实际感染 ...</blockquote>
+只要主流媒体完好无损就行 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我看他们天天黑屁也没停过<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

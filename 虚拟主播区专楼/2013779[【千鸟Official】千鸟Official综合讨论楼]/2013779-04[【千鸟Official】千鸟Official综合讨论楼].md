@@ -7349,3 +7349,22 @@ co宝唱歌捏
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  gnoliyil  
+##### 5268#       发表于 2022-1-28 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54440228&amp;ptid=2013779" target="_blank">袜子 发表于 2022-1-26 05:48</a>
+
+永别了 牢笼！（我无线耳机带了十多个小时，耳朵疼死了）</blockquote>
+什么无线耳机能续航十多个小时。。
+
+*****
+
+####  gnoliyil  
+##### 5269#       发表于 2022-1-28 04:39
+
+陪着文静在直播间熬大鹰熬了两天，55小时看了接近30小时的直播，着实有点撑不住了。。太狠了
+
