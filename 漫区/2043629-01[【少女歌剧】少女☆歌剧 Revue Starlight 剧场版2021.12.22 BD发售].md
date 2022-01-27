@@ -8566,3 +8566,32 @@ https://b23.tv/4fZ6tlW
 毕业+女同，第一个联想到的是利兹和青鸟，我还以 ...</blockquote>
 tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结篇还去吸引新受众去。
 
+
+
+*****
+
+####  ipcjs  
+##### 645#       发表于 2022-1-27 16:50
+
+ 本帖最后由 ipcjs 于 2022-1-27 16:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54446380&amp;ptid=2043629" target="_blank">wly 发表于 2022-1-27 12:40</a>
+
+tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结篇还去吸引新受众去。 ...</blockquote>
+病人在外面吹的可是2021最佳动画<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+我还以为 文比奇巧，武比闪哈，结果就是个粉丝向剧场版，而我又不是粉丝（
+
+这动画，一切为了构建舞台服务，重演出，轻剧情，TV版我也就图个新奇才看的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  ziyer  
+##### 646#       发表于 2022-1-27 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54449279&amp;ptid=2043629" target="_blank">ipcjs 发表于 2022-1-27 16:50</a>
+
+病人在外面吹的可是2021最佳动画
+
+我还以为 文比奇巧，武比闪哈，结果就是个粉丝向剧场版，而我又不 ...</blockquote>
+没错，你说的很对
+
