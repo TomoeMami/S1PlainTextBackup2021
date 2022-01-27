@@ -827,3 +827,90 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 这次事件真的很妙
 
+
+
+*****
+
+####  Kazuhira  
+##### 68#       发表于 2022-1-27 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452101&amp;ptid=2049564" target="_blank">形式主义 发表于 2022-1-27 21:32</a>
+你爱喷就去喷，我是觉得这些事成全了这本书和电影
+
+对着电影改原著，为了审核改电影居然还更贴近原著了</blockquote>
+我现在理解你了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaoba329  
+##### 69#       发表于 2022-1-27 22:36
+
+ 本帖最后由 xiaoba329 于 2022-1-27 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452101&amp;ptid=2049564" target="_blank">形式主义 发表于 2022-1-27 21:32</a>
+
+你爱喷就去喷，我是觉得这些事成全了这本书和电影
+
+对着电影改原著，为了审核改电影居然还更贴近原著了</blockquote>
+我估摸这作者的心态大概是这样的：
+
+听说电影被魔改了结局——“我倒要看看这种毁原著的OOC作品还能二次魔改成什么捷豹样子”——卧槽这啥结局啊，怎么阴差阳错符合原著啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然后抱怨了下这些年被OOC作品粉丝骚扰的情况
+
+*****
+
+####  Kazuhira  
+##### 70#       发表于 2022-1-27 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452584&amp;ptid=2049564" target="_blank">xiaoba329 发表于 2022-1-27 22:36</a>
+我估摸这作者的心态大概是这样的：
+
+听说电影被魔改了结局——“我倒要看看这种毁原著的OOC作品还能二次魔 ...</blockquote>
+这波是三方齐乐，也许是四方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超友善伙伴  
+##### 71#       发表于 2022-1-27 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54449032&amp;ptid=2049564" target="_blank">PENTAX-DA 发表于 2022-01-27 16:29:53</a>
+所以原版小说是什么样得
+
+有没有私人译本</blockquote>翻了一下手里的书，就是没炸成的版本，估计国内中文版就一直是原版结局（没审查要求，编辑才懒得改呢）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  BT绅士  
+##### 72#       发表于 2022-1-27 22:45
+
+资本是蠢呢还是坏呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Luciferic  
+##### 73#       发表于 2022-1-27 22:46
+
+特意翻出了纸本，的确泰勒是没有死，关精神病院了。但是，搏击俱乐部永远都在，我就呵呵呵
+
+*****
+
+####  Stellar_Frost  
+##### 74#       发表于 2022-1-27 22:48
+
+ 本帖最后由 Stellar_Frost 于 2022-1-27 22:52 编辑 
+
+一个再明确不过的上下级托管管理关系，被反复有意无意地解读成单一的下级执行者“邪恶”，我也微笑起来了
+事情的确有很多层，但根本也没那么复杂，一场阐释的盛宴
+
+*****
+
+####  林无德  
+##### 75#       发表于 2022-1-27 22:50
+
+爬完楼，我就这表情→<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不论是改电影，改小说，还是本贴的辩经，整个时间线上的每一部分都能让我乐得半死，太难得了
+
