@@ -16061,3 +16061,13 @@ Qu酱自从发降低活动频率公告后平均五天发一首歌，就连私号
 
 kmt这起手就1W同接，个人势一哥？
 
+
+
+*****
+
+####  FCCHua  
+##### 10376#       发表于 2022-1-27 20:39
+
+同接两万突破
+封面图还是hnn做的，不愧是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
