@@ -3691,3 +3691,40 @@ b站是有直播录像回放功能的，只是貌似这功能没买票才能看�
 
 这就对了么，去三丽鸥做公开收录不联动一波就有鬼了
 
+
+
+*****
+
+####  ayangsu  
+##### 4805#       发表于 2022-1-27 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54450198&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-27 18:14</a>
+这就对了么，去三丽鸥做公开收录不联动一波就有鬼了
+
+五个正好对应了去年人气榜2~6名，第一的大耳狗没对应</blockquote>
+可可不就是大耳狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stygian  
+##### 4806#       发表于 2022-1-27 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54450318&amp;ptid=2036367" target="_blank">ayangsu 发表于 2022-1-27 18:27</a>
+
+可可不就是大耳狗
+
+—— 来自 S1Fun</blockquote>
+打错了，去年第一是布丁狗。。。
+
+*****
+
+####  竹筷  
+##### 4807#       发表于 2022-1-27 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54450329&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-27 18:28</a>
+
+打错了，去年第一是布丁狗。。。</blockquote>
+我刚去查了一下，去年是大耳狗第一啊
+
