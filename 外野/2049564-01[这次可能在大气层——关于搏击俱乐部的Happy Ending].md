@@ -1027,3 +1027,34 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 你一定要混在一起看才有趣，就是两杆大烟枪或者疯狂的石头的那种感觉
 
+
+
+*****
+
+####  聪少  
+##### 87#       发表于 2022-1-28 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452101&amp;ptid=2049564" target="_blank">形式主义 发表于 2022-1-27 21:32</a>
+你爱喷就去喷，我是觉得这些事成全了这本书和电影
+
+对着电影改原著，为了审核改电影居然还更贴近原著了</blockquote>
+并不是你想的那个样子。作者说了，为了改编电影，这些人是去看了书参考的，所以改编完更贴近原著是很自然的事情
+
+*****
+
+####  聪少  
+##### 88#       发表于 2022-1-28 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452584&amp;ptid=2049564" target="_blank">xiaoba329 发表于 2022-1-27 22:36</a>
+我估摸这作者的心态大概是这样的：
+
+听说电影被魔改了结局——“我倒要看看这种毁原著的OOC作品还能二次魔 ...</blockquote>
+并不是什么阴差阳错符合原著，作者自己说改编电影结局的人一定是看过并参考了原著
+
+*****
+
+####  newtroll  
+##### 89#       发表于 2022-1-28 00:45
+
+why so serious<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
