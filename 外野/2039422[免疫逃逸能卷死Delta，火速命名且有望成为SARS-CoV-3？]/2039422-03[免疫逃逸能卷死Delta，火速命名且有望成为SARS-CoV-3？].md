@@ -5629,3 +5629,24 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么</blockquote>
 欧美克隆已经逃免疫了，下一个变种鬼知道有多大杀伤
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3443#       发表于 2022-1-28 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454346&amp;ptid=2039422" target="_blank">琉璃 发表于 2022-1-28 04:06</a>
+
+英国也创自2021年2月以来的日死亡新高了。没错，各国现在奥密克戎的日死亡都开始破德尔塔创的记录了。[f:0 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202201/28/073135igkegaeggumgu6kk.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-01-27 15.31.11.png</strong> (38.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-28 07:31 上传
+
+和前两拨差的太多了
+
