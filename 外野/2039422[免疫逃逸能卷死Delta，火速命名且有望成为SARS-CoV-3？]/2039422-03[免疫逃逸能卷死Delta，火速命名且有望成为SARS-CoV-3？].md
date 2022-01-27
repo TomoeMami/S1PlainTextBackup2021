@@ -5481,3 +5481,12 @@ One in nine recent virus cases in Israel are ...</blockquote>
 
 <img src="https://p.sda1.dev/4/3f350579f265ec09eb41dd325321ed66/IMG_CMP_260132324.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最好不说  
+##### 3429#       发表于 2022-1-27 11:37
+
+德奥合并总算来了，AY.4+BA.1，不知道毒性如何，不过感觉下一个大流行变种已经快来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

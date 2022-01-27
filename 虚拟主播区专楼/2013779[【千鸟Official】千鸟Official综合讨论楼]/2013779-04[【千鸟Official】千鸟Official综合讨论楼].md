@@ -7171,3 +7171,14 @@ co宝怎么又在静子的房里出声了<img src="https://static.saraba1st.com/
 
 永别了 牢笼！（我无线耳机带了十多个小时，耳朵疼死了）<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5248#       发表于 2022-1-27 11:36
+
+你们是真的强。。。
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
