@@ -3614,3 +3614,12 @@ b站是有直播录像回放功能的，只是貌似这功能没买票才能看�
 
 其实鲤鱼的未成年粉丝不少的，拿不出66块也不是不可能的。
 
+
+
+*****
+
+####  cybernetics31  
+##### 4798#       发表于 2022-1-27 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鲤鱼粉丝二群见过初中的，没钱也正常
+
