@@ -5502,3 +5502,24 @@ One in nine recent virus cases in Israel are ...</blockquote>
 德奥合并总算来了，AY.4+BA.1，不知道毒性如何，不过感觉下一个大流行变种已经快来了 ...</blockquote>
 拍老师吹的640现在在哪里呢？
 
+
+
+*****
+
+####  橋白  
+##### 3431#       发表于 2022-1-27 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54445629&amp;ptid=2039422" target="_blank">最好不说 发表于 2022-1-27 11:37</a>
+德奥合并总算来了，AY.4+BA.1，不知道毒性如何，不过感觉下一个大流行变种已经快来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  形式主义  
+##### 3432#       发表于 2022-1-27 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54445629&amp;ptid=2039422" target="_blank">最好不说 发表于 2022-1-27 11:37</a>
+
+德奥合并总算来了，AY.4+BA.1，不知道毒性如何，不过感觉下一个大流行变种已经快来了 ...</blockquote>
+怎么说呢这么一波波大流行的情况下，筛选出逃逸变种概率也不会小
+
