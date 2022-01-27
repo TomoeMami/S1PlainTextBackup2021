@@ -5599,3 +5599,12 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 
 我看他们天天黑屁也没停过<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nkscorpio  
+##### 3440#       发表于 2022-1-28 06:24
+
+不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么
+
