@@ -914,3 +914,41 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 不论是改电影，改小说，还是本贴的辩经，整个时间线上的每一部分都能让我乐得半死，太难得了
 
+
+
+*****
+
+####  lostneverland  
+##### 76#       发表于 2022-1-27 22:57
+
+我觉得这各种结局魔改的事，都可以根据这个拍一部荒诞讽刺的电影。
+
+*****
+
+####  套路设计师  
+##### 77#       发表于 2022-1-27 23:03
+
+ 本帖最后由 套路设计师 于 2022-1-27 23:05 编辑 
+
+笑死了
+
+建议腾讯整点活，让爱德华诺顿出来补一下原作精神病院醒来的镜头，然后出一个符合原作版的新结局版本发售到美国，彻底巨魔到底。
+
+*****
+
+####  飞侠小黑  
+##### 78#       发表于 2022-1-27 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452807&amp;ptid=2049564" target="_blank">套路设计师 发表于 2022-1-27 23:03</a>
+笑死了</blockquote>
+直接ps一个这样的镜头就行了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  不容易注册上  
+##### 79#       发表于 2022-1-27 23:09
+
+反转反转再反转，最后大家都得到了自己需要的乐子。
+
