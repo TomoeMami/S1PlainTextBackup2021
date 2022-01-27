@@ -7338,3 +7338,14 @@ s1没上十页ppt<img src="https://static.saraba1st.com/image/smiley/face2017/05
 
 co宝唱歌捏
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5267#       发表于 2022-1-28 00:58
+
+还是弹唱<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

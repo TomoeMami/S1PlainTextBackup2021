@@ -1058,3 +1058,12 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 why so serious<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mwj  
+##### 90#       发表于 2022-1-28 01:08
+
+下一次反转难道会是这个版本其实才是最初版本，结果投资方为了某种原因修改了结局，但是已经上映了很多人已经看过了，于是资本通过控制信息让人们以为改编后结局才是真结局，最终产生曼德拉效应所有观众包括看过初版的人都以为修改完后的才是真的结局，数年后某视频网站去购买该片子版权，负责管理片源的人不小心把原版片源发送过去了，最终这初版影片在多年后再次公之于众？
+
