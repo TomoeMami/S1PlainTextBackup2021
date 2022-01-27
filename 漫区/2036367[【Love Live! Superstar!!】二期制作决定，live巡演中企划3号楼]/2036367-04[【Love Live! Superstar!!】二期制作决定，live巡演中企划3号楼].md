@@ -3819,3 +3819,12 @@ b站是有直播录像回放功能的，只是貌似这功能没买票才能看�
 总归是要有个垃圾场的，有时候推送到还会进去看看，有些还挺乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 管人还说能被认知到，偶像基本上也不会看这些的，这些撑死也只能破防粉丝，没意思
 
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4816#       发表于 2022-1-28 01:07
+
+贴吧首页这套算法成熟得很，ll吧逛多了就开始给你推送紫吧，2ch逛多了就开始给你推送孙吧，ps4逛多了就开始给你推送xone吧。前段时间脸书不是有内鬼指认系统有意识推送仇恨信息吗，我寻思贴吧内部怎么就没人出来坐实一下。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
