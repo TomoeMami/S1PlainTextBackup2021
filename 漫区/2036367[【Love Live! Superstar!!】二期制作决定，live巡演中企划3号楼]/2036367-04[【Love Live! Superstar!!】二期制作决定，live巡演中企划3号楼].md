@@ -3531,3 +3531,41 @@ ins快拍
 
 YJ的电子写真集，应该没有週P那个图那么多，希望这次不要压的太过……
 
+
+
+*****
+
+####  stygian  
+##### 4789#       发表于 2022-1-27 12:53
+
+指望阿b一个月之内研发出录像回放功能还是自己钻研下录屏技术吧。。。
+
+*****
+
+####  普之舜舜  
+##### 4790#       发表于 2022-1-27 13:03
+
+有的是大学生或者高中生之类的，所以难免钱不是自己的哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是66元真不贵，鲤鱼姐第一次演唱会，当然可以支持哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4791#       发表于 2022-1-27 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54446552&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-27 12:53</a>
+指望阿b一个月之内研发出录像回放功能还是自己钻研下录屏技术吧。。。</blockquote>
+目前是有相关方法可以进行录制
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  普之舜舜  
+##### 4792#       发表于 2022-1-27 13:04
+
+不过录制起来稍微麻烦点
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
