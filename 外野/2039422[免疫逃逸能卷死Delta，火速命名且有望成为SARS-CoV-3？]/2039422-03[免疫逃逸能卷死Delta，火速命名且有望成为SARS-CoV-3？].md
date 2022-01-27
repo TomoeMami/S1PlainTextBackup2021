@@ -5608,3 +5608,24 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 
 不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3441#       发表于 2022-1-28 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454366&amp;ptid=2039422" target="_blank">大江户战士 发表于 2022-1-28 04:18</a>
+
+西方各国对omicron采取放任错误而不是delta当时的还有点挽救的样子，直接导致本轮疫情严重扩大化，实际感染 ...</blockquote>
+要不是我刚出去一趟我还真信了
+
+*****
+
+####  yario  
+##### 3442#       发表于 2022-1-28 07:31
+
+<blockquote>nkscorpio 发表于 2022-1-28 06:24
+不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么</blockquote>
+欧美克隆已经逃免疫了，下一个变种鬼知道有多大杀伤
+

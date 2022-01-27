@@ -3649,3 +3649,34 @@ H好送
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  路人庚  
+##### 7922#       发表于 2022-1-28 07:08
+
+ 本帖最后由 路人庚 于 2022-1-28 07:24 编辑 
+
+草，东京7点播还行，真实睡醒了就播，这是真滴健康<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（好吧原来凌晨2点就醒了
+
+评论区来了个日英同传man还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+提到了游戏王，不过觉得现在的游戏王太复杂了不会玩
+
+*****
+
+####  鷹書たかしょ  
+##### 7923#       发表于 2022-1-28 07:22
+
+草，游戏王可还行，这家伙不会也跑去玩MD了吧
+
+*****
+
+####  路人庚  
+##### 7924#       发表于 2022-1-28 07:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大剑人阿咩（虽然并不怎么会用
+
