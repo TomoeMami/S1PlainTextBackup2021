@@ -8553,3 +8553,16 @@ https://b23.tv/4fZ6tlW
 毕业+女同，第一个联想到的是利兹和青鸟，我还以 ...</blockquote>
 只是泥潭往这方面讨论的少一点，其实观众重合率还是比较高的（楼里京吹头像的都不少）。其他地方也造了不少梗，比如再推一遍这个[https://www.bilibili.com/video/BV1sZ4y1S77J](https://www.bilibili.com/video/BV1sZ4y1S77J)<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wly  
+##### 644#       发表于 2022-1-27 12:40
+
+<blockquote>ipcjs 发表于 2022-1-27 06:45
+你们吹的也太高了，没对上电波，感觉就是个TV的加强版（
+
+毕业+女同，第一个联想到的是利兹和青鸟，我还以 ...</blockquote>
+tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结篇还去吸引新受众去。
+
