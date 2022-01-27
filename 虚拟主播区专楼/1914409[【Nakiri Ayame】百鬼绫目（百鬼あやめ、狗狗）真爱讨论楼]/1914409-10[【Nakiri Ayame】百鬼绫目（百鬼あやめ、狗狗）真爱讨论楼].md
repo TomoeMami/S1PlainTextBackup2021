@@ -4144,3 +4144,26 @@ https://nyfco.org/nakiriayame-zense/ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被阿希猜透了 
 
+
+
+*****
+
+####  nian1538  
+##### 13912#       发表于 2022-1-27 20:45
+
+起码给BDSP做的封面大概可以给阿尔宙斯用，不亏
+
+*****
+
+####  pliee  
+##### 13913#       发表于 2022-1-27 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54405744&amp;ptid=1914409" target="_blank">cctvyt1 发表于 2022-1-23 22:25</a>
+
+冲塔网更新了绫总部分 一次挖了4个小号
+
+颜出终于被挖到了?
+
+https://nyfco.org/nakiriayame-zense/ ...</blockquote>
+看了眼老图了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

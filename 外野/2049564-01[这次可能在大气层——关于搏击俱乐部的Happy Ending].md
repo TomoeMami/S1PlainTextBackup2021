@@ -758,3 +758,33 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Sunyalche  
+##### 63#       发表于 2022-1-27 20:53
+
+看完帖子下来, 这就是二创ooc同人粉丝怒喷因为审核修改意外变得符合原著的三次创作魔改作品了, 确实挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kazuhira| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  rockzrq  
+##### 64#       发表于 2022-1-27 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54451701&amp;ptid=2049564" target="_blank">飞侠小黑 发表于 2022-1-27 20:45</a>
+作者后面不是还说了嘛，虽然导致的结果可能并不是审查的本意，但是他认为审查者是看过他的书从而做出了一 ...</blockquote>
+是啊，就是审查这个行为本身很值得喷，但负责修改的人还是看了小说的，就好像红楼梦后面是不是续写的是一回事，是否算狗尾续貂就是另一回事了。
+

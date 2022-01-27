@@ -3787,3 +3787,14 @@ b站是有直播录像回放功能的，只是貌似这功能没买票才能看�
 
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  仟音一心  
+##### 4813#       发表于 2022-1-27 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54451579&amp;ptid=2036367" target="_blank">普之舜舜 发表于 2022-1-27 20:32</a>
+那个什么高冷紫吧帖子进首页了，是评价鲤鱼和菜宝的，那里面言论真难听，抹黑拱火的 ...</blockquote>
+那货是专职黑的，真·粪海狂蛆，为这个心塞不值得。
+
