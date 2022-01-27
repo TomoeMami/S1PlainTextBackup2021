@@ -818,3 +818,12 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 对了还加上知乎发言~这种共鸣的感觉太奇妙了
 
+
+
+*****
+
+####  magin  
+##### 67#       发表于 2022-1-27 21:54
+
+这次事件真的很妙
+
