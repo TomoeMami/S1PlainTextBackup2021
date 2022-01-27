@@ -8595,3 +8595,14 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 我还以为 文比奇巧，武比闪哈，结果就是个粉丝向剧场版，而我又不 ...</blockquote>
 没错，你说的很对
 
+
+
+*****
+
+####  rainknine  
+##### 647#       发表于 2022-1-27 23:22
+
+首席的声优maho得了新冠
+希望不会影响到嗓子
+以及剧场版的交响乐团live果然败给了霓虹防疫<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+

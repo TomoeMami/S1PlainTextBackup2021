@@ -1093,3 +1093,14 @@ solo打法 anti变多 熬夜冲分上不去 anti更多 自暴自弃惩罚crew �
 
 现在钻1钻2不会匹配到那么多大师了，这一点比去年好点
 
+
+
+*****
+
+####  面具13  
+##### 7623#       发表于 2022-1-27 23:34
+
+今天没得看，整了个《主播女孩重度依赖》玩，游戏里的女主播虽然没套皮，但假发的双马尾的发色跟夸宝还挺像的，属性也有些类似，还是“大天使”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 给夸宝配个精明的男友p能不能像游戏里一样保持天天直播，30天狂砍700w订阅啊？
+
+明天的live，完全不敢奶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 44.4%的病床使用率，怎么不加个0.1%？
+

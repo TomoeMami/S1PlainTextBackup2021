@@ -970,3 +970,35 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 笑死，这事情发展到现在就像一个哥德堡装置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  deadking  
+##### 82#       发表于 2022-1-27 23:32
+
+用我仅存的英语能力看完了英文报道，感觉作者的心情也是在坐过山车
+
+*****
+
+####  形式主义  
+##### 83#         楼主| 发表于 2022-1-27 23:42
+
+ 本帖最后由 形式主义 于 2022-1-27 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452685&amp;ptid=2049564" target="_blank">林无德 发表于 2022-1-27 22:50</a>
+爬完楼，我就这表情→
+
+不论是改电影，改小说，还是本贴的辩经，整个时间线上的每一部分都能让我乐 ...</blockquote>
+就这样奇妙的感觉，我语文能力有限，第五层是后面另外一层的同志@ammk 提出了……卧槽还能这么发展，本来还有点牵强的硬扯居然顺理成章了还比我预想的还要曲折~
+
+<img src="https://p.sda1.dev/4/c8f5ef434d3960ef4813002a30004a85/mmexportd7a9ba96ffb9e1be6406cf4403d4f7e7_1643274711600.jpeg" referrerpolicy="no-referrer">
+
+就这位同志的头像，完美诠释了我的心情
+
+*****
+
+####  柳生常闇斎  
+##### 84#       发表于 2022-1-27 23:48
+
+审核倒逼精品化了
+
