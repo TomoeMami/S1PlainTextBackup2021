@@ -952,3 +952,21 @@ Everyone gets a happy ending in China：大家都有光明的未来</blockquote>
 
 反转反转再反转，最后大家都得到了自己需要的乐子。
 
+
+
+*****
+
+####  dxx9664  
+##### 80#       发表于 2022-1-27 23:14
+
+帕拉尼克，也是短篇集《恶搞研习营》的作者
+
+其中的《肠子》这篇估计外野的各位都看过
+
+*****
+
+####  斑驳的阴影  
+##### 81#       发表于 2022-1-27 23:28
+
+笑死，这事情发展到现在就像一个哥德堡装置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
