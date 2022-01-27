@@ -3728,3 +3728,19 @@ b站是有直播录像回放功能的，只是貌似这功能没买票才能看�
 打错了，去年第一是布丁狗。。。</blockquote>
 我刚去查了一下，去年是大耳狗第一啊
 
+
+
+*****
+
+####  stygian  
+##### 4808#       发表于 2022-1-27 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54450415&amp;ptid=2036367" target="_blank">竹筷 发表于 2022-1-27 18:36</a>
+
+我刚去查了一下，去年是大耳狗第一啊
+
+去年还是中国地区和全球双冠</blockquote>
+。。。刚看了下，记混了，中间排名第一是布丁狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+去年中报时候我微博TL有几个女性友人一直在刷所以记得特别清楚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
