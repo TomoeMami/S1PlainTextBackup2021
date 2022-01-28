@@ -3823,3 +3823,14 @@ syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="htt
 
 白金和黄金就图标奖励不一样吧
 
+
+
+*****
+
+####  十九号大侠  
+##### 7941#       发表于 2022-1-28 14:52
+
+多个炫彩
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
