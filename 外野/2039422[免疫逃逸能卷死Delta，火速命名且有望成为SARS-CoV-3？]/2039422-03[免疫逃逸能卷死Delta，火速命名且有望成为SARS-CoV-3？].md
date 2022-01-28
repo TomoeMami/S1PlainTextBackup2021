@@ -5738,3 +5738,27 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 你在说啥今天数据一出，各大媒体已经吹成84年以来最强战绩了好么；相比之下我们上个季度同比才增 ...</blockquote>
 因为20年四季度我们已经恢复正常增速了……
 
+
+
+*****
+
+####  aptecccd  
+##### 3452#       发表于 2022-1-28 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454553&amp;ptid=2039422" target="_blank"> vimisbesteditor 发表于 2022-1-28 07:28</a> 引用:大江户战士 发表于 2022-1-28 04:18 西方各国对omicron采取放任错误而不是delta当时的还有点挽救的样子，直接导致本轮疫情严重扩大化，实际感染 ... 要不是我刚出去一趟我还真信了 </blockquote>
+在英国狗了第三年，打了两针辉瑞，除了新年上街买菜之后没出过门的莫名变小阳人，两周都过去了还发烧38度，天天咳得头疼，去nhs血氧不低体温不到38.5连胸片都不给拍，天天靠扑热息痛降体温。你说英国这操作搁你得病了你骂不骂？来自: iPhone客户端
+
+*****
+
+####  riczxc  
+##### 3453#         楼主| 发表于 2022-1-28 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462066&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-28 18:27</a>
+
+在英国狗了第三年，打了两针辉瑞，除了新年上街买菜之后没出过门的莫名变小阳人，两周都过去了还发烧38度 ...</blockquote>
+我也在疫区，就没敢出去买菜，网购了两年。
+
+出去如果只是n95戴好说不定还是可以的，就是一般人都没戴好，其实还是防毒面具比较容易戴。
+
+然后就不说这个买回来的菜其实还是要想办法消毒了，紫外灯、洗洁精还是酒精那就按情况讨论了。
+
