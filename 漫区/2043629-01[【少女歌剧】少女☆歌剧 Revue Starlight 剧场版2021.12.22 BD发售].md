@@ -8606,3 +8606,12 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 希望不会影响到嗓子
 以及剧场版的交响乐团live果然败给了霓虹防疫<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  凉宫春R  
+##### 648#       发表于 2022-1-28 11:26
+
+为什么结局纯去美国留学了……不是说上大学的吗
+

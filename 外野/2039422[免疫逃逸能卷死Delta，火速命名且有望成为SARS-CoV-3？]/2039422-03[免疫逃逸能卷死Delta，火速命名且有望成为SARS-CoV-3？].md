@@ -5681,3 +5681,36 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 和前两拨差的太多了</blockquote>
 体弱的老人和基础病患者又不会那么快再生。
 
+
+
+*****
+
+####  母星  
+##### 3447#       发表于 2022-1-28 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454476&amp;ptid=2039422" target="_blank">nkscorpio 发表于 2022-1-28 06:24</a>
+
+不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">他们也没办法呀，美国2021年四季度的GDP初核两年平均只增长了1.56%，比19年4季度低了将近1.2个百分点，就这水平都开始叫强劲增长了，真的是疼，再不装过去，1季度就没法装了。
+
+*****
+
+####  jxwats1  
+##### 3448#       发表于 2022-1-28 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54456638&amp;ptid=2039422" target="_blank">母星 发表于 2022-1-28 11:21</a>
+
+他们也没办法呀，美国2021年四季度的GDP初核两年平均只增长了1.56%，比19年4季度低了将近1.2个百 ...</blockquote>
+
+你在说啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高龙  
+##### 3449#       发表于 2022-1-28 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54376358&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-21 11:14</a>
+
+深陷奥密克戎疫情的世界各国或许终于等来了一个好消息。就在奥密克戎毒株首次被全世界知晓仅八周后，世卫组 ...</blockquote>
+这是一个新的骗局，美国在妄图入春后，舆论上“消灭新冠”然后谎称各种流行都是“流感化的地方病”为此已经控制了一些医疗评论机构等。根据21年的同类流行状况来看，这显然是不实际的。如果要找一个对比，就是去年日本那种假装自己没事的德行。
+
