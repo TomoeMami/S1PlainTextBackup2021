@@ -16192,3 +16192,12 @@ RD的live居然还没取消<img src="https://static.saraba1st.com/image/smiley/f
 
 现在阿夸正在丰州pit开着呢，下个月还有杏的全团live，下下个月有裸春的，都是几千人的场地，你看他们怕吗....<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃咸菜的  
+##### 10387#       发表于 2022-1-28 17:55
+
+之前虹也不是在现场感染的，有没有观众都有可能中的
+
