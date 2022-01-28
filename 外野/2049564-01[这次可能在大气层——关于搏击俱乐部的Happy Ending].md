@@ -1078,3 +1078,15 @@ why so serious<img src="https://static.saraba1st.com/image/smiley/face2017/045.p
 我现在理解你了</blockquote>
 你懂我这种感觉了吧，反正就是卧槽，太伟大了，我们都有一个快乐的结局
 
+
+
+*****
+
+####  kakul  
+##### 92#       发表于 2022-1-28 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54453840&amp;ptid=2049564" target="_blank">mwj 发表于 2022-1-28 01:08</a>
+
+下一次反转难道会是这个版本其实才是最初版本，结果投资方为了某种原因修改了结局，但是已经上映了很多人已 ...</blockquote>
+“感谢楼主让这段影片重见天日”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
