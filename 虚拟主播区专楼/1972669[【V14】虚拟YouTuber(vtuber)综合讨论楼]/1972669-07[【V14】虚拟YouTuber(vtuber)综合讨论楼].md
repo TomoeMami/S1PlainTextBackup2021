@@ -16174,3 +16174,12 @@ kmt这起手就1W同接，个人势一哥？
 
 RD的live居然还没取消<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  fastary  
+##### 10385#       发表于 2022-1-28 16:46
+
+还搁这儿live连发呢，不会真以为不要线下观众就没问题了吧？
+
