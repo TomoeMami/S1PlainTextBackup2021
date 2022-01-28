@@ -5801,3 +5801,19 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 在英国狗了第三年，打了两针辉瑞，除了新年上街买菜之后没出过门的莫名变小阳人，两周都过去了还发烧38度 ...</blockquote>
 敢问您在曼城？利兹？
 
+
+
+*****
+
+####  riczxc  
+##### 3458#         楼主| 发表于 2022-1-28 20:46
+
+ 本帖最后由 riczxc 于 2022-1-28 20:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462427&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-28 18:55</a>
+
+我每次出门都戴n95，每次回来酒精洗手衣服喷雾，原来住郊区也是一直网购，今年搬市中心有些超市没法儿送 ...</blockquote>
+
+我是说菜本身，要不就放一放（当然现在Omicron能在塑料上存活8天，是delta的两倍，比原始株就更不用说了），要不就只能买盒装的，否则没法用洗洁精洗。
+
+屋里要分沾染区还有洁净区...最近的阳性比例太高了，只能最高级别戒备了。
+
