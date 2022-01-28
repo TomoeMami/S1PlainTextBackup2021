@@ -10780,3 +10780,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 基德：是啊，那场景就会映入眼帘了，路飞成为海贼王的样子
 
+
+
+*****
+
+####  24k纯帅  
+##### 56343#       发表于 2022-1-29 05:57
+
+这个找索隆的死神有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -6008,3 +6008,54 @@ mrna么？基本上晚上会有副作用
 
 针对omicron的检测现在还没开始呢
 
+
+
+*****
+
+####  riczxc  
+##### 3476#         楼主| 发表于 2022-1-29 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54465138&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-28 23:42</a>
+
+都不可信那讨论外国疫情的时候，只能空对空吹水了
+
+— from Google Pixel 3 XL, Android 12 of S1 Next G ...</blockquote>
+数据和观点都可以批判接受的。
+
+官僚机构一般都不会撒谎，但是会用各种手法粉饰太平。
+
+*****
+
+####  jxwats1  
+##### 3477#       发表于 2022-1-29 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462427&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-28 18:55</a>
+
+我每次出门都戴n95，每次回来酒精洗手衣服喷雾，原来住郊区也是一直网购，今年搬市中心有些超市没法儿送 ...</blockquote>
+我有个同学也是，感染前只出去戴口罩买过一次菜。他比你情况好点，发烧两天后只剩下持续咳嗽了，不过咳了两周了也没好。
+
+顺便祝你早日康复
+
+*****
+
+####  vimisbesteditor  
+##### 3478#       发表于 2022-1-29 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54466153&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-29 02:20</a>
+我有个同学也是，感染前只出去戴口罩买过一次菜。他比你情况好点，发烧两天后只剩下持续咳嗽了，不过咳了 ...</blockquote>
+坛子里面有不少得了的，好像都是咳嗽的比较厉害。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3479#       发表于 2022-1-29 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54466000&amp;ptid=2039422" target="_blank">riczxc 发表于 2022-1-29 01:52</a>
+数据和观点都可以批判接受的。</blockquote>
+道理是这个道理，不过这批判的尺度就属于自由心证了。
+从相信发言到相信数据到数据也不信
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
