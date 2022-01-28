@@ -7386,3 +7386,15 @@ co宝唱歌捏
 
 [琳姐，我的超人](https://b23.tv/7oA5z1e)
 
+
+
+*****
+
+####  袜子  
+##### 5272#       发表于 2022-1-28 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454385&amp;ptid=2013779" target="_blank">gnoliyil 发表于 2022-1-28 04:38</a>
+
+什么无线耳机能续航十多个小时。。</blockquote>
+两只来回换的，无线的哪里能撑这么久啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
