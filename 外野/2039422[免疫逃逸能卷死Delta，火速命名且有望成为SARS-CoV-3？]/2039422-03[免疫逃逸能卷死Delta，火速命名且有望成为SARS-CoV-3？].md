@@ -5661,3 +5661,12 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么</blockquote>
 当然有可能的。but at what cost?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  configxxxx  
+##### 3445#       发表于 2022-1-28 09:27
+
+我觉得这波三月份能过去，就是这波完了下一波啥时候的问题
+
