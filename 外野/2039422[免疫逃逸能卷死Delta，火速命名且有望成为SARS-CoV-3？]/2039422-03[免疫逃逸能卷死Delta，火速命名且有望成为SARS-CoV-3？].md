@@ -5789,3 +5789,15 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462159&amp;ptid=2039422" target="_blank"> riczxc 发表于 2022-1-28 18:34</a> 引用:aptecccd 发表于 2022-1-28 18:27 在英国狗了第三年，打了两针辉瑞，除了新年上街买菜之后没出过门的莫名变小阳人，两周都过去了还发烧38度 ... 我也在疫区，就没敢出去买菜，网购了两年。  出去如果只是n95戴好说不定还是可以的，就是一般人都没戴好，其实还是防毒面具比较容易戴。   然后就不说这个买回来的菜其实还是要想办法消毒了，紫外灯、洗洁精还是酒精那就按情况讨论了。 </blockquote>
 买回来的菜我都是焯水或者做熟，阳了之后现在吃一些甜的东西是苦的，最近已经有些破罐破摔地买速食了……来自: iPhone客户端
 
+
+
+*****
+
+####  一问三不知  
+##### 3457#       发表于 2022-1-28 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462066&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-28 18:27</a>
+
+在英国狗了第三年，打了两针辉瑞，除了新年上街买菜之后没出过门的莫名变小阳人，两周都过去了还发烧38度 ...</blockquote>
+敢问您在曼城？利兹？
+

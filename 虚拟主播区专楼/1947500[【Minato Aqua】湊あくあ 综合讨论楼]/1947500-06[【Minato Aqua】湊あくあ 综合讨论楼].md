@@ -1297,3 +1297,12 @@ gal社entergram啊，不知道是主题作还是联动，一个全语音的可�
 
 只能说，过就过了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7647#       发表于 2022-1-28 19:22
+
+Gal可以参见Miko那个找Alcot做的，一小时流程，不过那个是跟着其他goods一起卖的，夸宝这个单卖，大概流程会稍微长点，两三小时吧
+

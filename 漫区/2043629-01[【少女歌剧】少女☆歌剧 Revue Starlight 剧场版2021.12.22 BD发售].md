@@ -8688,3 +8688,17 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">九九组还是没逃过奥密克戎
 
+
+
+*****
+
+####  青龙圣者  
+##### 655#       发表于 2022-1-28 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54461321&amp;ptid=2043629" target="_blank">angela5d30 发表于 2022-1-28 17:29</a>
+
+说起这个手游也怪可惜的，我前几天心血来潮回坑玩了阵，发现开服那些离别战纪&amp;三个火枪手系列已经完全过气&amp; ...</blockquote>
+飞鸽院有二代角色出场，后期可能会推，2月6号还有单独的音乐会。
+
+不过奥密克戎的事可能延期了。
+
