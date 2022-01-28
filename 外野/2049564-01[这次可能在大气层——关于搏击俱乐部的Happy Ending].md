@@ -1106,3 +1106,28 @@ why so serious<img src="https://static.saraba1st.com/image/smiley/face2017/045.p
 
 什么屌J8玩意，我说CNM之前，是不是真的要先睡一遍才能说啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  形式主义  
+##### 95#         楼主| 发表于 2022-1-28 10:48
+
+ 本帖最后由 形式主义 于 2022-1-28 10:49 编辑 
+
+我梳理下里面的几条线
+
+1、作者写出了小说为了批判消费主义和资本主义&gt;被资本发现改编成了电影&gt;电影结局为了更好的视觉享受修改了原著的结局&gt;各地书商照着电影结局改了原著结局&gt;但大家都享受到了一部好电影&gt;大家都有happy ending
+
+2、国内观众发现腾讯重新购买版权网络上线却改了结局&gt;这个结局引起讨论&gt;大家呼吁不要看腾讯的原版&gt;达成了用盗版代替正版的实践&gt;大家都有happy ending
+
+3、作者说了Happy ending这段话&gt;有些媒体为了不知道什么原因翻译了这段话&gt;被机智的网友发现了可能是俚语&gt;引起讨论&gt;后来发现作者这个happy ending可能真的是happy ending&gt;大家都有happy ending
+
+4、大家都来反对这腾讯修改结局&gt;大家发现作者发言嘲讽腾讯&gt;大家发现作者发言讽刺国外出版体系&gt;大家发现讽刺国内的话都可以讽刺国外&gt;大家发现全世界资本一般黑&gt;大家都有happy ending
+
+5、腾讯引进了一部老电影&gt;修改了结局&gt;引起了巨大的讨论流量&gt;发现骂他的人变成了看乐子的&gt;又引起了流量&gt;&gt;大家都有happy ending
+
+6、国外声讨国内审查体系修改电影结局&gt;批评了中国&gt;&gt;大家都有happy ending
+
+卧槽，太伟大了，我们都有一个快乐的结局
+
