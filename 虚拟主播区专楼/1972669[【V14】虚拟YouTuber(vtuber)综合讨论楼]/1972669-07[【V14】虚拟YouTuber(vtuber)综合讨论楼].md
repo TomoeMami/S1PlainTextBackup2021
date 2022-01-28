@@ -16141,3 +16141,36 @@ kmt这起手就1W同接，个人势一哥？
 柴柴的新模型是正太吗，好可爱哦
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 10384#       发表于 2022-1-28 16:23
+
+にじさんじ4周年「にじさんじ冬の陣2022」＜第二陣＞発表！3Dライブを含むイベント企画情報 一挙公開！
+
+<img src="https://img.saraba1st.com/forum/202201/28/162057ftujsba2bbhhi1hs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>「冬の陣＜第二陣＞」イベント情報 一挙公開！.jpeg</strong> (351.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-28 16:20 上传
+
+＜イベント ラインナップ＞
+
+①森中花咲 1st VR LIVE “下剋上”
+
+②JK組はココから始まった 2022
+
+③Rain Drops セカンドワンマンライブ『SQUALL ～雨ニモマケズ/風ニモマケズ～』
+
+④鈴鹿詩子 3D誕生日ライブ
+
+⑤ChroNoiR Winter Live -旅の終着点-
+
+（※順番は実施の時系列順（予定））
+
+RD的live居然还没取消<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer"> 
+
