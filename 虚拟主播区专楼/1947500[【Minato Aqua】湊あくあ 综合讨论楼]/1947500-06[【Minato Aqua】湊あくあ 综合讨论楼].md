@@ -1306,3 +1306,17 @@ gal社entergram啊，不知道是主题作还是联动，一个全语音的可�
 
 Gal可以参见Miko那个找Alcot做的，一小时流程，不过那个是跟着其他goods一起卖的，夸宝这个单卖，大概流程会稍微长点，两三小时吧
 
+
+
+*****
+
+####  nian1538  
+##### 7648#       发表于 2022-1-28 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53495682&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-11-10 21:22</a>
+
+葛皇的mini专连虚拟握手券都整上了，你杏跟进估计也只是时间问题，有点本能的不适了
+
+你们日本人再这么偶像 ...</blockquote>
+不省一楼：日本人在让人失望这方面倒是从不让人失望
+

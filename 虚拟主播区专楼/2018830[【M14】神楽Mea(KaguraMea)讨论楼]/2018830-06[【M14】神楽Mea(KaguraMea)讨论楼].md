@@ -3834,3 +3834,21 @@ syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="htt
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  yywzjsw  
+##### 7942#       发表于 2022-1-28 20:05
+
+ 本帖最后由 yywzjsw 于 2022-1-28 20:06 编辑 
+
+又拉胯了？艹，今天8<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">.30
+
+*****
+
+####  clvan_  
+##### 7943#       发表于 2022-1-28 20:06
+
+今天预告是八点半开，时间不一样
+
