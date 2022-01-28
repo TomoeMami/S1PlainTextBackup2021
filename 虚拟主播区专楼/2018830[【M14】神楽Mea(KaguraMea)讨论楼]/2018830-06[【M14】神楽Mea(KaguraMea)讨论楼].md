@@ -3807,3 +3807,19 @@ syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="htt
 
 渐渐的白金的队友和对手也多了起来……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7939#       发表于 2022-1-28 14:40
+
+黄金2 92胜点了，如果不是晚上要上班肯定继续打下去了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 7940#       发表于 2022-1-28 14:45
+
+白金和黄金就图标奖励不一样吧
+
