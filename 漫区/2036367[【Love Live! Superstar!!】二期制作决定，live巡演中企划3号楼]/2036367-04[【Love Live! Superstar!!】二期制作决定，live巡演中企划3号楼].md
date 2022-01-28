@@ -4022,3 +4022,38 @@ b站推给我的，关键词忘了。
 
 跨年春晚会在富士台重播
 
+
+
+*****
+
+####  stygian  
+##### 4836#       发表于 2022-1-28 20:08
+
+ 本帖最后由 stygian 于 2022-1-28 20:20 编辑 
+
+烂铁官方404频道传了鱼新专全张试听
+[https://www.youtube.com/watch?v=Ge_EiUL4TQ0](https://www.youtube.com/watch?v=Ge_EiUL4TQ0)
+
+T4笑嘻，歌还行，一rap就暴露出来还是外国人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+整张混的都nmd。。。lantis式混法，鱼嗓子又偏尖，听得不太舒服
+
+*****
+
+####  竹筷  
+##### 4837#       发表于 2022-1-28 20:12
+
+ 本帖最后由 竹筷 于 2022-1-28 20:18 编辑 
+
+初公开的几首歌都挺有感觉的诶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+喜欢第4,5,6首
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4838#       发表于 2022-1-28 20:15
+
+我就说第8首有东西没错，完全出不去了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
