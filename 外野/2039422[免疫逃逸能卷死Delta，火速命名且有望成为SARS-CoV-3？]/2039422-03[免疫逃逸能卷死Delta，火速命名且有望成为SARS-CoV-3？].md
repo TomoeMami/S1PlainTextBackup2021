@@ -5912,3 +5912,18 @@ who也不可信咯
 
 It’s dangerous to assume the omicron variant will mark the end of the pandemic’s most severe stage, World Health Organization boss Tedros Adhanom Ghebreyesus warned Monday.
 
+
+
+*****
+
+####  桐名  
+##### 3468#       发表于 2022-1-28 23:19
+
+现在让人比较担心的趋势是，抽卡的次数急剧增加，那么无论对社会还是个人抽出SSR的可能性都会更高
+
+另外越来越多longCOVID和多器官病毒检出都标志着新老师越发朝着更大范围/更长时间感染的方向走，那样的话，也许回归正常生活就是一场空谈
+
+除非新年到来病毒突然原地飞升了
+
+那要么在一次次躺平和新变异里拼RP抽卡，要么面对前者躺平带来的越来越大的压力
+
