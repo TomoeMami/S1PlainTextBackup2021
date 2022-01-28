@@ -3771,3 +3771,39 @@ syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="htt
 
 还有半小时就必须出门了，看来没有第二把了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 7935#       发表于 2022-1-28 14:01
+
+ 本帖最后由 T_Hb 于 2022-1-28 14:05 编辑 
+
+今天不出门，远程连线
+
+再来一把
+
+*****
+
+####  时间在我手中  
+##### 7936#       发表于 2022-1-28 14:01
+
+竟然还能再来一把的样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 7937#       发表于 2022-1-28 14:01
+
+躺了，再来c了下播
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  古战场亡魂  
+##### 7938#       发表于 2022-1-28 14:03
+
+渐渐的白金的队友和对手也多了起来……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
