@@ -1154,3 +1154,19 @@ crew歼灭战
 
 <img src="https://p.sda1.dev/4/5bbdb4ef3fedee94f0cd4addd397783c/9fe4282eedb5b6a.gif" referrerpolicy="no-referrer">试试存档
 
+
+
+*****
+
+####  离魂仙  
+##### 7630#       发表于 2022-1-28 17:31
+
+EN这两个相框着实绷不住，原来cover一直没解决美国人动捕问题吗
+
+*****
+
+####  面具13  
+##### 7631#       发表于 2022-1-28 17:38
+
+en没出3d啊，总不能上ame的small 3d吧
+
