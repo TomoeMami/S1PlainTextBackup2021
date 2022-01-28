@@ -3744,3 +3744,21 @@ syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="htt
 
 微相关，超猎都市这游戏要关服了可还行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 7932#       发表于 2022-1-28 13:31
+
+图奇
+
+*****
+
+####  十九号大侠  
+##### 7933#       发表于 2022-1-28 13:42
+
+其实我觉得波比操作比盖伦难
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
