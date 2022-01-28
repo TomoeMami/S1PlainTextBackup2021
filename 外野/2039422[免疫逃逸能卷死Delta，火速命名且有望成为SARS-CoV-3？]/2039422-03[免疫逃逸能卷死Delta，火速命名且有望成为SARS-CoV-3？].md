@@ -5817,3 +5817,35 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 
 屋里要分沾染区还有洁净区...最近的阳性比例太高了，只能最高级别戒备了。
 
+
+
+*****
+
+####  aptecccd  
+##### 3459#       发表于 2022-1-28 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462890&amp;ptid=2039422" target="_blank"> 一问三不知 发表于 2022-1-28 19:39</a> 引用:aptecccd 发表于 2022-1-28 18:27 在英国狗了第三年，打了两针辉瑞，除了新年上街买菜之后没出过门的莫名变小阳人，两周都过去了还发烧38度 ... 敢问您在曼城？利兹？ </blockquote>
+利村，原来在谢菲来自: iPhone客户端
+
+*****
+
+####  aptecccd  
+##### 3460#       发表于 2022-1-28 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54463682&amp;ptid=2039422" target="_blank"> riczxc 发表于 2022-1-28 20:46</a>  本帖最后由 riczxc 于 2022-1-28 20:51 编辑  引用:aptecccd 发表于 2022-1-28 18:55 我每次出门都戴n95，每次回来酒精洗手衣服喷雾，原来住郊区也是一直网购，今年搬市中心有些超市没法儿送 ...   我是说菜本身，要不就放一放（当然现在Omicron能在塑料上存活8天，是delta的两倍，比原始株就更不用说了），要不就只能买盒装的，否则没法用洗洁精 </blockquote>
+我现在住的还是studio，厨房和卧室没隔断，买回来直接冰箱了来自: iPhone客户端
+
+*****
+
+####  riczxc  
+##### 3461#         楼主| 发表于 2022-1-28 21:01
+
+ 本帖最后由 riczxc 于 2022-1-28 21:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54463793&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-28 20:57</a>
+
+我现在住的还是studio，厨房和卧室没隔断，买回来直接冰箱了</blockquote>
+
+直接冰箱肯定不行的。最好常温放地上（现在那么冷，外面也是冷链）。只能买能放几天的菜了（我们吃了两年都是如此）。
+
+放门口或者怎么样吧。当然也不一定是菜的问题。还可能是眼睛或者垂直传播。
+

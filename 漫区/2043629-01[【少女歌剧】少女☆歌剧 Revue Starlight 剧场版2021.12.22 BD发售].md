@@ -8702,3 +8702,19 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 不过奥密克戎的事可能延期了。
 
+
+
+*****
+
+####  nh_zzz  
+##### 656#       发表于 2022-1-28 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54459597&amp;ptid=2043629" target="_blank">青龙圣者 发表于 2022-1-28 15:00</a>
+
+手游新卡解包放出，确定为剧场版前传部分内容。
+
+狩猎的revue，嘎呜！</blockquote>
+技能又是圣翔特攻
+
+（蕉21年生日卡也是圣翔特攻，你就是内鬼吧）
+

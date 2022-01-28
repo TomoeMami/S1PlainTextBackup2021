@@ -4057,3 +4057,19 @@ T4笑嘻，歌还行，一rap就暴露出来还是外国人<img src="https://sta
 
 我就说第8首有东西没错，完全出不去了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 4839#       发表于 2022-1-28 20:51
+
+我个人挺喜欢她原本那两首旧歌的
+
+*****
+
+####  ykyin09  
+##### 4840#       发表于 2022-1-28 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">鲤鱼的ig快拍发了一袋烤红薯，是不是糖我不好说。
+
