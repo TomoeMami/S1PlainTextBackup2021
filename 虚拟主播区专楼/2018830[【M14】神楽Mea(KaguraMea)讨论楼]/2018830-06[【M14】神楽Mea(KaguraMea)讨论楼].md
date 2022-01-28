@@ -3762,3 +3762,12 @@ syl，果然在玩猛汉rice，最近一直在游戏里挖矿还行<img src="htt
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  时间在我手中  
+##### 7934#       发表于 2022-1-28 13:58
+
+还有半小时就必须出门了，看来没有第二把了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
