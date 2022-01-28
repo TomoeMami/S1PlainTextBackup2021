@@ -16201,3 +16201,24 @@ RD的live居然还没取消<img src="https://static.saraba1st.com/image/smiley/f
 
 之前虹也不是在现场感染的，有没有观众都有可能中的
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10388#       发表于 2022-1-28 18:44
+
+你虹怕的难道不是有liver没检查出来传遍staff然后扩大嘛。
+别家可还没有感染病例在啊
+
+*****
+
+####  zerojokers  
+##### 10389#       发表于 2022-1-28 18:45
+
+那边媒体宣传的，现在这叫“后新冠时代”
+
+换个名字，民间觉得自己又行了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

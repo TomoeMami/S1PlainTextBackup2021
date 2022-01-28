@@ -1243,3 +1243,23 @@ ktkr ftw。怎么唱得有气无力的
 
 不够发专辑可以发ep，便宜点还好卖
 
+
+
+*****
+
+####  nian1538  
+##### 7641#       发表于 2022-1-28 18:40
+
+查了一下エンターグラム
+
+是个做GAL的
+
+散了散了
+
+*****
+
+####  面具13  
+##### 7642#       发表于 2022-1-28 18:47
+
+gal社entergram啊，不知道是主题作还是联动，一个全语音的可攻略的夸宝应该卖的掉。needy streamer aqua<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
