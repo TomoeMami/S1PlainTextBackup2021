@@ -1320,3 +1320,31 @@ Gal可以参见Miko那个找Alcot做的，一小时流程，不过那个是跟�
 你们日本人再这么偶像 ...</blockquote>
 不省一楼：日本人在让人失望这方面倒是从不让人失望
 
+
+
+*****
+
+####  超紳士  
+##### 7649#       发表于 2022-1-28 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462498&amp;ptid=1947500" target="_blank">离魂仙 发表于 2022-1-28 19:00</a>
+
+这特么不就是量产型垃圾游戏，再加一个地狱级的棒读声优，出荷数能过千 我生吃亚克力立牌
+
+罢了，我只想知 ...</blockquote>
+我虽然不知道有多少crew真会买，但我其实还是很想看坛友生吃亚克力的<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超紳士  
+##### 7650#       发表于 2022-1-28 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462732&amp;ptid=1947500" target="_blank">nian1538 发表于 2022-1-28 19:22</a>
+
+Gal可以参见Miko那个找Alcot做的，一小时流程，不过那个是跟着其他goods一起卖的，夸宝这个单卖，大概流程 ...</blockquote>
+那玩意儿厨厨空间<blockquote>中央値        43
+
+平均値        49</blockquote>
+
+其中还有3个0分<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">出来这质量，怕不是又要抑郁了
+
