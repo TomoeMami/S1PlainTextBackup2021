@@ -5714,3 +5714,27 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 深陷奥密克戎疫情的世界各国或许终于等来了一个好消息。就在奥密克戎毒株首次被全世界知晓仅八周后，世卫组 ...</blockquote>
 这是一个新的骗局，美国在妄图入春后，舆论上“消灭新冠”然后谎称各种流行都是“流感化的地方病”为此已经控制了一些医疗评论机构等。根据21年的同类流行状况来看，这显然是不实际的。如果要找一个对比，就是去年日本那种假装自己没事的德行。
 
+
+
+*****
+
+####  大江户战士  
+##### 3450#       发表于 2022-1-28 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454563&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-28 07:32</a>
+
+和前两拨差的太多了</blockquote>
+前两波还没有疫苗，delta和omicron都是在已经打完疫苗的情况下流行的
+
+
+
+*****
+
+####  大江户战士  
+##### 3451#       发表于 2022-1-28 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54456701&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-28 11:25</a>
+
+你在说啥今天数据一出，各大媒体已经吹成84年以来最强战绩了好么；相比之下我们上个季度同比才增 ...</blockquote>
+因为20年四季度我们已经恢复正常增速了……
+
