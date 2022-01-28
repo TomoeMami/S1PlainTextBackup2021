@@ -8615,3 +8615,22 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 为什么结局纯去美国留学了……不是说上大学的吗
 
+
+
+*****
+
+####  凉宫春R  
+##### 649#       发表于 2022-1-28 11:27
+
+反正没看懂这个剧场版 各个方面都挺好的就是没看懂
+
+*****
+
+####  MASKA-1  
+##### 650#       发表于 2022-1-28 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54456717&amp;ptid=2043629" target="_blank">凉宫春R 发表于 2022-01-28 11:26:40</a>
+为什么结局纯去美国留学了……不是说上大学的吗</blockquote>蕉纯打完一架，两个人都没按志愿走了（打架还是有用的）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
