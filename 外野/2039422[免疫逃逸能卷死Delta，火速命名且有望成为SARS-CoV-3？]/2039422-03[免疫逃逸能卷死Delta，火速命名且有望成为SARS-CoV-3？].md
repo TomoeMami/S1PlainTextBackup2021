@@ -5980,3 +5980,15 @@ WHO一开始就不可信。当然比美国CDC还是要可信些。别比烂。</
 
 兄弟们，我早上第三针打完了啥反应没有，中午玩忘了晚上还出去蹦迪疯到现在，卧槽，怎么回事，打针的那边一点痛感都没有，都怀疑今天到底打没打了
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3474#       发表于 2022-1-29 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54465374&amp;ptid=2039422" target="_blank">sjbssd 发表于 2022-1-29 00:14</a>
+
+兄弟们，我早上第三针打完了啥反应没有，中午玩忘了晚上还出去蹦迪疯到现在，卧槽，怎么回事，打针的那边一 ...</blockquote>
+mrna么？基本上晚上会有副作用
+
