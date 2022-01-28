@@ -5927,3 +5927,28 @@ It’s dangerous to assume the omicron variant will mark the end of the pandemic
 
 那要么在一次次躺平和新变异里拼RP抽卡，要么面对前者躺平带来的越来越大的压力
 
+
+
+*****
+
+####  riczxc  
+##### 3469#         楼主| 发表于 2022-1-28 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54464770&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-28 22:51</a>
+
+who也不可信咯
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play</blockquote>
+WHO一开始就不可信。当然比美国CDC还是要可信些。别比烂。
+
+*****
+
+####  vimisbesteditor  
+##### 3470#       发表于 2022-1-28 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54465118&amp;ptid=2039422" target="_blank">riczxc 发表于 2022-1-28 23:39</a>
+WHO一开始就不可信。当然比美国CDC还是要可信些。别比烂。</blockquote>
+都不可信那讨论外国疫情的时候，只能空对空吹水了
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
