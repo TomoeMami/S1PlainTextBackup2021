@@ -5650,3 +5650,14 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 
 和前两拨差的太多了
 
+
+
+*****
+
+####  jxwats1  
+##### 3444#       发表于 2022-1-28 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454476&amp;ptid=2039422" target="_blank">nkscorpio 发表于 2022-1-28 06:24</a>
+不是奶，这波都感染一遍可能就真能过去了，死亡率已经下降了么</blockquote>
+当然有可能的。but at what cost?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
