@@ -1067,3 +1067,14 @@ why so serious<img src="https://static.saraba1st.com/image/smiley/face2017/045.p
 
 下一次反转难道会是这个版本其实才是最初版本，结果投资方为了某种原因修改了结局，但是已经上映了很多人已经看过了，于是资本通过控制信息让人们以为改编后结局才是真结局，最终产生曼德拉效应所有观众包括看过初版的人都以为修改完后的才是真的结局，数年后某视频网站去购买该片子版权，负责管理片源的人不小心把原版片源发送过去了，最终这初版影片在多年后再次公之于众？
 
+
+
+*****
+
+####  形式主义  
+##### 91#         楼主| 发表于 2022-1-28 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54452540&amp;ptid=2049564" target="_blank">Kazuhira 发表于 2022-1-27 22:28</a>
+我现在理解你了</blockquote>
+你懂我这种感觉了吧，反正就是卧槽，太伟大了，我们都有一个快乐的结局
+
