@@ -1129,3 +1129,28 @@ crew歼灭战
 
 买了线下票不去的看spwn需要再买线上票吗？一live两吃可以有
 
+
+
+*****
+
+####  面具13  
+##### 7627#       发表于 2022-1-28 17:04
+
+草，变成了她最喜欢的爱丽丝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 7628#       发表于 2022-1-28 17:14
+
+虽说壁画被批判了很久
+
+但是让现场观众看屏幕上的虚拟运镜好像也怪怪的
+
+*****
+
+####  aisakahammer  
+##### 7629#       发表于 2022-1-28 17:15
+
+<img src="https://p.sda1.dev/4/5bbdb4ef3fedee94f0cd4addd397783c/9fe4282eedb5b6a.gif" referrerpolicy="no-referrer">试试存档
+
