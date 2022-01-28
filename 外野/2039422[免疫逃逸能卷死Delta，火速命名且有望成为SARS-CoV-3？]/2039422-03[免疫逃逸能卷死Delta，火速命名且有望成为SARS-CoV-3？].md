@@ -5878,3 +5878,37 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 大英这么 严重啦……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">也就一个星期染个1%
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3465#       发表于 2022-1-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54456708&amp;ptid=2039422" target="_blank">高龙 发表于 2022-1-28 11:26</a>
+这是一个新的骗局，美国在妄图入春后，舆论上“消灭新冠”然后谎称各种流行都是“流感化的地方病”为此已 ...</blockquote>
+who也不可信咯
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  vimisbesteditor  
+##### 3466#       发表于 2022-1-28 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54464455&amp;ptid=2039422" target="_blank">lifengzhi321 发表于 2022-1-28 22:16</a>
+因为吃多了放下碗就骂娘，如果当地报个100阳性，你看那些人还会不会说放开别管。 ...</blockquote>
+我这小镇大概一天5000个左右
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  pushare  
+##### 3467#       发表于 2022-1-28 23:00
+
+喷了
+谭自己说的
+
+It’s dangerous to assume the omicron variant will mark the end of the pandemic’s most severe stage, World Health Organization boss Tedros Adhanom Ghebreyesus warned Monday.
+
