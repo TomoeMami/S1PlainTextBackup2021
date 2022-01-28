@@ -5849,3 +5849,32 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 
 放门口或者怎么样吧。当然也不一定是菜的问题。还可能是眼睛或者垂直传播。
 
+
+
+*****
+
+####  langnan88862  
+##### 3462#       发表于 2022-1-28 22:11
+
+大英这么 严重啦……
+
+*****
+
+####  lifengzhi321  
+##### 3463#       发表于 2022-1-28 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54462427&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-28 18:55</a>
+
+我每次出门都戴n95，每次回来酒精洗手衣服喷雾，原来住郊区也是一直网购，今年搬市中心有些超市没法儿送 ...</blockquote>
+因为吃多了放下碗就骂娘，如果当地报个100阳性，你看那些人还会不会说放开别管。
+
+*****
+
+####  riczxc  
+##### 3464#         楼主| 发表于 2022-1-28 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54464423&amp;ptid=2039422" target="_blank">langnan88862 发表于 2022-1-28 22:11</a>
+
+大英这么 严重啦……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">也就一个星期染个1%
+
