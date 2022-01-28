@@ -5992,3 +5992,19 @@ WHO一开始就不可信。当然比美国CDC还是要可信些。别比烂。</
 兄弟们，我早上第三针打完了啥反应没有，中午玩忘了晚上还出去蹦迪疯到现在，卧槽，怎么回事，打针的那边一 ...</blockquote>
 mrna么？基本上晚上会有副作用
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3475#       发表于 2022-1-29 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54464964&amp;ptid=2039422" target="_blank">桐名 发表于 2022-1-28 23:19</a>
+
+现在让人比较担心的趋势是，抽卡的次数急剧增加，那么无论对社会还是个人抽出SSR的可能性都会更高
+
+另外越来 ...</blockquote>
+你说得long covid和多器官检出，检测的都是delta和alpha。。。
+
+针对omicron的检测现在还没开始呢
+
