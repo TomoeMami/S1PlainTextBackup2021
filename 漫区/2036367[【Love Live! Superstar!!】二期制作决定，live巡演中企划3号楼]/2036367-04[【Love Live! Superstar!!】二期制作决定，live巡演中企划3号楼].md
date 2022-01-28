@@ -4082,3 +4082,14 @@ T4笑嘻，歌还行，一rap就暴露出来还是外国人<img src="https://sta
 
 青山姐，为了你，我要吃烤红薯
 
+
+
+*****
+
+####  cat1230  
+##### 4842#       发表于 2022-1-28 21:56
+
+ 本帖最后由 cat1230 于 2022-1-28 21:58 编辑 
+
+试听曲反复听了几遍。作为粉丝我买单，第四首真棒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
