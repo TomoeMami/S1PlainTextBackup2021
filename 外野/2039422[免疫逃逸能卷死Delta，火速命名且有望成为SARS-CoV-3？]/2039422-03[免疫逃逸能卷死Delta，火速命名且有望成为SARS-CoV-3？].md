@@ -5670,3 +5670,14 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 
 我觉得这波三月份能过去，就是这波完了下一波啥时候的问题
 
+
+
+*****
+
+####  coldhot3  
+##### 3446#       发表于 2022-1-28 10:58
+
+<blockquote>vimisbesteditor 发表于 2022-1-28 07:32
+和前两拨差的太多了</blockquote>
+体弱的老人和基础病患者又不会那么快再生。
+
