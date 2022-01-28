@@ -1090,3 +1090,19 @@ why so serious<img src="https://static.saraba1st.com/image/smiley/face2017/045.p
 下一次反转难道会是这个版本其实才是最初版本，结果投资方为了某种原因修改了结局，但是已经上映了很多人已 ...</blockquote>
 “感谢楼主让这段影片重见天日”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fleak  
+##### 93#       发表于 2022-1-28 10:11
+
+各方面来说都挺乐的，我反对第一跟第二次审查，并支持重拍结局，我这算不算意识形态标兵了
+
+*****
+
+####  smkf013  
+##### 94#       发表于 2022-1-28 10:17
+
+什么屌J8玩意，我说CNM之前，是不是真的要先睡一遍才能说啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
