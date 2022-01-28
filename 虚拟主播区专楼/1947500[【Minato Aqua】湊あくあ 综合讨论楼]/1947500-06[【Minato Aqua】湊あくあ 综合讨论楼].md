@@ -1263,3 +1263,37 @@ ktkr ftw。怎么唱得有气无力的
 
 gal社entergram啊，不知道是主题作还是联动，一个全语音的可攻略的夸宝应该卖的掉。needy streamer aqua<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  离魂仙  
+##### 7643#       发表于 2022-1-28 19:00
+
+这特么不就是量产型垃圾游戏，再加一个地狱级的棒读声优，出荷数能过千 我生吃亚克力立牌
+
+罢了，我只想知道几时ape
+
+*****
+
+####  面具13  
+##### 7644#       发表于 2022-1-28 19:04
+
+今晚80%会有个后日谈。肌肉酸痛为理由应该会鸽几天吧，然后健康上分到钻三钻二结束，笑着说个苦呀西，下赛季可以接着开，而不用像大乱斗上个VIP就自我封禁
+
+*****
+
+####  越动天下  
+##### 7645#       发表于 2022-1-28 19:08
+
+ 本帖最后由 越动天下 于 2022-1-28 19:09 编辑 
+
+不要小看crew的回旋购买能力呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 7646#       发表于 2022-1-28 19:09
+
+只能说，过就过了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -8679,3 +8679,12 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 我稍微补了手游主线&amp;些许活动剧情，感觉飞鸽院里对应将死的王与宰相的晶满(附带个弑君不成叛逃的文)，跟咸鱼馆的延伸写得蛮有意思的。而边境线阿露露队友怎么魔怔成那样了，明明削剧时还好好的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 还蛮想看到以飞鸽院为主，其他俩校为辅的外校动画的，可我感觉这系列大概快走到头了吧？唉。。。
 
+
+
+*****
+
+####  JustW  
+##### 654#       发表于 2022-1-28 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">九九组还是没逃过奥密克戎
+
