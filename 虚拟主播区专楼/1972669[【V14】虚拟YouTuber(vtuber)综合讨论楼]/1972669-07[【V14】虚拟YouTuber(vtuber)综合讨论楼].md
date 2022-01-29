@@ -16249,3 +16249,15 @@ RD的live居然还没取消<img src="https://static.saraba1st.com/image/smiley/f
 可惜qp她…脑抽加运气不好吧
 貌似昨天被diss的有点厉害
 
+
+
+*****
+
+####  FCCHua  
+##### 10393#       发表于 2022-1-29 17:54
+
+ 本帖最后由 FCCHua 于 2022-1-29 17:58 编辑 
+
+qp天天玩科塔夫，对比之前的水平...apex不退步才怪
+hnn这边kmt差几十分大师，好奇到时候上去后再拉谁
+

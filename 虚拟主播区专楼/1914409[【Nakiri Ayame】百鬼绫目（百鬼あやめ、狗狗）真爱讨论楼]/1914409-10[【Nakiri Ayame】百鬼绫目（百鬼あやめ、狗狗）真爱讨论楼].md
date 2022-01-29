@@ -4188,3 +4188,16 @@ https://nyfco.org/nakiriayame-zense/ ...</blockquote>
 别生闷气了
 开台让我打钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一仙  
+##### 13916#       发表于 2022-1-29 17:56
+
+感觉最近画ayamio的好多<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+不过真情演绎的母女感确实比两个yhm强行百合营业香而且稳定，这个CP应该不会再寄了。
+
+话说绫总战败后直播障碍什么时候能好<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
