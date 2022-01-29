@@ -4271,3 +4271,24 @@ nako也太背了…
 
 「谢谢大家，是脸」
 
+
+
+*****
+
+####  stygian  
+##### 4860#       发表于 2022-1-29 13:40
+
+干，家里吃饭错过第一场了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cxj649  
+##### 4861#       发表于 2022-1-29 13:40
+
+于是高冷紫吧真鲤黑进场，变成类似V吧反二次元吧的存在
+
+我感觉某吧主不一定喜欢把自己推的吧变成这种地方对吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
