@@ -4174,3 +4174,19 @@ mea姐忍不住笑就笑吧
 
 这首sing有点好
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7982#       发表于 2022-1-29 23:05
+
+这鬼bgm带着歌糊成鬼了
+
+*****
+
+####  T_Hb  
+##### 7983#       发表于 2022-1-29 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等下要昏迷在🛁里了
+
