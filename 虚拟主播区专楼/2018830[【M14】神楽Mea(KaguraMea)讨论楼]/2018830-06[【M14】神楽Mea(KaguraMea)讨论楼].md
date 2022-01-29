@@ -4075,3 +4075,29 @@ mea姐忍不住笑就笑吧
 
 这种抽象阵容都不知道怎么赢……
 
+
+
+*****
+
+####  Rem-清曲  
+##### 7971#       发表于 2022-1-29 19:09
+
+怎么有人在日服玩的这么急啊    <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 7972#       发表于 2022-1-29 19:10
+
+虽然不知道bp是怎么做的 但是看到己方选了泽丽 对面选了龙龟 血压已经满了 谢谢
+
+*****
+
+####  T_Hb  
+##### 7973#       发表于 2022-1-29 19:12
+
+ 本帖最后由 T_Hb 于 2022-1-29 19:23 编辑 
+
+怎么还在说塔诺西
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就我的回合 抽卡了
+
