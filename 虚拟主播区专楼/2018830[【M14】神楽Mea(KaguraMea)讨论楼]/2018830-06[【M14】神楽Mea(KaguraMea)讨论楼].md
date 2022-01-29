@@ -4043,3 +4043,26 @@ mea姐忍不住笑就笑吧
 
 晚9点
 
+
+
+*****
+
+####  路人庚  
+##### 7967#       发表于 2022-1-29 17:48
+
+突然老鼠台
+
+*****
+
+####  古战场亡魂  
+##### 7968#       发表于 2022-1-29 17:51
+
+草，下午打了四把，成功黄金1了……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 7969#       发表于 2022-1-29 18:19
+
+对面致命节奏中单赵信 同样是两件套 如果波比出的是反甲 估计2塔的时候就能杀了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

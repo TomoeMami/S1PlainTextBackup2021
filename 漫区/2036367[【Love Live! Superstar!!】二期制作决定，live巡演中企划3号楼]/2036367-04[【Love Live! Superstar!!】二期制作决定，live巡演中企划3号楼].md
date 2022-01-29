@@ -4419,3 +4419,35 @@ shi和shi聚在一起有时候会互相强化毒性
 然后要是因为什么契机导致粪坑泄漏了就会 ...</blockquote>
 不用啥思路的，直接一句谁爆鲨谁就可以吵黑起来了，互相攻击爆黑料
 
+
+
+*****
+
+####  stygian  
+##### 4873#       发表于 2022-1-29 18:24
+
+你鲤鱼姐最近日文自信度越来越高，都敢不事先背词直接上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 4874#       发表于 2022-1-29 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而读信该卡还是卡
+
+*****
+
+####  秋月艾莉  
+##### 4875#       发表于 2022-1-29 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54473980&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-29 17:45</a>
+
+猫头全是汉化缝合我还不如直接看2酱下三路攻击，不过一四一五年我就开始不太去就是了
+
+syl生放还有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复读日舆论是无法避免的，毕竟再怎么说日才是主战场，又不是个个都有成规模的中华炮
+
+要我说最好玩就是14到16，黄金期且一姐还没定还有得撕，次时代中坚也混战，所以原创也多课也多
+
+再怎么说下三路撕开了在我看来还是没有一群人煞有介事的讨论无卵用的东西娱乐效果足，尤其是讨论太子那段时间，吹一个死一个节目效果简直拉满<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
