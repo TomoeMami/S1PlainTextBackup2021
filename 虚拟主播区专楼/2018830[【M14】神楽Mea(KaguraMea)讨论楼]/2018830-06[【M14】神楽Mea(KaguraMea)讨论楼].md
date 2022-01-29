@@ -4126,3 +4126,24 @@ mea姐忍不住笑就笑吧
 
 不止上单 下路也被对面打穿了 这边也就只有艾克是最肥的
 
+
+
+*****
+
+####  病態極端  
+##### 7977#       发表于 2022-1-29 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54467437&amp;ptid=2018830" target="_blank">bapijun1 发表于 2022-1-29 09:36</a>
+
+考古翻到了mea最早的几个二创，发现最开始还有mea是孙笑川妹妹的二设，令人感慨，那个时候第一批粉丝还是抽 ...</blockquote>
+美好時代，回不去了
+
+*****
+
+####  十九号大侠  
+##### 7978#       发表于 2022-1-29 21:21
+
+我之前确实是连体人
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
