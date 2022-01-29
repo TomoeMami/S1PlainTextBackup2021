@@ -16370,3 +16370,12 @@ ray这说书老熟练了
 
 锐评华东理工偷耳机事件<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 10405#       发表于 2022-1-29 19:22
+
+我们ngo姐这个选曲啊，每回都很在点上。♡Original♡ 「グリズリーに襲われたら♡」 youtube.com/watch?v=k7eGPM… 歌　神宿さん 作詞・作曲：清 竜人さん  ♡Vocal♡ 周央サンゴ Twitter（@Suo_Sango）  ♡Mix/編曲♡ 武藤星児さん HP（ hitoikizaka.com ） 
+
