@@ -7435,3 +7435,14 @@ co宝唱歌捏
 
 我超 官号sc也审核了 真的哈人
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5277#       发表于 2022-1-29 17:20
+
+王木木五杀吼得整个宿舍都听得到
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
