@@ -16467,3 +16467,21 @@ syl，hnn这带躺大师是当定了，好在是老公，cp厨力量大</blockqu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 10414#       发表于 2022-1-30 01:48
+
+legend好像很容易晕是不，郡郡说之前有打算播，就去看ssk的直播预习结果看晕了，结果最后ssk自己也说晕了玩不了要下播（下次再继续），郡心想gamers都晕那她铁没戏所以就作罢了，可惜…
+
+*****
+
+####  poipanchao  
+##### 10415#       发表于 2022-1-30 01:58
+
+哈哥能处，宝可梦什么傻逼游戏
+
+至今不知道宝可梦有啥乐趣
+
