@@ -16379,3 +16379,21 @@ ray这说书老熟练了
 
 我们ngo姐这个选曲啊，每回都很在点上。♡Original♡ 「グリズリーに襲われたら♡」 youtube.com/watch?v=k7eGPM… 歌　神宿さん 作詞・作曲：清 竜人さん  ♡Vocal♡ 周央サンゴ Twitter（@Suo_Sango）  ♡Mix/編曲♡ 武藤星児さん HP（ hitoikizaka.com ） 
 
+
+
+*****
+
+####  Suny08  
+##### 10406#       发表于 2022-1-29 20:13
+
+010这事放本社起码半年禁闭起步吧，只能说国v观众确实舔
+
+*****
+
+####  天空木鱼  
+##### 10407#       发表于 2022-1-29 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54476051&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-1-29 20:13</a>
+010这事放本社起码半年禁闭起步吧，只能说国v观众确实舔</blockquote>
+但010对于维阿可是远大于虹一哥
+
