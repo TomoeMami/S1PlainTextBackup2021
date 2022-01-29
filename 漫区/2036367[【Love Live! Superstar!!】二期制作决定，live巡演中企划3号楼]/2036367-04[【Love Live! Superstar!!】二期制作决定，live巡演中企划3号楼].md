@@ -4341,3 +4341,66 @@ shi和shi聚在一起有时候会互相强化毒性
 
 具足虫上趋势了www
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4867#       发表于 2022-1-29 17:30
+
+ 本帖最后由 秋月艾莉 于 2022-1-29 17:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54473545&amp;ptid=2036367" target="_blank">D麦林 发表于 2022-1-29 17:14</a>
+
+那不一定是这样的
+
+shi和shi聚在一起有时候会互相强化毒性
+
+然后要是因为什么契机导致粪坑泄漏了就会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">再说吧，现在看起来不过就这
+
+要是真建起个后花园混战我开个号也进去撕个痛快，现在就单纯招点别团的黑粉黑屁星星真的没意思
+
+久保哥怎么说好歹也混过虚实吧吧（虽然在我看来虚实本来就没猫头有意思），这水平也太低
+
+*****
+
+####  stygian  
+##### 4868#       发表于 2022-1-29 17:36
+
+ 本帖最后由 stygian 于 2022-1-29 17:38 编辑 
+
+猫头都是只能拿日本的二手黑料来说事，时效性太烂远不如5ch/推特，更比生女孩吧/路边社/无限奇迹差远了，那边好歹都是一手料
+
+高冷紫这二手屎+无限复读，日语水平还烂，属实不太彳亍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月艾莉  
+##### 4869#       发表于 2022-1-29 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54473844&amp;ptid=2036367" target="_blank">stygian 发表于 2022-1-29 17:36</a>
+
+猫头都是只能拿日本的二手黑料来说事，时效性太烂远不如5ch/推特，更比生女孩吧/路边社/无限奇迹差远了，那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡说八道，这么多个老师开课明明就很有趣
+
+另外三个大家都扯下皮撕开了少了点婊演性质赤膊斗殴反而没那么好玩
+
+*****
+
+####  cxj649  
+##### 4870#       发表于 2022-1-29 17:44
+
+虽然那吧转型LL粪坑也不是不行，但是某吧主原先依仗的48粉也不会帮他了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 4871#       发表于 2022-1-29 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54473916&amp;ptid=2036367" target="_blank">秋月艾莉 发表于 2022-1-29 17:40</a>
+
+胡说八道，这么多个老师开课明明就很有趣
+
+另外三个大家都扯下皮撕开了少了点婊演性质赤膊斗殴反而 ...</blockquote>
+猫头全是汉化缝合我还不如直接看2酱下三路攻击，不过一四一五年我就开始不太去就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
