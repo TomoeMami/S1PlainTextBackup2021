@@ -4245,3 +4245,12 @@ nako也太背了…
 
 好在这个变种重病率不高，就算得了应该也没啥大问题吧。
 
+
+
+*****
+
+####  cybernetics31  
+##### 4858#       发表于 2022-1-29 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼在自己的广播里说要减肥来着…………
+
