@@ -4162,3 +4162,57 @@ T4笑嘻，歌还行，一rap就暴露出来还是外国人<img src="https://sta
 
 今天突然出这情况，剩下四人很大可能是密接啊
 
+
+
+*****
+
+####  梶原ひかり  
+##### 4849#       发表于 2022-1-29 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54467621&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-1-29 09:56</a>
+
+今天突然出这情况，剩下四人很大可能是密接啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">拉拉公告里 另外四个做了抗原检测了..大概率没中 如果nako梅开二度 或许四个有无症状感染
+
+*****
+
+####  仟音一心  
+##### 4850#       发表于 2022-1-29 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54467663&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-1-29 10:01</a>
+拉拉公告里 另外四个做了抗原检测了..大概率没中 如果nako梅开二度 或许四个有无症状感染 ...</blockquote>
+看了花江夏树 密接——检测阴性——检测阳性的过程，感觉现在检测阴性可能只是暂时的。
+
+*****
+
+####  kata魂  
+##### 4851#       发表于 2022-1-29 10:11
+
+这……nako也太倒霉了吧，事务所又那样子没什么个人活动
+
+*****
+
+####  梶原ひかり  
+##### 4852#       发表于 2022-1-29 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54467773&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-1-29 10:11</a>
+
+看了花江夏树 密接——检测阴性——检测阳性的过程，感觉现在检测阴性可能只是暂时的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抗原检测 不太准...最终结果还得看PCR 
+
+只能祈求 nako只是发烧 出场四个人也没中了 不然有可能群聚了..
+
+*****
+
+####  starring  
+##### 4853#       发表于 2022-1-29 10:15
+
+JP早就摆烂，连潜伏期都不在意检测一次阴性就让人继续工作，这种情况下谁中招都不奇怪。只好希望她们没事，发现了就尽早治疗早点康复
+
+*****
+
+####  cybernetics31  
+##### 4854#       发表于 2022-1-29 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望鱼没事，下个月11号就1st了
+
