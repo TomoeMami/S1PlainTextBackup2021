@@ -10789,3 +10789,15 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 这个找索隆的死神有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  管他三俗  
+##### 56344#       发表于 2022-1-29 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54466611&amp;ptid=98922" target="_blank">24k纯帅 发表于 2022-1-29 05:57</a>
+
+这个找索隆的死神有点意思</blockquote>
+是御田！御田要夺索隆身体重返OP世界的顶点了！
+

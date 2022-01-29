@@ -4093,3 +4093,72 @@ T4笑嘻，歌还行，一rap就暴露出来还是外国人<img src="https://sta
 
 试听曲反复听了几遍。作为粉丝我买单，第四首真棒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 4843#       发表于 2022-1-29 09:46
+
+今天的公开录音nako发热不能来
+
+<img src="https://img.saraba1st.com/forum/202201/29/094554vjw0otfkoeut2r27.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (90.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-29 09:45 上传
+
+*****
+
+####  任天索尼子  
+##### 4844#       发表于 2022-1-29 09:47
+
+这是二次感染了吧 你日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  优妮可  
+##### 4845#       发表于 2022-1-29 09:47
+
+<img src="https://img.saraba1st.com/forum/202201/29/094712gyjojky5h0vo4sno.jpg" referrerpolicy="no-referrer">
+
+<strong>20220129_093813.jpg</strong> (99.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-29 09:47 上传
+
+老是nako受伤，唉
+
+*****
+
+####  welcom  
+##### 4846#       发表于 2022-1-29 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54467530&amp;ptid=2036367" target="_blank">saya1892 发表于 2022-1-29 09:46</a>
+
+今天的公开录音nako发热不能来</blockquote>
+怎么感觉不是单纯发烧？
+
+*****
+
+####  秋月艾莉  
+##### 4847#       发表于 2022-1-29 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">以O种的感染力和日本这个感染情况，说句不好听的真是迟早的事，AB社也有几个中招了
+
+幸好tour已经完走了暂时不用面对人群，希望nako没什么大碍，早日康复
+
+今天家里的顶梁柱不在估计又要剩下四个又要开摆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 4848#       发表于 2022-1-29 09:56
+
+今天突然出这情况，剩下四人很大可能是密接啊
+
