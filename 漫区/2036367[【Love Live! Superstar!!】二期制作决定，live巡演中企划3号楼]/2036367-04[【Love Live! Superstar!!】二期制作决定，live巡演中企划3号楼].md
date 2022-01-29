@@ -4216,3 +4216,23 @@ JP早就摆烂，连潜伏期都不在意检测一次阴性就让人继续工作
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望鱼没事，下个月11号就1st了
 
+
+
+*****
+
+####  ads147147  
+##### 4855#       发表于 2022-1-29 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说不好听的，这个病毒肺炎只是表征，怕就怕真的会突破血脑屏障去攻击重要的神经系统，甚至留在那，疫情以来一直看圆脸的视频，真觉得只有清零才能解决一切问题。你感染一种不代表你不会再感染新品种。
+
+资本主义不把人当人的又一力证。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  TCone  
+##### 4856#       发表于 2022-1-29 10:39
+
+nako也太背了…
+
