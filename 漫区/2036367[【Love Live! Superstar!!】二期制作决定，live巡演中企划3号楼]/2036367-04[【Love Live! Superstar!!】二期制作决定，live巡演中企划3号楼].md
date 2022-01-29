@@ -4254,3 +4254,20 @@ nako也太背了…
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼在自己的广播里说要减肥来着…………
 
+
+
+*****
+
+####  saya1892  
+##### 4859#       发表于 2022-1-29 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中午的听完了，下午要开会
+
+「鲤酱觉得自己最可爱的是哪里呢」
+
+「不知道，大家说」
+
+「脸」
+
+「谢谢大家，是脸」
+
