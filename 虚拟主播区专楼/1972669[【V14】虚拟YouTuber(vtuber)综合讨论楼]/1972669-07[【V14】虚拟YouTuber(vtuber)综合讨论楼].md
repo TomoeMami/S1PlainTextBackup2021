@@ -16295,3 +16295,78 @@ syl，hnn这带躺大师是当定了，好在是老公，cp厨力量大
 
 海子姐又咋了细说情弱求求了
 
+
+
+*****
+
+####  FCCHua  
+##### 10398#       发表于 2022-1-29 18:42
+
+ 本帖最后由 FCCHua 于 2022-1-29 18:56 编辑 
+
+毕竟她又不追求含金量，反正20年刚进vspo没多久就和qp他们组排上过大师
+不过话说回来hnn应该是vspo里每个赛季上大师上的最勤快的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 10399#       发表于 2022-1-29 18:45
+
+异议，hnn到现在都没闪大师标，怎么跟noah比勤奋的
+
+*****
+
+####  FCCHua  
+##### 10400#       发表于 2022-1-29 18:50
+
+ 本帖最后由 FCCHua 于 2022-1-29 18:57 编辑 
+
+去维基查了查，比胡桃少一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+“我们三系列”，再后面就是qp了
+
+*****
+
+####  lhawp  
+##### 10401#       发表于 2022-1-29 18:51
+
+[https://www.youtube.com/watch?v=Q-aOuGeO3Zk](https://www.youtube.com/watch?v=Q-aOuGeO3Zk)
+
+ray这说书老熟练了
+
+*****
+
+####  ヒトニナル  
+##### 10402#       发表于 2022-1-29 18:51
+
+云了一下，我只能说海子姐这波不行。
+
+*****
+
+####  Ketestrait  
+##### 10403#       发表于 2022-1-29 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54474750&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2022-1-29 18:38</a>
+海子姐又咋了细说情弱求求了</blockquote>
+谈网暴时说华东理工偷耳机女生可怜被冲到道歉
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 2|👍|
+
+查看全部评分
+
+*****
+
+####  free  
+##### 10404#       发表于 2022-1-29 18:57
+
+[https://www.bilibili.com/video/BV13S4y1Z7wQ](https://www.bilibili.com/video/BV13S4y1Z7wQ)
+
+锐评华东理工偷耳机事件<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
