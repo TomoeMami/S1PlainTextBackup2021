@@ -13799,3 +13799,14 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 萝拉和真夏也太尊了，真希望能看更多她们的故事
 
+
+
+*****
+
+####  Cloudslin  
+##### 2550#       发表于 2022-1-31 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54488599&amp;ptid=1963832" target="_blank">无缘好贵 发表于 2022-1-30 21:04</a>
+今年中日恢复邦交50周年，照理说会有文化交流活动，对于合家欢动画来说不太可能卡吧，而且新Q娃有中华风角 ...</blockquote>
+别的不说，就本子现在对冬奥的态度，今年官方渠道关系正常的可能性很小
+
