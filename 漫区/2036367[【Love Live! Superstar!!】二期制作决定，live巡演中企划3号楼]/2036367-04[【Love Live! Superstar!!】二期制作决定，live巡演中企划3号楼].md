@@ -5010,3 +5010,14 @@ nako啊……
 
 日本这防疫政策以后就不用惊讶了，估计每个人都要得一遍。 幸亏这新变种重病率致死率弟中弟，否则....
 
+
+
+*****
+
+####  仟音一心  
+##### 4910#       发表于 2022-1-30 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54485299&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-30 16:08</a>
+星无那个瓜是真的咩</blockquote>
+这人群里口嗨不是一两天了，大家都不当回事的。就是偏偏有人截图挂出来。
+
