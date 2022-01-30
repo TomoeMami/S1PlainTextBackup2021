@@ -13640,3 +13640,32 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 [https://twitter.com/yoshiyama_yuu/status/1487583026951254017](https://twitter.com/yoshiyama_yuu/status/1487583026951254017)
 <img src="https://p.sda1.dev/4/1b6cac2ec769e71cd77c14161df55701/20220130_180907.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lydia5989  
+##### 2535#       发表于 2022-1-30 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54486259&amp;ptid=1963832" target="_blank">HGCG 发表于 2022-1-30 17:39</a>
+
+谁敢买</blockquote>
+但21年出问题后，照着百科搜睿国，新番仍然在上的，等6号啥都知道了
+
+*****
+
+####  待宵  
+##### 2536#       发表于 2022-1-30 18:54
+
+我下的生肉也没C part
+
+*****
+
+####  月夜凝雪  
+##### 2537#       发表于 2022-1-30 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54487081&amp;ptid=1963832" target="_blank">lydia5989 发表于 2022-1-30 18:52</a>
+
+但21年出问题后，照着百科搜睿国，新番仍然在上的，等6号啥都知道了</blockquote>
+爱奇艺一样有新番，但除了一直在播的你看有什么新的年番上，企鹅的来打都两年没见了
+
