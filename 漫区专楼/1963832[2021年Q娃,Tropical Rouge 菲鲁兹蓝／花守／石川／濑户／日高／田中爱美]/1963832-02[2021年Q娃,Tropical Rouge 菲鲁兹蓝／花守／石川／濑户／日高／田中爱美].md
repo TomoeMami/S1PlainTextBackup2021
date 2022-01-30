@@ -13392,3 +13392,14 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 
 我还一直以为她是叫cure coconut呢
 
+
+
+*****
+
+####  最强惠酱  
+##### 2516#       发表于 2022-1-30 08:04
+
+太搞了这集，把我的眼泪还回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
