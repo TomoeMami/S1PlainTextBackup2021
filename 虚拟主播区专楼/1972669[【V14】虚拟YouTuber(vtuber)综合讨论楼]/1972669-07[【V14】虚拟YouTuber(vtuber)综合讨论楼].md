@@ -16514,3 +16514,22 @@ https://news.yahoo.co.jp/articles/ce2e20d79189854e987f480ac834172d7db7e62e
 『Apex  ...</blockquote>
 我还以为这些情报是前世限定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shpdw  
+##### 10418#       发表于 2022-1-30 12:13
+
+清 竜人
+@ryujin_kiyoshi
+
+サンゴちゃん可愛いから全然OKなんだけどッ♡
+楽曲カバーやアレンジする際は、念のため、著作者の許諾を得てからの方が安心かもッ♡
+殆ど無いけど、同一性保持権の侵害を主張される場合もあって、稀にトラブルになってたりするのッ♡
+著作権って難しいよねッ♡
+歌、超いい感じだったヨ♡
+ありがとネ♡
+
+無許諾BBA<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
