@@ -7720,3 +7720,14 @@ co宝今天还唱歌吗
 静子要当全勤战神是吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5309#       发表于 2022-1-31 02:07
+
+co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

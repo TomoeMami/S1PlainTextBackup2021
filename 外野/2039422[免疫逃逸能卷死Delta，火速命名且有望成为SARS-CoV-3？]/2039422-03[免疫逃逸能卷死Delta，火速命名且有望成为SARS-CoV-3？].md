@@ -6059,3 +6059,53 @@ mrna么？基本上晚上会有副作用
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  aptecccd  
+##### 3480#       发表于 2022-1-31 04:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54464806&amp;ptid=2039422" target="_blank"> vimisbesteditor 发表于 2022-1-28 22:55</a> 引用:lifengzhi321 发表于 2022-1-28 22:16 因为吃多了放下碗就骂娘，如果当地报个100阳性，你看那些人还会不会说放开别管。 ... 我这小镇大概一天5000个左右  — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-play </blockquote>
+我今天一个阳了两次的同学说，他痊愈之后一直干什么都非常累，花了五个月才恢复过来。我今天就下楼洗了趟衣服回来拖了遍地现在已经累得饭都吃不下去了，我房子一共30平。我就想让那些鼓吹国外政策的人想想，如果你自己防护做好同时打了疫苗还被感染，导致身体变差现在吃甜的东西都是苦的，几年回国困难，这个怨气我只能朝着大英政府以及愚蠢群众发泄。现在连年夜饭都不知道吃什么能开心点，事情没有发生在你身上时打字对线一点儿没身心压力多轻松啊。来自: iPhone客户端
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 桐名| + 1|早日痊愈|
+
+查看全部评分
+
+
+
+*****
+
+####  aptecccd  
+##### 3481#       发表于 2022-1-31 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54463842&amp;ptid=2039422" target="_blank"> riczxc 发表于 2022-1-28 21:01</a>  本帖最后由 riczxc 于 2022-1-28 21:03 编辑  引用:aptecccd 发表于 2022-1-28 20:57 我现在住的还是studio，厨房和卧室没隔断，买回来直接冰箱了   直接冰箱肯定不行的。最好常温放地上（现在那么冷，外面也是冷链）。只能买能放几天的菜了（我们吃了两年都是如此）。  放门口或者怎么样吧。当然也不一定是菜的问题。还可能是眼睛或者垂直传播。 </blockquote>
+我觉得每次回来消毒蔬菜太麻烦了，两年多过去了反正现在已经阳了，最近怎么轻松怎么来，之后买菜会注意点的。谢谢关心，希望你也平安健康。来自: iPhone客户端
+
+*****
+
+####  aptecccd  
+##### 3482#       发表于 2022-1-31 04:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54466153&amp;ptid=2039422" target="_blank"> jxwats1 发表于 2022-1-29 02:20</a> 引用:aptecccd 发表于 2022-1-28 18:55 我每次出门都戴n95，每次回来酒精洗手衣服喷雾，原来住郊区也是一直网购，今年搬市中心有些超市没法儿送 ... 我有个同学也是，感染前只出去戴口罩买过一次菜。他比你情况好点，发烧两天后只剩下持续咳嗽了，不过咳了两周了也没好。  顺便祝你早日康复 </blockquote>
+谢谢，如果在国外也请一定要防护好，不能掉以轻心。来自: iPhone客户端
+
+*****
+
+####  解体诸因  
+##### 3483#       发表于 2022-1-31 05:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54492191&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-31 04:45</a>
+
+我今天一个阳了两次的同学说，他痊愈之后一直干什么都非常累，花了五个月才恢复过来。我今天就下楼洗了趟 ...</blockquote>
+希望早日康复，另外可以吃点维生素d3 + 锌，可能会有一定帮助。
+
