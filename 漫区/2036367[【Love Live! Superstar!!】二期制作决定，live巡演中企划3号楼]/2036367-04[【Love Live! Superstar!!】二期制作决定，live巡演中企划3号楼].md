@@ -5041,3 +5041,17 @@ nako啊……
 
 1月没几天了都，鲤鱼菜宝那个节目官方还没出翻译
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4913#       发表于 2022-1-30 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54486440&amp;ptid=2036367" target="_blank">iuhehc 发表于 2022-1-30 17:55</a>
+
+1月没几天了都，鲤鱼菜宝那个节目官方还没出翻译</blockquote>
+没记错的话
+
+说是一月 后，没说一月 内hhhhhh
+
