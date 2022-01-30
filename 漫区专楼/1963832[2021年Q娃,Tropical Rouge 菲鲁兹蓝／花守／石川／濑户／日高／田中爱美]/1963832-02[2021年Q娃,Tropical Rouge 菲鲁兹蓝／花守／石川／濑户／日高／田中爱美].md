@@ -13558,3 +13558,85 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  leleq  
+##### 2530#       发表于 2022-1-30 17:54
+
+哦对了 
+
+staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  月夜凝雪  
+##### 2531#       发表于 2022-1-30 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54486359&amp;ptid=1963832" target="_blank">leleq 发表于 2022-1-30 17:49</a>
+
+真的好结尾 可以说是这一整年的最好诠释 这集的文戏让我一度忘了这是Q娃她们一定会再会的未来 
+
+最让我有感 ...</blockquote>
+其实还是有藏刀的，只不过是不明面，这再遇的时间真夏都还没长大太早了，
+
+还有寿命论啊，她们的寿命差距很大，当年人鱼的记忆装置就是忍受不了孤独做出来的，真夏绝对会比罗拉早死很多。
+
+*****
+
+####  灼眼的夏娜酱  
+##### 2532#       发表于 2022-1-30 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">不错。
+
+*****
+
+####  leleq  
+##### 2533#       发表于 2022-1-30 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54486431&amp;ptid=1963832" target="_blank">月夜凝雪 发表于 2022-1-30 17:54</a>
+
+其实还是有藏刀的，只不过是不明面，这再遇的时间真夏都还没长大太早了，
+
+还有寿命论啊，她们的寿命差距 ...</blockquote>
+安啦  全明星ns剧场版主题歌是啥来着 プリキュア～永遠のともだち～ 
+
+30年全明星剧场版 大家还会是14岁的 35周年也是一样……会永远在一起不会分开的
+
+直到你把她们忘了她们都是14岁
+
+*****
+
+####  Piano-Forest  
+##### 2534#       发表于 2022-1-30 18:10
+
+「トロピカル～ジュ！プリキュア」を
+
+１年間応援してくれてありがとう💕
+
+いっしょにトロピカれて嬉しかったよ！
+
+みんなのこと絶対に忘れない❣
+
+これからも今一番大事なことをやって
+
+トロピカってこう🐠
+
+本当にありがとう🌈✨
+
+みんなトロピカってる～🌺またね！
+<img src="https://p.sda1.dev/4/7087a08c46634b079f8d53e839ef5e0d/20220130_180614.jpg" referrerpolicy="no-referrer">
+
+トロプリを応援してくれてありがとう！2月6日（日）からは「デリシャスパーティ♡プリキュア」がスタート✨お楽しみにね🍙
+<img src="https://p.sda1.dev/4/7e9e8714667592fd82916f5491cc2692/20220130_180619.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kamikitafutago/status/1487585559208161280](https://twitter.com/kamikitafutago/status/1487585559208161280)
+<img src="https://p.sda1.dev/4/2c7a4c23b13960b026cd48061c14c2e6/20220130_180859.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/Itaoka1/status/1487611240310784002](https://twitter.com/Itaoka1/status/1487611240310784002)
+<img src="https://p.sda1.dev/4/72a7711502670b595053d924ee0ec6f1/20220130_180904.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/yoshiyama_yuu/status/1487583026951254017](https://twitter.com/yoshiyama_yuu/status/1487583026951254017)
+<img src="https://p.sda1.dev/4/1b6cac2ec769e71cd77c14161df55701/20220130_180907.jpg" referrerpolicy="no-referrer">
+
