@@ -13466,3 +13466,18 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2522#       发表于 2022-1-30 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54482988&amp;ptid=1963832" target="_blank">星のMerita 发表于 2022-1-30 12:39</a>
+感觉这一部在一些细节方面的文戏特别好
+
+比如这集，感情真挚又不太过煽情，每次差点泪目的时候眼泪都被突发 ...</blockquote>
+学习一下传q，可以考虑活在水瓶里
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

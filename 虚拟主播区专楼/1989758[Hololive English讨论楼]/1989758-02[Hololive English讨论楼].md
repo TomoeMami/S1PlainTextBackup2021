@@ -1204,3 +1204,14 @@ ame新头像
 
 Moona risu duet!<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  被子十三  
+##### 1612#       发表于 2022-1-30 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54401659&amp;ptid=1989758" target="_blank">wuzhengkai 发表于 2022-1-23 16:04</a>
+Ame: the ookami blues mv needs to be reworked due to its scenes are too similar to what's in the ani ...</blockquote>
+Calli和Trash Taste那几个人估计是线下朋友吧，我看她大号和Gigguk未婚妻还经常互动（就前几周貌似还直接在视频里客串了
+
