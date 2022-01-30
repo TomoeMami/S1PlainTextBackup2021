@@ -13514,3 +13514,47 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 
 爱奇艺删掉了最后的食Q客串剧情 这是不打算买食Q了？
 
+
+
+*****
+
+####  HGCG  
+##### 2526#         楼主| 发表于 2022-1-30 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54486040&amp;ptid=1963832" target="_blank">renkan119 发表于 2022-1-30 17:21</a>
+
+爱奇艺删掉了最后的食Q客串剧情 这是不打算买食Q了？</blockquote>
+谁敢买
+
+*****
+
+####  月夜凝雪  
+##### 2527#       发表于 2022-1-30 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54486040&amp;ptid=1963832" target="_blank">renkan119 发表于 2022-1-30 17:21</a>
+
+爱奇艺删掉了最后的食Q客串剧情 这是不打算买食Q了？</blockquote>
+年番都麻烦吧
+
+*****
+
+####  leleq  
+##### 2528#       发表于 2022-1-30 17:49
+
+ 本帖最后由 leleq 于 2022-1-30 17:50 编辑 
+
+真的好结尾 可以说是这一整年的最好诠释 这集的文戏让我一度忘了这是Q娃她们一定会再会的未来 
+
+最让我有感觉的还是演戏时 夏夏出场前特地涂了口红 在罗拉说要回去时 口红化掉的戏 真是棒 夏夏借助口红给自己打气 但真认识到罗拉要走了 防线瞬间崩塌 不顾一切冲上去抱着罗拉喊着不要走 宣泄着压制了一年的感情<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+恭喜夏夏不用和未来一样守几年活寡
+
+*****
+
+####  杂灰  
+##### 2529#       发表于 2022-1-30 17:51
+
+怎么又回去当老师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
