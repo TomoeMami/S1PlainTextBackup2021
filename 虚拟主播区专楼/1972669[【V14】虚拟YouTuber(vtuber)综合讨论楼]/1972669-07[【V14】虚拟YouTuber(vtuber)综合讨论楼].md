@@ -16498,3 +16498,19 @@ legend好像很容易晕是不，郡郡说之前有打算播，就去看ssk的�
 雅虎新闻你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 『Apex Legends』ではプレデター（シーズン2）、『Overwatch』ではグランドマスターに到達しているほど
 
+
+
+*****
+
+####  winda  
+##### 10417#       发表于 2022-1-30 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54481049&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-1-30 09:34</a>
+
+https://news.yahoo.co.jp/articles/ce2e20d79189854e987f480ac834172d7db7e62e
+
+雅虎新闻你
+
+『Apex  ...</blockquote>
+我还以为这些情报是前世限定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
