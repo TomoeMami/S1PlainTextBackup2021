@@ -13481,3 +13481,16 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  hyper-hibiki  
+##### 2523#       发表于 2022-1-30 13:57
+
+记忆装置的坑也填了，这部也圆满了
+
+我很开心！
+
+多谢，热带部！
+

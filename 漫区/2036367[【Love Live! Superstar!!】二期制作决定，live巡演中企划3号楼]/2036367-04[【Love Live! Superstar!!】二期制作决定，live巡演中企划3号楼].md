@@ -4928,3 +4928,12 @@ nako啊……
 
 确实，这事务所没资源就算了。连个人都保护不了，有啥用啊
 
+
+
+*****
+
+####  cybernetics31  
+##### 4902#       发表于 2022-1-30 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都说了是holy pig了，为啥会对这事务所有指望
+
