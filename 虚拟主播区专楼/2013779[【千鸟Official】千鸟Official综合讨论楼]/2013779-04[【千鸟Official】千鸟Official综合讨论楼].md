@@ -7708,3 +7708,15 @@ co宝今天还唱歌吗
 
 静子要当全勤战神是吧
 
+
+
+*****
+
+####  袜子  
+##### 5308#       发表于 2022-1-30 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54487830&amp;ptid=2013779" target="_blank">伞沢直美 发表于 2022-1-30 19:53</a>
+
+静子要当全勤战神是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

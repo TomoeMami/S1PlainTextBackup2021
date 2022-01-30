@@ -13786,3 +13786,16 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 —— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 2549#       发表于 2022-1-30 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+最后的重逢部分比想象中精彩，萝拉靠自己的聪明想起了伙伴，小俩口一见面涌出的回忆把记忆清除装置都给爆破了233
+
+萝拉和真夏也太尊了，真希望能看更多她们的故事
+
