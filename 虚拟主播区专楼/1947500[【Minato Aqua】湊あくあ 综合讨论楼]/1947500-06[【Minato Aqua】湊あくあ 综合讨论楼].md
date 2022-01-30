@@ -2189,3 +2189,23 @@ live是无穷无尽的，自己的live完了还有大家庭的live，大家庭�
 富士电视台节目ed呀 有无董哥说说节目</blockquote>
 不清楚，但是之前在C综看过那个节目好像和486有过联动？
 
+
+
+*****
+
+####  越动天下  
+##### 7747#       发表于 2022-1-30 22:08
+
+还是说到live考虑了终止和延期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过还是办了 
+
+*****
+
+####  面具13  
+##### 7748#       发表于 2022-1-30 22:10
+
+ 本帖最后由 面具13 于 2022-1-30 22:18 编辑 
+
+游戏化相关情报不能说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 两三年前开始就有这个意愿，在某个holomen都能接触到的机会里尝试去接触了，然后谈下来了？
+
+我去，还想开线下粉丝会
+
