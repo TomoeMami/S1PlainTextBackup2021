@@ -4299,3 +4299,26 @@ T下来被毒打，好惨
 
 选不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  路人庚  
+##### 7997#       发表于 2022-1-30 13:41
+
+亚索，走远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 7998#       发表于 2022-1-30 13:49
+
+ 挂在亚索身上还行
+
+*****
+
+####  路人庚  
+##### 7999#       发表于 2022-1-30 13:50
+
+竟然是强强亚索
+
