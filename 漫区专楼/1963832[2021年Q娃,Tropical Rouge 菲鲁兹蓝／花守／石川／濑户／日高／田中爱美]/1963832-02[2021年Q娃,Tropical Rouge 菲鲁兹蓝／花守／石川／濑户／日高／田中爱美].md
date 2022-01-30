@@ -13669,3 +13669,41 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 但21年出问题后，照着百科搜睿国，新番仍然在上的，等6号啥都知道了</blockquote>
 爱奇艺一样有新番，但除了一直在播的你看有什么新的年番上，企鹅的来打都两年没见了
 
+
+
+*****
+
+####  西域桂真大师  
+##### 2538#       发表于 2022-1-30 19:12
+
+茅野爱衣的可能性不大，考虑到现在新番这个只有睿国送审能过，又加上东映在叔叔那开官方号，再叔叔那一边播一边卖玩具多香，最好的结果是合播，不过合播约等于独播不是
+
+*****
+
+####  过气页游  
+##### 2539#       发表于 2022-1-30 19:13
+
+难不成企鹅或者bilibili要截胡<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最低人间肥宅  
+##### 2540#       发表于 2022-1-30 19:14
+
+祝贺圆满完结！
+最近几年最好看的q娃，没有之一
+一起睡觉觉太百合了啦！
+
+希望二月六号还是继续能看新q娃
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  西域桂真大师  
+##### 2541#       发表于 2022-1-30 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54487339&amp;ptid=1963832" target="_blank">过气页游 发表于 2022-1-30 19:13</a>
+难不成企鹅或者bilibili要截胡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">企鹅前面公布一大堆角川的独播都没播呢，送审都送不过。人叔叔是smg旗下的企业绿灯随便开的
+
