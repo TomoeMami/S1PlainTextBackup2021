@@ -10810,3 +10810,16 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 死神是布鲁克吧？
 
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 56346#       发表于 2022-1-30 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54463805&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2022-1-28 20:58</a>
+罗：尤斯塔斯当家的，如果我们赢了这场战斗
+
+基德：是啊，那场景就会映入眼帘了，路飞成为海贼王的样子 ...</blockquote>
+最后那句我们死也不会让你到屋顶上去有内味了
+
