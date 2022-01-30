@@ -4258,3 +4258,12 @@ T下来被毒打，好惨
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  古战场亡魂  
+##### 7992#       发表于 2022-1-30 12:39
+
+才87胜点，赢了这把再说
+

@@ -4877,3 +4877,37 @@ nako密接<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" 
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 4896#       发表于 2022-1-30 12:32
+
+能中两次，这事务所也是很可以
+
+*****
+
+####  一个陆仁贾  
+##### 4897#       发表于 2022-1-30 12:33
+
+无语了，没想到这一天来得这么快
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  D麦林  
+##### 4898#       发表于 2022-1-30 12:41
+
+日本不封国也爆 封国也爆 无语咯
+
+就是nako也太倒霉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 4899#       发表于 2022-1-30 12:43
+
+nako啊……
+

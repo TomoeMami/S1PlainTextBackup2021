@@ -16533,3 +16533,14 @@ https://news.yahoo.co.jp/articles/ce2e20d79189854e987f480ac834172d7db7e62e
 
 無許諾BBA<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 10419#       发表于 2022-1-30 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54482407&amp;ptid=1972669" target="_blank">winda 发表于 2022-1-30 11:52</a>
+我还以为这些情报是前世限定的</blockquote>
+尤其apex直接标明赛季是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
