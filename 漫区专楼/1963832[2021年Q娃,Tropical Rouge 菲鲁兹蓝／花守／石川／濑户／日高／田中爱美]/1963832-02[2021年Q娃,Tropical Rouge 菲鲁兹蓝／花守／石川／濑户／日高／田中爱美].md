@@ -13744,3 +13744,18 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 今年中日恢复邦交50周年，照理说会有文化交流活动，对于合家欢动画来说不太可能卡吧，而且新Q娃有中华风角色<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  西域桂真大师  
+##### 2545#       发表于 2022-1-30 21:19
+
+ 本帖最后由 西域桂真大师 于 2022-1-30 21:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54488524&amp;ptid=1963832" target="_blank">李霞 发表于 2022-1-30 20:56</a>
+
+271每周一会发一周的节目表，明天看看有没有就知道了。
+
+之前的数码宝贝幽灵也没更，感觉是像要减持。</blockquote>
+也许271送审送不过，所以有可能日方想换一家呗
+
