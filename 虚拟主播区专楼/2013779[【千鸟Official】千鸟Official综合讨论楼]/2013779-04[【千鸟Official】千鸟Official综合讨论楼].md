@@ -7609,3 +7609,22 @@ sir this way
 
 MMD脸肉肉的还挺可爱
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5298#       发表于 2022-1-30 14:17
+
+文静这不看tv直接看天国之门没问题吗？
+
+*****
+
+####  袜子  
+##### 5299#       发表于 2022-1-30 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54484054&amp;ptid=2013779" target="_blank">灰色的狐狸 发表于 2022-1-30 14:17</a>
+
+文静这不看tv直接看天国之门没问题吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是TV看不了？我个人是觉得问题不大啦
+
