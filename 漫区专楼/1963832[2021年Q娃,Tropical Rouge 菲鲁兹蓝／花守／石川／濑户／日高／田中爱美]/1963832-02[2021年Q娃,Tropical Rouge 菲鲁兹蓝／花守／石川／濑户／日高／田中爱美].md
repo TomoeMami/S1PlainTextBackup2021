@@ -13810,3 +13810,17 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 今年中日恢复邦交50周年，照理说会有文化交流活动，对于合家欢动画来说不太可能卡吧，而且新Q娃有中华风角 ...</blockquote>
 别的不说，就本子现在对冬奥的态度，今年官方渠道关系正常的可能性很小
 
+
+
+*****
+
+####  无缘好贵  
+##### 2551#       发表于 2022-1-31 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54491034&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2022-1-31 00:41</a>
+
+别的不说，就本子现在对冬奥的态度，今年官方渠道关系正常的可能性很小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我倒觉得文化领域的交流不会受影响，甚至会松一些，甚至可能有日本动画上电视台播出。
+
+ 海外动画电视台禁令实际上可能取消
+
