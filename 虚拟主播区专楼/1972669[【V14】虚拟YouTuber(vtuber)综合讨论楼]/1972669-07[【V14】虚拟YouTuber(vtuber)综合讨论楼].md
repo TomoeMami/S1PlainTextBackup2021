@@ -16485,3 +16485,16 @@ legend好像很容易晕是不，郡郡说之前有打算播，就去看ssk的�
 
 至今不知道宝可梦有啥乐趣
 
+
+
+*****
+
+####  FCCHua  
+##### 10416#       发表于 2022-1-30 09:34
+
+ 本帖最后由 FCCHua 于 2022-1-30 09:37 编辑 
+
+[https://news.yahoo.co.jp/article ... 80ac834172d7db7e62e](https://news.yahoo.co.jp/articles/ce2e20d79189854e987f480ac834172d7db7e62e)
+雅虎新闻你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+『Apex Legends』ではプレデター（シーズン2）、『Overwatch』ではグランドマスターに到達しているほど
+
