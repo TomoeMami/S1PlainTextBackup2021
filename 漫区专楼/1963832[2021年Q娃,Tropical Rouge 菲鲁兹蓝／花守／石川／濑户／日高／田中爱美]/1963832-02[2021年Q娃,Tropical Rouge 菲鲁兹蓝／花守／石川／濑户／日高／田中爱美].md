@@ -13455,3 +13455,14 @@ Oasis这大招让我想起以前宝塚一个秀<img src="https://static.saraba1s
 
 总之感谢一年的陪伴
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2521#       发表于 2022-1-30 12:59
+
+我永远喜欢热q，真夏她太好了吧，离别忍着不落泪，等萝拉下去了才绷不住哭出来
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
