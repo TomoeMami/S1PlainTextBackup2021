@@ -4784,3 +4784,15 @@ Payton库洛未（new）
 
 鲤鱼昨天游戏都是本音，日常划水<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lucksolo  
+##### 4886#       发表于 2022-1-30 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54478910&amp;ptid=2036367" target="_blank">太二EricGuo 发表于 2022-1-29 23:51</a>
+
+星团动画里有没有五个人都在而唐可可在中间的画面</blockquote>
+只记得一个第九集最后点报名的时候 
+
