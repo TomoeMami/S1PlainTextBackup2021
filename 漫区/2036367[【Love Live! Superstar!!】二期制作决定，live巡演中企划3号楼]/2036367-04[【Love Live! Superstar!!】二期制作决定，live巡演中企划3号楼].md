@@ -4968,3 +4968,22 @@ nako啊……
 
 之前146和麻油去韩国玩是两边经纪人对好了都有空的时间才批准，小事务所的话告知一声我去玩了知晓就完事了
 
+
+
+*****
+
+####  adw667  
+##### 4906#       发表于 2022-1-30 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54484425&amp;ptid=2036367" target="_blank">稀勢のささ 发表于 2022-1-30 14:45</a>
+
+全国人民都那么个样子 怪谁都没用 只能说cn是特例</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自欺欺人亚克力板
+
+*****
+
+####  lj205  
+##### 4907#       发表于 2022-1-30 16:08
+
+星无那个瓜是真的咩
+
