@@ -2094,3 +2094,28 @@ apex同接的波动反应了一局的开始和结束，一般apex民看完一局
 
 这个赛季9号凌晨1点结束，但是那时候多半又全是挂壁和彩笔，想上得赶在那之前，但live又在19号，感觉希望渺茫
 
+
+
+*****
+
+####  erer  
+##### 7739#       发表于 2022-1-30 18:22
+
+怎么还有live啊？！
+
+*****
+
+####  星の守  
+##### 7740#       发表于 2022-1-30 18:39
+
+夸自己没有live了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zpy393  
+##### 7741#       发表于 2022-1-30 18:39
+
+live是无穷无尽的，自己的live完了还有大家庭的live，大家庭的live完了自己live又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
