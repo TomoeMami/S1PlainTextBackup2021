@@ -6211,3 +6211,14 @@ NY开始给患者发口服药了
 
 然而刚看了下NYT首页还在关心乌克兰人民和拆腻子的健康码，颇有国际主义精神啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3493#       发表于 2022-1-31 14:02
+
+When Omicron Isn’t So Mild
+
+[https://www.nytimes.com/2022/01/ ... hronic-illness.html](https://www.nytimes.com/2022/01/29/health/omicron-chronic-illness.html)
+
