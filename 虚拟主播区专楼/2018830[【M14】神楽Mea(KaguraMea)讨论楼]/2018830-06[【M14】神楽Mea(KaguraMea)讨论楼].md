@@ -5199,3 +5199,51 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
 
 晋级上白金也只会祸害队友 还是别晋级了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 8103#       发表于 2022-1-31 15:47
+
+这也能抢啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Rem-清曲  
+##### 8104#       发表于 2022-1-31 15:47
+
+主播好像只有一点操作，但是没啥脑子，游戏理解几乎为0
+
+*****
+
+####  T_Hb  
+##### 8105#       发表于 2022-1-31 15:50
+
+赢！
+
+*****
+
+####  十九号大侠  
+##### 8106#       发表于 2022-1-31 15:52
+
+这波咩能赢，还是有大功的，别尬黑
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  斗斗一号  
+##### 8107#       发表于 2022-1-31 15:52
+
+露露抢龙还是第一次看到，立大功了
+
+*****
+
+####  Klience  
+##### 8108#       发表于 2022-1-31 15:59
+
+辅助露露能抢到大龙只能说纯靠运气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
