@@ -4712,3 +4712,46 @@ gg，黄金1 胜点78，就这状态也没法玩了。基本上也摸到她水�
 
 好惨的波比
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8043#       发表于 2022-1-31 09:48
+
+<blockquote>往世雷书 发表于 2022-1-31 09:11
+七海那边和这边没什么交集，麻将妹何必去掺和一脚
+
+—— 来自 S1Fun</blockquote>
+谁也不能代表谁，和mea也没半毛钱关系，我也不仅仅是mea粉丝，我本身也不喜欢落井下石，一般v受灾的时候都是深表同情的，但是010这个不一样，女拳都打脸上了。
+
+*****
+
+####  古战场亡魂  
+##### 8044#       发表于 2022-1-31 09:53
+
+这波比king全是被干碎了啊，玩猫。
+
+*****
+
+####  T_Hb  
+##### 8045#       发表于 2022-1-31 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8046#       发表于 2022-1-31 10:04
+
+这把又寄了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  时间在我手中  
+##### 8047#       发表于 2022-1-31 10:06
+
+我的评价是，别几把继续打了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
