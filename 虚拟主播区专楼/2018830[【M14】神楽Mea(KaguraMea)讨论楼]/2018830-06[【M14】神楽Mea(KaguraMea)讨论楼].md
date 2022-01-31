@@ -4755,3 +4755,37 @@ gg，黄金1 胜点78，就这状态也没法玩了。基本上也摸到她水�
 
 我的评价是，别几把继续打了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 8048#       发表于 2022-1-31 10:09
+
+她还不如玩个妮蔻或者光辉辅助呢 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘栗No.007  
+##### 8049#       发表于 2022-1-31 10:15
+
+主播为什么一大早坐大牢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sakilin2013  
+##### 8050#       发表于 2022-1-31 10:15
+
+主播，算了算了，饶了水友吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  2014720  
+##### 8051#       发表于 2022-1-31 10:19
+
+边打边哭笑死我了哈哈哈哈哈哈哈
+
+硬实力不行
+
