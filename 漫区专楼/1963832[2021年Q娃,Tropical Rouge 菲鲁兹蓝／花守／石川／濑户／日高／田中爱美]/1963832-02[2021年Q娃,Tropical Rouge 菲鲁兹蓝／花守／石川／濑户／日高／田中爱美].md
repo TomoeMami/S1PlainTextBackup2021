@@ -13839,3 +13839,21 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 话说热带真就不打算做第二个剧场版啊？
 
+
+
+*****
+
+####  jaewoongh  
+##### 2553#       发表于 2022-1-31 11:31
+
+听说去年玩具销量暴死了？怎么搞的？
+
+*****
+
+####  最强惠酱  
+##### 2554#       发表于 2022-1-31 11:45
+
+做现在最重要的事，以后要是有人问该给小孩看什么动画片推这部就对了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
