@@ -7908,3 +7908,20 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  andeloz  
+##### 5330#       发表于 2022-2-1 04:27
+
+鸟P话是一如既往的多 不过能吸2000粉我是没想到的
+
+<img src="https://img.saraba1st.com/forum/202201/31/122634hqz4hexzvbwwvn9z.png" referrerpolicy="no-referrer">
+
+<strong>Screen Shot 2022-01-31 at 12.24.56 PM.png</strong> (368.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-1 04:26 上传
+

@@ -6245,3 +6245,46 @@ When Omicron Isn’t So Mild
 
 听说有真德奥合并的疑似了？
 
+
+
+*****
+
+####  vaststars  
+##### 3496#       发表于 2022-2-1 03:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54454090&amp;ptid=2039422" target="_blank">jxwats1 发表于 2022-1-28 02:11</a>
+美国这轮疫情日均死亡数超过Delta峰值了
+
+https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
+不是说奥密克戎毒性小么？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+这日子什么时候是个头
+
+—— 来自 Xiaomi Redmi K30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  jxwats1  
+##### 3497#       发表于 2022-2-1 04:05
+
+ 本帖最后由 jxwats1 于 2022-2-1 04:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54507136&amp;ptid=2039422" target="_blank">vaststars 发表于 2022-2-1 03:59</a>
+
+不是说奥密克戎毒性小么？
+
+这日子什么时候是个头</blockquote>
+这么说吧，假设（拍脑袋编的数字，和现实无关）omicron感染后死亡风险是delta的1/3，但是感染量是后者的6倍，那最后死亡人数谁多谁少呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+说omicron比delta更轻微的人很喜欢提病死率 case fatality rate，但是决口不说死亡率 mortality rate。你猜为啥<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wszweill  
+##### 3498#       发表于 2022-2-1 04:06
+
+<blockquote>vaststars 发表于 2022-1-31 14:59
+不是说奥密克戎毒性小么？
+
+这日子什么时候是个头
+</blockquote>
+O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡率；但是比D要小，然而死亡人数=死亡率乘感染人数。欧美赌的是一波应死尽死，搞定死活打不了疫苗的。就看新冠大爷给不给面子
+
