@@ -6181,3 +6181,33 @@ NY开始给患者发口服药了
 体弱的老人和基础病患者又不会那么快再生。</blockquote>
 有没有可能奥密克戎增加了这个速度？
 
+
+
+*****
+
+####  jqty  
+##### 3490#       发表于 2022-1-31 13:16
+
+按照冷战时候的材料，蔬菜最好是消洗和熟食，紫外线之类的要达到剂量和时间才行
+
+*****
+
+####  vimisbesteditor  
+##### 3491#       发表于 2022-1-31 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54494860&amp;ptid=2039422" target="_blank">形式主义 发表于 2022-1-31 12:59</a>
+
+有没有可能奥密克戎增加了这个速度？</blockquote>
+不是，你是觉得omicron会让人体弱患基础病
+
+还是说你觉得omicron会让得基础病死亡的人起死回生啊
+
+大概算一下就知道，美国体弱/有基础病的人肯定不止100万人啊
+
+*****
+
+####  Neozero  
+##### 3492#       发表于 2022-1-31 13:26
+
+然而刚看了下NYT首页还在关心乌克兰人民和拆腻子的健康码，颇有国际主义精神啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
