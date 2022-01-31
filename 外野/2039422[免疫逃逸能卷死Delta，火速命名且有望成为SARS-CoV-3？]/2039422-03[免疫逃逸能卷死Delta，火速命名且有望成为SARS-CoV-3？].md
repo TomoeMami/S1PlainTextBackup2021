@@ -6159,3 +6159,14 @@ mrna么？基本上晚上会有副作用
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3488#       发表于 2022-1-31 12:45
+
+[https://www.nbcnewyork.com/news/ ... iral-pills/3523859/](https://www.nbcnewyork.com/news/coronavirus/nyc-starts-free-same-day-delivery-of-covid-antiviral-pills/3523859/)
+
+NY开始给患者发口服药了
+
