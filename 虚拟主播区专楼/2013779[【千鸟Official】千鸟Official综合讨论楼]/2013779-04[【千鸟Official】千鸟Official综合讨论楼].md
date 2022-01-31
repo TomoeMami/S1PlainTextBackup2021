@@ -7749,3 +7749,14 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 这句是什么梗啊
 
+
+
+*****
+
+####  andeloz  
+##### 5312#       发表于 2022-1-31 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">偷我扔隔壁的图是吧
+
+应该是谁贴吧里发的说丛雨绫的吧 鸟吧寄了以后我就不怎么看贴吧了
+
