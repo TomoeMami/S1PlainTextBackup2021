@@ -5943,3 +5943,52 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
 
 查看全部评分
 
+
+
+*****
+
+####  斗斗一号  
+##### 8191#       发表于 2022-2-1 01:34
+
+新年快乐
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|7/12|
+
+查看全部评分
+
+*****
+
+####  freeze_雪风  
+##### 8192#       发表于 2022-2-1 01:49
+
+新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 璃絵和花瑠| + 1|8/12|
+
+查看全部评分
+
+*****
+
+####  璃絵和花瑠  
+##### 8193#       发表于 2022-2-1 01:53
+
+也快把米发完了，那就祝各位和麻麻新的一年更好一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
