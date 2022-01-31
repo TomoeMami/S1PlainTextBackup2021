@@ -4996,3 +4996,19 @@ gg，黄金1 胜点78，就这状态也没法玩了。基本上也摸到她水�
 
 看到中路那波扎克和亚索 我还以为这把会寄 没想到啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 8078#       发表于 2022-1-31 12:08
+
+感觉赢了，又好起来了
+
+*****
+
+####  Klience  
+##### 8079#       发表于 2022-1-31 12:08
+
+继续上头 快 上头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
