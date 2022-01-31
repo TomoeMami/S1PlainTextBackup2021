@@ -5801,3 +5801,12 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
 
 游戏打时间太长了，脑子是会糊掉的，特别是还没有个在旁边能一直沟通的队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8183#       发表于 2022-1-31 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
