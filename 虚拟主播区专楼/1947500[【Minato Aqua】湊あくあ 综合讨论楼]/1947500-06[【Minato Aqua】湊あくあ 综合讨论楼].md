@@ -2286,3 +2286,19 @@ apex春晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 狙击枪用的把我乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过还行吧
 
+
+
+*****
+
+####  nian1538  
+##### 7757#       发表于 2022-1-31 21:47
+
+今天这是来排位练英雄的吗，打的好乐
+
+*****
+
+####  erer  
+##### 7758#       发表于 2022-1-31 21:53
+
+捡漏王就是你！
+

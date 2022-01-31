@@ -5338,3 +5338,47 @@ B限的票快4000张了</blockquote>
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 4941#       发表于 2022-1-31 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54501552&amp;ptid=2036367" target="_blank">ayangsu 发表于 2022-1-31 21:43</a>
+
+我看阿b中途还卖了其他演唱会的票，可能共用一个序号
+
+—— 来自 S1Fun ...</blockquote>
+刚群里有人买了票，也就是4100出头，这要是共用那是说那个演唱会也太惨了吧？
+
+*****
+
+####  cat1230  
+##### 4942#       发表于 2022-1-31 22:02
+
+不是吧，就这么点数量啊，微博+b站的粉丝不少的啊，贴吧是完全不大行，人太少了。
+
+*****
+
+####  ayangsu  
+##### 4943#       发表于 2022-1-31 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54501826&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-31 21:54</a>
+刚群里有人买了票，也就是4100出头，这要是共用那是说那个演唱会也太惨了吧？ ...</blockquote>
+感觉应该是所有活动的直播票都用这个序号，所以有活动同时开就不好推算卖多少票了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lj205  
+##### 4944#       发表于 2022-1-31 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54502221&amp;ptid=2036367" target="_blank">ayangsu 发表于 2022-1-31 22:05</a>
+
+感觉应该是所有活动的直播票都用这个序号，所以有活动同时开就不好推算卖多少票了
+
+—— 来自 S1F ...</blockquote>
+行吧，那就惨吧，这样对了吧？
+
