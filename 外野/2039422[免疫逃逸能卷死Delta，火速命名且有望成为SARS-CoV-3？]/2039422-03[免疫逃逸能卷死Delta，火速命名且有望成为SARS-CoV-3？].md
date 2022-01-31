@@ -6288,3 +6288,14 @@ https://thehill.com/policy/healt ... -surpass-delta-pea ...</blockquote>
 </blockquote>
 O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡率；但是比D要小，然而死亡人数=死亡率乘感染人数。欧美赌的是一波应死尽死，搞定死活打不了疫苗的。就看新冠大爷给不给面子
 
+
+
+*****
+
+####  greemoore1981  
+##### 3499#       发表于 2022-2-1 07:37
+
+美国人那么喜欢飞来飞去，美国疫情不结束，全球疫情都不会结束。
+
+而美国人的好日子还有至少三年呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
