@@ -1215,3 +1215,20 @@ Moona risu duet!<img src="https://static.saraba1st.com/image/smiley/face2017/085
 Ame: the ookami blues mv needs to be reworked due to its scenes are too similar to what's in the ani ...</blockquote>
 Calli和Trash Taste那几个人估计是线下朋友吧，我看她大号和Gigguk未婚妻还经常互动（就前几周貌似还直接在视频里客串了
 
+
+
+*****
+
+####  shimmy1996  
+##### 1613#       发表于 2022-1-31 15:23
+
+<img src="https://img.saraba1st.com/forum/202201/31/151852iffw6ytqm0yyt9bz.png" referrerpolicy="no-referrer">
+
+<strong>1643612519377.png</strong> (38.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-31 15:18 上传
+
+Ame出差几天回来元气的可怕<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">果然现在的住处是debuff，赶紧搬家吧hhh
+
