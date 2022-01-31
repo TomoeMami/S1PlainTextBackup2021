@@ -5309,3 +5309,32 @@ image.png
 
 。
 
+
+
+*****
+
+####  lj205  
+##### 4938#       发表于 2022-1-31 21:33
+
+B限的票快4000张了
+
+*****
+
+####  ayangsu  
+##### 4939#       发表于 2022-1-31 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54501342&amp;ptid=2036367" target="_blank">lj205 发表于 2022-1-31 21:33</a>
+B限的票快4000张了</blockquote>
+我看阿b中途还卖了其他演唱会的票，可能共用一个序号<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  player3960  
+##### 4940#       发表于 2022-1-31 21:50
+
+难怪今天只发了微博和推特，原来b站在拜年祭里
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
