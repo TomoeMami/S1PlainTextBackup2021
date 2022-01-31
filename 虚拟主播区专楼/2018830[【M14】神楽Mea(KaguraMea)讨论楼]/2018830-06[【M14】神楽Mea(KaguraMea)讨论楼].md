@@ -4912,3 +4912,34 @@ gg，黄金1 胜点78，就这状态也没法玩了。基本上也摸到她水�
 
 我更佩服她打排位能一直用那几个英雄不带变的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  若风之景  
+##### 8068#       发表于 2022-1-31 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  往世雷书  
+##### 8069#       发表于 2022-1-31 11:19
+
+她把这精力和决心用在学习（直播）上早做出一番成就了（家长🍪）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  路人庚  
+##### 8070#       发表于 2022-1-31 11:25
+
+ 本帖最后由 路人庚 于 2022-1-31 11:28 编辑 
+
+把这当成耐久直播不到白金不下播企划就好了（过年也正好适合耐久企划，不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（虽然基本上是躺着的
+
