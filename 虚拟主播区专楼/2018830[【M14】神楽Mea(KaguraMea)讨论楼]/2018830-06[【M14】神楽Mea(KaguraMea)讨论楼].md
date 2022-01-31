@@ -5357,3 +5357,147 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，再来一把
 
+
+
+*****
+
+####  十九号大侠  
+##### 8123#       发表于 2022-1-31 17:11
+
+今天必须晋级
+
+*****
+
+####  Klience  
+##### 8124#       发表于 2022-1-31 17:12
+
+今晚春晚就看她了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8125#       发表于 2022-1-31 17:16
+
+滑板鞋下路确实可以1打2，我看uzi每次嫌辅助演员，就要选滑板鞋
+
+*****
+
+####  Klience  
+##### 8126#       发表于 2022-1-31 17:16
+
+刀妹3/0 滑板鞋2/0 就看上路和下路哪边通关的快吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8127#       发表于 2022-1-31 17:17
+
+我超这大爹
+
+*****
+
+####  Klience  
+##### 8128#       发表于 2022-1-31 17:19
+
+瞎子直接把饭菜送到滑板鞋面前<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 8129#       发表于 2022-1-31 17:20
+
+这把就看卡莉斯塔大战刀妹了，变羊给住刀妹也有得打
+
+*****
+
+####  Klience  
+##### 8130#       发表于 2022-1-31 17:23
+
+你别忘了还有酒桶压缩 酒桶的大放的好也是毁天灭地的 何况还是个ap酒桶
+
+
+
+*****
+
+####  T_Hb  
+##### 8131#       发表于 2022-1-31 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 8132#       发表于 2022-1-31 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">什么b操作啊，留点蓝很难吗？
+
+*****
+
+####  路人庚  
+##### 8133#       发表于 2022-1-31 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这把基本走远了，大伙可以等着一会的哭哭推限了
+
+*****
+
+####  斗斗一号  
+##### 8134#       发表于 2022-1-31 17:27
+
+没玩过LOL的都看出来她不控蓝背大锅，连个超级兵都不如
+
+*****
+
+####  呓亘  
+##### 8135#       发表于 2022-1-31 17:28
+
+疯狂道歉 死活不改
+
+*****
+
+####  路人庚  
+##### 8136#       发表于 2022-1-31 17:29
+
+刚刚她也意识到了，说自己是辣鸡辅助<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘栗No.007  
+##### 8137#       发表于 2022-1-31 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是又要渡劫失败了吗
+
+*****
+
+####  T_Hb  
+##### 8138#       发表于 2022-1-31 17:29
+
+感觉还有的打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 8139#       发表于 2022-1-31 17:31
+
+只能说主播不配<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么想上白金就凭本事打啊，想着打辅助抱大腿看队友脸色，又凭什么上分？
+
+*****
+
+####  Klience  
+##### 8140#       发表于 2022-1-31 17:31
+
+失去躺赢权 这把辅助露露C吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8141#       发表于 2022-1-31 17:31
+
+道歉流辅助
+
+*****
+
+####  aisakahammer  
+##### 8142#       发表于 2022-1-31 17:32
+
+ 被渡劫局折磨 也是个好事
+
