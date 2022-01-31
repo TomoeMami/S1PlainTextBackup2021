@@ -6122,3 +6122,16 @@ mrna么？基本上晚上会有副作用
 
 另外那人你屏蔽就好了 多的也没必要理他
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3485#       发表于 2022-1-31 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54492191&amp;ptid=2039422" target="_blank">aptecccd 发表于 2022-1-31 04:45</a>
+我今天一个阳了两次的同学说，他痊愈之后一直干什么都非常累，花了五个月才恢复过来。我今天就下楼洗了趟 ...</blockquote>
+只能说祝早日康复，早日回国了，不知道现在igg阳性还能不能回，另外记着留新冠阳性证明。
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
