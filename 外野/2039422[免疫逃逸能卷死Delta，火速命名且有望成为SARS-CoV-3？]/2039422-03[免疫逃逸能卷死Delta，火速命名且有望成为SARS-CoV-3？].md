@@ -6236,3 +6236,12 @@ When Omicron Isn’t So Mild
 — from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-pl ...</blockquote>
 他没嚎吧。他不是先病房里空荡荡，没有挤兑--断网1周还是多久--宣布死亡嘛。都重症挂呼吸机了还坚持刷泥潭/推也太敬业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  克鲁特尼  
+##### 3495#       发表于 2022-2-1 01:02
+
+听说有真德奥合并的疑似了？
+
