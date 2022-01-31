@@ -6222,3 +6222,17 @@ When Omicron Isn’t So Mild
 
 [https://www.nytimes.com/2022/01/ ... hronic-illness.html](https://www.nytimes.com/2022/01/29/health/omicron-chronic-illness.html)
 
+
+
+*****
+
+####  wszweill  
+##### 3494#       发表于 2022-1-31 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54493106&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-30 20:49</a>
+
+河山硕不是在推特上嚎了一阵才死？
+
+— from Google Pixel 3 XL, Android 12 of S1 Next Goose v2.5.2-pl ...</blockquote>
+他没嚎吧。他不是先病房里空荡荡，没有挤兑--断网1周还是多久--宣布死亡嘛。都重症挂呼吸机了还坚持刷泥潭/推也太敬业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
