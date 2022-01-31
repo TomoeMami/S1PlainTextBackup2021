@@ -6135,3 +6135,27 @@ mrna么？基本上晚上会有副作用
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  西风之哀  
+##### 3486#       发表于 2022-1-31 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54466167&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-1-29 02:22</a>
+坛子里面有不少得了的，好像都是咳嗽的比较厉害。
+
+— from Google Pixel 3 XL, Android 12 of S1 Next G ...</blockquote>
+这个，重症是没法用手机的……
+
+*****
+
+####  vimisbesteditor  
+##### 3487#       发表于 2022-1-31 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54493096&amp;ptid=2039422" target="_blank">西风之哀 发表于 2022-1-31 09:48</a>
+这个，重症是没法用手机的……</blockquote>
+河山硕不是在推特上嚎了一阵才死？
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
