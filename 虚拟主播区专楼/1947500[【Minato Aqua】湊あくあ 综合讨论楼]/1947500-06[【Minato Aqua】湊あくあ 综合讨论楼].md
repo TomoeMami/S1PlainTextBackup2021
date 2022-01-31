@@ -2389,3 +2389,137 @@ apex春晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 队友强啊
 
+
+
+*****
+
+####  nian1538  
+##### 7770#       发表于 2022-1-31 23:01
+
+有点笨比
+
+
+
+*****
+
+####  乌鸦绅士  
+##### 7771#       发表于 2022-1-31 23:02
+
+感觉不在状态
+
+*****
+
+####  面具13  
+##### 7772#       发表于 2022-1-31 23:04
+
+最后其实是收圈的时候位置不好，传送门位置被人守了。莫名其妙排到大师-猎杀带了
+
+*****
+
+####  越动天下  
+##### 7773#       发表于 2022-1-31 23:06
+
+没想到楼上的一队呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  バーチャルS1er  
+##### 7774#       发表于 2022-1-31 23:13
+
+这FLAG力也太强了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7775#       发表于 2022-1-31 23:13
+
+队友瞬间溶化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7776#       发表于 2022-1-31 23:34
+
+怎么就第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看的我莫名其妙
+
+*****
+
+####  离魂仙  
+##### 7777#       发表于 2022-1-31 23:35
+
+什么情况，大哥幸幸苦苦清了十几队然后掉了吗？便宜了夸
+
+*****
+
+####  バーチャルS1er  
+##### 7778#       发表于 2022-1-31 23:35
+
+这把队伍减得这么快还以为有挂呢，结果杀人王都被夸队普通杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 7779#       发表于 2022-1-31 23:35
+
+老大圈的时候人就没剩几队了，这局很奇怪。
+
+*****
+
+####  面具13  
+##### 7780#       发表于 2022-1-31 23:47
+
+最后亿把正好过年
+
+*****
+
+####  越动天下  
+##### 7781#       发表于 2022-1-31 23:48
+
+队友0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> “最后一把”
+
+*****
+
+####  バーチャルS1er  
+##### 7782#       发表于 2022-2-1 00:08
+
+这把挂是不是被夸杀了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7783#       发表于 2022-2-1 00:09
+
+虽然最后一打三了 不过帅的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 人头分拿了少一点 这队友是否有点
+
+*****
+
+####  离魂仙  
+##### 7784#       发表于 2022-2-1 00:11
+
+ 本帖最后由 离魂仙 于 2022-2-1 00:13 编辑 
+
+这丝血被三个人围观羞辱确实难顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望配信之神帮帮忙在赛季末给观众来个过年七天乐
+
+*****
+
+####  乌鸦绅士  
+##### 7785#       发表于 2022-2-1 00:13
+
+希望这几天能天天A<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 7786#       发表于 2022-2-1 00:16
+
+  夸楼各位新年快乐
+
+*****
+
+####  越动天下  
+##### 7787#       发表于 2022-2-1 00:18
+
+你可不能像隔壁大叔叔一样 大年三十还在看圣皇.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 新年快乐
+
