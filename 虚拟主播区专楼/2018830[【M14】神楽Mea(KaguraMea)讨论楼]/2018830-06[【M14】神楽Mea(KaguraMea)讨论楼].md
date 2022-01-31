@@ -5756,3 +5756,30 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
 有啊 之前找图奇樱花妹双排排位那位 她之前和dfm的evi玩过太空狼人</blockquote>
 那位当初白银…….现在不知道啥段位了，可能不如单排
 
+
+
+*****
+
+####  Klience  
+##### 8178#       发表于 2022-1-31 18:08
+
+那位现在白银4
+
+*****
+
+####  古战场亡魂  
+##### 8179#       发表于 2022-1-31 18:13
+
+<blockquote>Klience 发表于 2022-1-31 18:08
+那位现在白银4</blockquote>
+黄金1带着白银4双排打白金晋级赛……还是分太高……
+
+*****
+
+####  2014720  
+##### 8180#       发表于 2022-1-31 18:15
+
+纯纯的硬实力不够，不对这白金打不上去只能说是纯摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真想打上去就好好学学吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
