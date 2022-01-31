@@ -6170,3 +6170,14 @@ mrna么？基本上晚上会有副作用
 
 NY开始给患者发口服药了
 
+
+
+*****
+
+####  形式主义  
+##### 3489#       发表于 2022-1-31 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54456331&amp;ptid=2039422" target="_blank">coldhot3 发表于 2022-1-28 10:58</a>
+体弱的老人和基础病患者又不会那么快再生。</blockquote>
+有没有可能奥密克戎增加了这个速度？
+

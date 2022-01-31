@@ -5012,3 +5012,32 @@ gg，黄金1 胜点78，就这状态也没法玩了。基本上也摸到她水�
 
 继续上头 快 上头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 8080#       发表于 2022-1-31 12:58
+
+劲夫劲夫
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 8081#       发表于 2022-1-31 12:58
+
+ 本帖最后由 T_Hb 于 2022-1-31 13:05 编辑 
+
+这都不走，在那里玩
+
+赢！
+
+*****
+
+####  Klience  
+##### 8082#       发表于 2022-1-31 13:07
+
+78胜点了 好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
