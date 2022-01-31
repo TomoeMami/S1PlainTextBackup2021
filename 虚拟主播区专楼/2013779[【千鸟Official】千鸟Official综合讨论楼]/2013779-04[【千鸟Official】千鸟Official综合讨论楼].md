@@ -7731,3 +7731,21 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  rgauss  
+##### 5310#       发表于 2022-1-31 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Quark  
+##### 5311#       发表于 2022-1-31 17:07
+
+这句是什么梗啊
+

@@ -5302,3 +5302,58 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
  这两天看久了真没意思，是个会玩/看lol都能看的出来咩就没白金水平，打起来就坐牢，坐牢也就算了，像以前一 ...</blockquote>
 没事 一会输了八成要开哭哭推限 哭哭推限还是很有意思的
 
+
+
+*****
+
+####  路人庚  
+##### 8116#       发表于 2022-1-31 16:51
+
+又来到了熟悉的两胜两败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奶一口大侠继续重新来过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 8117#       发表于 2022-1-31 16:55
+
+当个娱乐主播挺好的，可惜咩咩意识不到。高分选手巅峰就那么1,2年
+
+*****
+
+####  makourisu-2  
+##### 8118#       发表于 2022-1-31 16:58
+
+现在又是晋级赛最后一把了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8119#       发表于 2022-1-31 17:00
+
+上把的ad这局拿到了他的绝活滑板鞋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 8120#       发表于 2022-1-31 17:02
+
+这阵容<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cushaw  
+##### 8121#       发表于 2022-1-31 17:02
+
+谁还不是个天才少年呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  路人庚  
+##### 8122#       发表于 2022-1-31 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，再来一把
+
