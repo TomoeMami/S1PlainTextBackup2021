@@ -4789,3 +4789,103 @@ gg，黄金1 胜点78，就这状态也没法玩了。基本上也摸到她水�
 
 硬实力不行
 
+
+
+*****
+
+####  T_Hb  
+##### 8052#       发表于 2022-1-31 10:23
+
+昨天上分的时候还笑别人连败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在也6连败了
+
+*****
+
+####  2014720  
+##### 8053#       发表于 2022-1-31 10:27
+
+喜报，主播又哭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8054#       发表于 2022-1-31 10:30
+
+证明打游戏要笑着打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8055#       发表于 2022-1-31 10:33
+
+对面女警加泽拉斯 下路又要坐牢咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8056#       发表于 2022-1-31 10:33
+
+一般这种时候该换个游戏歇一会了（不过阿咩似乎只想换个英雄
+
+*****
+
+####  T_Hb  
+##### 8057#       发表于 2022-1-31 10:34
+
+ 本帖最后由 T_Hb 于 2022-1-31 10:36 编辑 
+
+好起来了，然后<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">送了
+
+*****
+
+####  2014720  
+##### 8058#       发表于 2022-1-31 10:36
+
+碰见大爹就喜笑颜开，你麻真是…
+
+*****
+
+####  Klience  
+##### 8059#       发表于 2022-1-31 10:36
+
+奶起来了 好奶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8060#       发表于 2022-1-31 10:39
+
+不插真眼哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8061#       发表于 2022-1-31 10:41
+
+哈哈哈哈哈哈哈 这小炮闪现W跳脸被对面打死了 这么上头吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2014720  
+##### 8062#       发表于 2022-1-31 10:41
+
+ 本帖最后由 2014720 于 2022-1-31 10:43 编辑 
+
+走远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+6级跳9级脸也太逆天了
+
+*****
+
+####  T_Hb  
+##### 8063#       发表于 2022-1-31 10:43
+
+这下路死的停不下来了
+
+*****
+
+####  Klience  
+##### 8064#       发表于 2022-1-31 10:46
+
+这人连下车挡泽拉斯的E的意识都没有
+
