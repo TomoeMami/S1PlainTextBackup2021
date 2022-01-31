@@ -5263,3 +5263,42 @@ vn猫感觉有点抽象啊……不该玩璐璐吗？？
 
 寄
 
+
+
+*****
+
+####  clvan_  
+##### 8111#       发表于 2022-1-31 16:27
+
+都午睡起来健身完了居然还在打，什么网瘾少女
+
+*****
+
+####  冬瓜饭  
+##### 8112#       发表于 2022-1-31 16:28
+
+这两天看久了真没意思，是个会玩/看lol都能看的出来咩就没白金水平，打起来就坐牢，坐牢也就算了，像以前一样那么有活力被打的哇哇乱叫还好，现在一副有气无力的样子看着真丑陋啊
+
+*****
+
+####  Klience  
+##### 8113#       发表于 2022-1-31 16:31
+
+早上9点开始打的 打到现在 一开始连输了几把 下午才好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8114#       发表于 2022-1-31 16:37
+
+这把队友都很给力 又能躺了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 8115#       发表于 2022-1-31 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54496575&amp;ptid=2018830" target="_blank">冬瓜饭 发表于 2022-1-31 16:28</a>
+ 这两天看久了真没意思，是个会玩/看lol都能看的出来咩就没白金水平，打起来就坐牢，坐牢也就算了，像以前一 ...</blockquote>
+没事 一会输了八成要开哭哭推限 哭哭推限还是很有意思的
+
