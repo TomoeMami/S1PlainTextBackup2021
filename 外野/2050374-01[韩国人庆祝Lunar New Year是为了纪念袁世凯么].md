@@ -864,3 +864,36 @@ machico咋了？</blockquote>
 
 已经开始了，先Korean lunar再去掉lunar
 
+
+
+*****
+
+####  Neozero  
+##### 81#       发表于 2022-2-2 02:45
+
+搜了一下邮箱，只能说用词这种事还是比较圆滑的：
+
+学校的国际生部门用lunar，但负责大中华区校友事务的部门（常驻HK）会用Chinese<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jpcl  
+##### 82#       发表于 2022-2-2 02:50
+
+可是宇宙的起源不是在韩国么
+
+说是韩国的也不算错吧
+
+*****
+
+####  sangw  
+##### 83#       发表于 2022-2-2 05:47
+
+我和老外都说 happy Chinese New year
+节日里没人会故意争论
+
+但是我提过一次
+以后每年合作方或者国外的同事都会主动说happy Chinese new year
+
+毕竟在他们看来 日韩本来就属于中国<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

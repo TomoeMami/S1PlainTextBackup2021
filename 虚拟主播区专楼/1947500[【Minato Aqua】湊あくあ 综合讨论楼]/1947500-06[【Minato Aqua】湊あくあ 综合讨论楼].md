@@ -2997,3 +2997,12 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 钻二开始比钻三又要更难了，直播外肯定得打的，要不然肯定上不去。
 
+
+
+*****
+
+####  星の守  
+##### 7845#       发表于 2022-2-2 01:46
+
+有点难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
