@@ -832,3 +832,35 @@ machico咋了？
 machico咋了？</blockquote>
 他说的是上面那个图，“Happy Chinese New Year”
 
+
+
+*****
+
+####  高龙  
+##### 79#       发表于 2022-2-2 01:28
+
+ 本帖最后由 高龙 于 2022-2-2 01:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514155&amp;ptid=2050374" target="_blank">FDGHF45 发表于 2022-2-1 21:11</a>
+
+为啥矛头都对准了韩国？我在美国读书时，学校用的都是lunar new year，但是好像并没有韩国的存在感，大多数 ...</blockquote>
+扯谈，留过学的都知道鬼佬的简化习惯都是直接chinese new year；无论美英都是，这个称谓才是之前民间最普遍说的，这个口语习惯在B站的洋UP也是如此。lunar这个几乎民间很少用，我留学那几年就没见有人用，现在这都是炒作亚裔分划的右翼政客和南高.丽.棒.子才耍。
+
+*****
+
+####  qilang  
+##### 80#       发表于 2022-2-2 01:35
+
+<blockquote>重名的mufasa 发表于 2022-2-2 00:42
+啊？啊？啊？按照棒子逻辑他们不应该叫Korean new year吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202202/02/013451fb1cqg1bcg1g88n6.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1643736843655.jpg</strong> (61.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-2-2 01:34 上传
+
+已经开始了，先Korean lunar再去掉lunar
+
