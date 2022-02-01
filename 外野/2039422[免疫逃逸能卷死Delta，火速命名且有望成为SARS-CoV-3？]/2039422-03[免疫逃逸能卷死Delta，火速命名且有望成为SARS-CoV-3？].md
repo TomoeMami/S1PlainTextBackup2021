@@ -6356,3 +6356,30 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 南非疫苗接种率也就二十多，buff不高吧</blockquote>
 还有“自然免疫”呢，O声名鹊起不就是卷死了D<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 至少算是第三波收割了
 
+
+
+*****
+
+####  烦死了  
+##### 3505#       发表于 2022-2-1 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54507701&amp;ptid=2039422" target="_blank">ak123 发表于 2022-2-1 08:51</a>
+
+阿三死亡又破千了
+
+感染后群体免疫论再次破产</blockquote>
+你也太看不起三哥了
+
+2019年数据 三哥5岁以下儿童饿死的就有60万8千， 平均每天饿死1667个儿童，
+
+新冠这么点人三哥能有任何感觉不<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[https://en.gaonconnection.com/gl ... od-covid19-poverty/](https://en.gaonconnection.com/global-hunger-index-2021-india-health-malnutrition-children-women-mortality-nutrition-food-covid19-poverty/)
+
+*****
+
+####  反方向的波  
+##### 3506#       发表于 2022-2-1 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草，三哥的下限又一次击穿了我的想象力
+
