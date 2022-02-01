@@ -6333,3 +6333,14 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  ak123  
+##### 3503#       发表于 2022-2-1 08:51
+
+阿三死亡又破千了
+
+感染后群体免疫论再次破产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
