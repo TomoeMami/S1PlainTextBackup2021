@@ -13134,3 +13134,26 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 等YLS滚了然后庄司回来吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庄司还要驻守DW，没空来螺旋咕噜
 
+
+
+*****
+
+####  exiaexa  
+##### 86770#       发表于 2022-2-1 19:31
+
+我跟你们不一样，我就希望蘑菇赶紧收笔滚回老家
+
+这样就不用期待他再写什么东西，可以扔掉这破游戏了，管他yls怎么作
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 86771#       发表于 2022-2-1 19:32
+
+ 本帖最后由 kuarwbwe 于 2022-2-1 19:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54512753&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-1 19:20</a>
+
+等YLS滚了然后庄司回来吗</blockquote>
+虽然策划版本更新到3.0了很可能会比叶更烂，但口嗨又不要钱。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
