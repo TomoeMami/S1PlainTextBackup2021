@@ -793,3 +793,30 @@ machico咋了？
 韩国人调休吗，不调休我也叫Lunar
 过个年去掉周末放三天假还有脸了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六连星mk2  
+##### 75#       发表于 2022-2-2 00:39
+
+我个人觉得韩国要抢是好事啊，至少代表他文化认同
+真要学日本那样不过阴历了反而不好
+
+*****
+
+####  重名的mufasa  
+##### 76#       发表于 2022-2-2 00:42
+
+啊？啊？啊？按照棒子逻辑他们不应该叫Korean new year吗？
+
+*****
+
+####  致远星总书记  
+##### 77#       发表于 2022-2-2 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516580&amp;ptid=2050374" target="_blank">六连星mk2 发表于 2022-2-2 00:39</a>
+我个人觉得韩国要抢是好事啊，至少代表他文化认同
+真要学日本那样不过阴历了反而不好 ...</blockquote>
+日本改了新年不更好吗？他们自己过自己的，我们也不跟他掺和，就这样分割开来挺好
+
