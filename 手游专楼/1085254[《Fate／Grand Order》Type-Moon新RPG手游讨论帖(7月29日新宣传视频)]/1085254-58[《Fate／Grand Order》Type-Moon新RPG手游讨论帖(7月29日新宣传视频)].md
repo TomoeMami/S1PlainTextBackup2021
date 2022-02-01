@@ -13078,3 +13078,23 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这破楼
 
+
+
+*****
+
+####  khxooo  
+##### 86764#       发表于 2022-2-1 17:56
+
+ 本帖最后由 khxooo 于 2022-2-1 18:03 编辑 
+
+盐川走了，2.0结束YLS也走了后就可以正式关服，解脱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+突然给了10个石头，虽然本来就预计发，但是配合盐川走人的消息，就有点“开香槟”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuarwbwe  
+##### 86765#       发表于 2022-2-1 18:10
+
+好滚，今年新年第一个好消息。希望叶良树做完2.0也能一块滚。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
