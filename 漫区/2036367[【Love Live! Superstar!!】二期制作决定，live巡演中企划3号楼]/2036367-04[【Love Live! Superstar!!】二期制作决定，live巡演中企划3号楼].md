@@ -5615,3 +5615,21 @@ Nako是康复了吗</blockquote>
 
 欢迎大家光顾lovelive新春会[https://live.bilibili.com/h5/24010900](https://live.bilibili.com/h5/24010900)
 
+
+
+*****
+
+####  Cryogenian  
+##### 4966#       发表于 2022-2-1 21:52
+
+一起热血听歌
+
+[https://www.bilibili.com/video/BV1rZ4y1d7yu](https://www.bilibili.com/video/BV1rZ4y1d7yu)
+
+*****
+
+####  ykyin09  
+##### 4967#       发表于 2022-2-1 21:56
+
+第二首不会是决赛曲吧
+
