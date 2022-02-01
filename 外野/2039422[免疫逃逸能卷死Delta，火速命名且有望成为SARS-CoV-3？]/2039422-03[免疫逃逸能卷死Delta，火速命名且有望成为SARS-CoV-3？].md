@@ -6299,3 +6299,37 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 而美国人的好日子还有至少三年呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3500#       发表于 2022-2-1 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54507136&amp;ptid=2039422" target="_blank">vaststars 发表于 2022-2-1 03:59</a>
+
+不是说奥密克戎毒性小么？
+
+这日子什么时候是个头</blockquote>
+因为疫苗加持下delta死亡率不是很高，omicron比delta更低。。
+
+*****
+
+####  黑爪爪  
+##### 3501#       发表于 2022-2-1 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54507153&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-2-1 04:06</a>
+O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡率；但是比D要小，然而死亡人数=死亡率乘感染人 ...</blockquote>
+南非疫苗接种率也就二十多，buff不高吧
+
+*****
+
+####  飞侠小黑  
+##### 3502#       发表于 2022-2-1 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54507487&amp;ptid=2039422" target="_blank">黑爪爪 发表于 2022-2-1 07:57</a>
+南非疫苗接种率也就二十多，buff不高吧</blockquote>
+因为之前已经被delta洗过一遍了，实际有抗体的远不止打疫苗的20%
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
