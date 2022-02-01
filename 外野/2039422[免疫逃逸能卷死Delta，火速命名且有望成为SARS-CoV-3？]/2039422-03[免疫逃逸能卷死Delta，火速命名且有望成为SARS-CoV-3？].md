@@ -6383,3 +6383,32 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草，三哥的下限又一次击穿了我的想象力
 
+
+
+*****
+
+####  ak123  
+##### 3507#       发表于 2022-2-1 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54508206&amp;ptid=2039422" target="_blank">烦死了 发表于 2022-2-1 10:12</a>
+你也太看不起三哥了
+
+2019年数据 三哥5岁以下儿童饿死的就有60万8千， 平均每天饿死1667个儿童，
+
+新冠这么 ...</blockquote>
+阿三本来就随便死，没什么关注的，但是这算是预告了西方搞病毒共存的破产啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 3508#       发表于 2022-2-1 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来阿三这么离谱的吗
+
+*****
+
+####  最好不说  
+##### 3509#       发表于 2022-2-1 10:45
+
+丹麦数据，BA.2传染性比BA.1高约30%，乐，This Is Our Life from Now On, in Waves
+
