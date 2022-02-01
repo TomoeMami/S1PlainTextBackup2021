@@ -6148,3 +6148,26 @@ b博
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天虽然没开播了但还是在打啊，不过输了两把离白金又远了一点
 
+
+
+*****
+
+####  Klience  
+##### 8212#       发表于 2022-2-1 15:07
+
+她又不会玩能C的英雄 就算是上单波比也是看对面是不是菜刀队 打野还是算了 没有意识的人还是别玩打野这个位置 现在这游戏野区资源太重要了
+
+*****
+
+####  古战场亡魂  
+##### 8213#       发表于 2022-2-1 15:09
+
+之前也是打着打着在开播的，从战绩上看没啥成长。养成党怕是要失望了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8214#       发表于 2022-2-1 15:10
+
+新推，今天摸了
+

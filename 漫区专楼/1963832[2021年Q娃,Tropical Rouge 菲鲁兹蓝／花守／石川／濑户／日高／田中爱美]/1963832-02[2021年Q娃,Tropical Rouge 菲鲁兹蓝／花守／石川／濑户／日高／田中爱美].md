@@ -13981,3 +13981,24 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 —— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  梦诗歌雪  
+##### 2566#       发表于 2022-2-1 15:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+这个不到一年就重聚的结局还是差点意思，长大了再碰面比较有那味儿。像这张同人画的成年真夏在海边遇见已经当上女王的巨大萝拉，这才是感动的再会啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/01/151056u7w26yvzopwoxyr6.jpg" referrerpolicy="no-referrer">
+
+<strong>Cache_-47b97934ca515a51..jpg</strong> (166.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-1 15:10 上传
+
+说起来前期很多人猜测的虾姑姑其实是天山童姥的设定到最后也没讲，就是真的小孩子。明明一直在暗示，不知是砍了还是本来就没有只是观众想多了
+
