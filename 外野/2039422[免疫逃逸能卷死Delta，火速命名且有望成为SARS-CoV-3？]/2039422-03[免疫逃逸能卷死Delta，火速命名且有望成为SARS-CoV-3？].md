@@ -6455,3 +6455,14 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 https://www.nbcnewyork.com/news/coronavirus/nyc-starts-free-same-day-delivery-of-covid-antiviral-pil ...</blockquote>
 如果发辉瑞的，那还行，撑死了就是病毒突变了药品开发重新来，如果发默沙东的，那可是作大死。那个药的安全性是基于严格执行临床试验方案的前提的，如果让患者随便吃，养出什么蛊来真不好预测。而且这玩意可能还有基因毒性，长期吃真可能有问题。
 
+
+
+*****
+
+####  海关  
+##### 3514#       发表于 2022-2-1 16:09
+
+我有个问题，当时不是说mrna疫苗可以像编程一样针对不同的变种进行编程，迅速针对新变种进行疫苗免疫，但现在为啥一个mrna变种疫苗都没看见，d没有，o也没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

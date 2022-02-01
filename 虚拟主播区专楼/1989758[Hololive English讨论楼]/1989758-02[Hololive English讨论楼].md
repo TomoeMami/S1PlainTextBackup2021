@@ -1260,3 +1260,12 @@ memei新年要和anya联动！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D．Va  
+##### 1616#       发表于 2022-2-1 16:27
+
+Calli直播透露3月19日和20日holofes上EN一期和ID一期全员正式3D出道，不用去日本，以后可以直接家用3D直播
+
