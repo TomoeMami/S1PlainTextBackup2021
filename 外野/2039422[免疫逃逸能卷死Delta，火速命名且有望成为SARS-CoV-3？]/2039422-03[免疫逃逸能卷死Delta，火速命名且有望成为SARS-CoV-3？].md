@@ -6435,3 +6435,12 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  CR2  
+##### 3512#       发表于 2022-2-1 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好奇怪啊，国内那么多患者痊愈了没见有什么感受发上来
+
