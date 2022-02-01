@@ -7943,3 +7943,14 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿色肥鸡破大防了 看来最近确实是胖了
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5333#       发表于 2022-2-1 11:03
+
+肥鸡打鸣当闹钟很管用兄弟们
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

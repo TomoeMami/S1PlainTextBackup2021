@@ -5495,3 +5495,14 @@ B限的票快4000张了</blockquote>
 
 虎年大吉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 4957#       发表于 2022-2-1 11:06
+
+接到钟岚珠的电话了，是全中文的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -16655,3 +16655,35 @@ kizunaai 公司 [https://kizunaai.com/20220131_announcement/](https://kizunaai.c
 
 V综楼友们新年快乐
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 10431#       发表于 2022-2-1 10:49
+
+<blockquote>💕..Happy Birthday..💕
+
+本日2/1は...燦鳥ノムの誕生日🎉
+
+123歳になりました(Ծ◡Ծ✿)
+
+これからもノム友のみなさんと共に！
+
+年を重ねていきたいですわ(˘◡˘✿)
+
+#燦鳥ノム生誕祭</blockquote>
+
+s，
+
+上错号了吧？
+
+不管了，总之祝各位春节快乐🎉
+
+*****
+
+####  hulaoda007  
+##### 10432#       发表于 2022-2-1 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">新年快乐，和和气气。
+
