@@ -13157,3 +13157,21 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 等YLS滚了然后庄司回来吗</blockquote>
 虽然策划版本更新到3.0了很可能会比叶更烂，但口嗨又不要钱。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 86772#       发表于 2022-2-1 20:18
+
+ 本帖最后由 zakki 于 2022-2-1 20:20 编辑 
+
+这么大的事不来个30石<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zore  
+##### 86773#       发表于 2022-2-1 20:21
+
+yls庄司盐川一起滚(无慈悲
+

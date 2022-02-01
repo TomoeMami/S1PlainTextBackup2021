@@ -2684,3 +2684,48 @@ noob jump<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">开始了，她开启了白给模式www
 
+
+
+*****
+
+####  面具13  
+##### 7807#       发表于 2022-2-1 20:02
+
+这个传送门是个什么鬼
+
+*****
+
+####  越动天下  
+##### 7808#       发表于 2022-2-1 20:03
+
+这个开大招下去是什么东西 好像是差不到100分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 7809#       发表于 2022-2-1 20:08
+
+ 本帖最后由 越动天下 于 2022-2-1 20:09 编辑 
+
+好头我k<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 完了 没脸了
+
+*****
+
+####  nian1538  
+##### 7810#       发表于 2022-2-1 20:09
+
+还差99分
+
+起码今天的Kraber没有昨天那么马
+
+*****
+
+####  面具13  
+##### 7811#       发表于 2022-2-1 20:10
+
+ 本帖最后由 面具13 于 2022-2-1 20:11 编辑 
+
+l2d is dead，变成一般女主播了（悲
+
+她克雷贝尔感觉总是当滋蹦玩
+
