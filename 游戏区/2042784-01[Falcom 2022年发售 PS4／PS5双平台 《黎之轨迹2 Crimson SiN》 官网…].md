@@ -3656,3 +3656,14 @@ https://weibo.com/ttarticle/x/m/show/id/2309404725724811755550?_wb_client_=1
 学妹的声优也新冠了，这下要换人还是直接开摆</blockquote>
 没事，录音还早着呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 257#       发表于 2022-2-2 00:18
+
+喜欢甜食的原因游戏刚出就有人猜了，可能是嗑药的味道也是甜的，范恩借甜食压制药瘾
+
+看这回猜的准不准了
+

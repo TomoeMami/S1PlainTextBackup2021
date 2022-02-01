@@ -2863,3 +2863,27 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 拿传送门去收头导致战场平衡被打破，最后被劝架gg
 
+
+
+*****
+
+####  梅斯之围  
+##### 7828#       发表于 2022-2-2 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到大佐不报点，全责
+
+*****
+
+####  梅斯之围  
+##### 7829#       发表于 2022-2-2 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516243&amp;ptid=1947500" target="_blank"> 梅斯之围 发表于 2022-2-2 00:04</a> 看到大佐不报点，全责 </blockquote>
+看错了来自: iPhone客户端
+
+*****
+
+####  面具13  
+##### 7830#       发表于 2022-2-2 00:09
+
+这是梦回两年前？
+

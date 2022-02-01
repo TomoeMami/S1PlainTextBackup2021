@@ -756,3 +756,40 @@ machico咋了？
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+
+*****
+
+####  jinjinhua  
+##### 72#       发表于 2022-2-2 00:13
+
+<blockquote>FDGHF45 发表于 2022-2-1 21:11
+为啥矛头都对准了韩国？我在美国读书时，学校用的都是lunar new year，但是好像并没有韩国的存在感，大多数 ...</blockquote>
+我也不晓得是不是，但是去年ea的fifa21在春节这天出了个活动物品，当时的策划是韩国团队。
+
+<img src="https://img.saraba1st.com/forum/202202/02/001328sxtutzudu2iuylq1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20210212_185411_com.ea.gp.fifaultimate.jpg</strong> (143.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-2-2 00:13 上传
+
+*****
+
+####  御众师  
+##### 73#       发表于 2022-2-2 00:15
+
+<blockquote>不香的鱼干 发表于 2022-2-1 20:39
+这个说法泥潭以前也有一堆人在大力支持棒子和猴子并拿圣诞节举例世界都过人家又不用加国名 ...</blockquote>
+不可能一堆支持。这种可以问他：是不用加国名，还是禁止加国名？可以立马判断是蠢还是坏。
+
+*****
+
+####  EterneLEnVy  
+##### 74#       发表于 2022-2-2 00:15
+
+韩国人调休吗，不调休我也叫Lunar
+过个年去掉周末放三天假还有脸了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
