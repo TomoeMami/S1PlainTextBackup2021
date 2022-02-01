@@ -2754,3 +2754,30 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 弹幕都在说too aggressive了
 
+
+
+*****
+
+####  越动天下  
+##### 7815#       发表于 2022-2-1 21:10
+
+太激进了
+
+*****
+
+####  梅斯之围  
+##### 7816#       发表于 2022-2-1 21:16
+
+ 本帖最后由 梅斯之围 于 2022-2-1 21:19 编辑 
+
+被同一个G胖杀两次。还是先手被丝血反杀，多少有些心不在焉
+
+之前也说过最后上不上大师无所谓。那么就在crew面前摆到赛季结束吧，我的任务完成了哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  乌鸦绅士  
+##### 7817#       发表于 2022-2-1 21:16
+
+被一个小帮手加和平的胖子单杀两次，战犯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
