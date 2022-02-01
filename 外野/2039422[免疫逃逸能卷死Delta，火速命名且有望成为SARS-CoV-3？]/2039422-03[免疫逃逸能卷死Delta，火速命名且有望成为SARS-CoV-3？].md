@@ -6412,3 +6412,26 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 丹麦数据，BA.2传染性比BA.1高约30%，乐，This Is Our Life from Now On, in Waves
 
+
+
+*****
+
+####  烦死了  
+##### 3510#       发表于 2022-2-1 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54508323&amp;ptid=2039422" target="_blank">ak123 发表于 2022-2-1 10:30</a>
+
+阿三本来就随便死，没什么关注的，但是这算是预告了西方搞病毒共存的破产啊 ...</blockquote>
+西方的人也是随便死的， 大号印度<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  嘉峪君  
+##### 3511#       发表于 2022-2-1 12:30
+
+辉瑞的奥疫苗到底能不能如期问世呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
