@@ -13098,3 +13098,39 @@ TMD 我为什么就抽不到这种副产品</blockquote>
 
 好滚，今年新年第一个好消息。希望叶良树做完2.0也能一块滚。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 86766#       发表于 2022-2-1 19:20
+
+等YLS滚了然后庄司回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 86767#       发表于 2022-2-1 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗦话注意点 人家这叫毕业怎么能叫滚蛋呢(
+
+*****
+
+####  里村紅葉  
+##### 86768#       发表于 2022-2-1 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54512776&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-1 19:22</a>
+
+嗦话注意点 人家这叫毕业怎么能叫滚蛋呢(</blockquote>
+胎教肄业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 86769#       发表于 2022-2-1 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54512753&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2022-2-1 19:20</a>
+
+等YLS滚了然后庄司回来吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庄司还要驻守DW，没空来螺旋咕噜
+
