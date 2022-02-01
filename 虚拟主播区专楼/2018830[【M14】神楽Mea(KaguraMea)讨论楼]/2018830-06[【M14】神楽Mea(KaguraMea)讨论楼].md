@@ -6171,3 +6171,33 @@ b博
 
 新推，今天摸了
 
+
+
+*****
+
+####  呓亘  
+##### 8215#       发表于 2022-2-1 15:32
+
+大年初一不来B限收米，只能说智商不如村头二傻子
+
+*****
+
+####  T_Hb  
+##### 8216#       发表于 2022-2-1 15:40
+
+谁打钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freeze_雪风  
+##### 8217#       发表于 2022-2-1 15:42
+
+如果来了，打钱也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8218#       发表于 2022-2-1 15:48
+
+两把排位而已啊，不至于吧，这就红温了……休息等冷却了……
+
