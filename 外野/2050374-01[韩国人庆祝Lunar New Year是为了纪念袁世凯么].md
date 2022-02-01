@@ -820,3 +820,15 @@ machico咋了？
 真要学日本那样不过阴历了反而不好 ...</blockquote>
 日本改了新年不更好吗？他们自己过自己的，我们也不跟他掺和，就这样分割开来挺好
 
+
+
+*****
+
+####  黑夜守望者  
+##### 78#       发表于 2022-2-2 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54515732&amp;ptid=2050374" target="_blank">xiaoba329 发表于 2022-2-1 23:19</a>
+
+machico咋了？</blockquote>
+他说的是上面那个图，“Happy Chinese New Year”
+
