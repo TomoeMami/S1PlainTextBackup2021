@@ -13193,3 +13193,15 @@ yls庄司盐川一起滚(无慈悲
 
 哪里说yls不干了？不是全部都到新公司了吗
 
+
+
+*****
+
+####  黑上シグマ  
+##### 86776#       发表于 2022-2-1 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514981&amp;ptid=1085254" target="_blank">rooarr 发表于 2022-2-1 22:14</a>
+
+哪里说yls不干了？不是全部都到新公司了吗</blockquote>
+没人说阿叶不干了啊？在说盐川大尊师跑路了
+
