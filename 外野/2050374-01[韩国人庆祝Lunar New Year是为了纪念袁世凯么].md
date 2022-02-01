@@ -897,3 +897,25 @@ machico咋了？</blockquote>
 
 毕竟在他们看来 日韩本来就属于中国<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yukine_Chris  
+##### 84#       发表于 2022-2-2 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54515327&amp;ptid=2050374" target="_blank">这就是奇迹 发表于 2022-2-1 22:45</a>
+Chinese Characters还真早就被出警过了，现在日本人说自己用的是Kanji，棒子说自己用的是Hanja，就是要和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那倒也没有这么魔怔，坐标东京大学，还是会说是Chinese character的
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  sk此方  
+##### 85#       发表于 2022-2-2 07:49
+
+之前看球看切尔西搞春节活动也是chinese new year和各种舞狮活动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">包括后面看一些b站up后续采访英国人看见是中国人就说chinese new year还真没人是什么lunar new year
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
