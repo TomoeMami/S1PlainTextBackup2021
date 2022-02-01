@@ -660,3 +660,38 @@ machico咋了？
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+
+*****
+
+####  kll85757  
+##### 65#       发表于 2022-2-1 23:40
+
+<img src="https://img.saraba1st.com/forum/202202/01/233839ofjt969jbyx9yof1.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5773 (1).png</strong> (397.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-1 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202202/01/233838pf1ro42ae8vibjaj.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5772 (1).png</strong> (408.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-1 23:38 上传
+
+但是我在游戏里在公屏发happy new year，所有人都用happy Chinese new year来回我，普通美国人可能还是更认Chinese new year的说法
+
+*****
+
+####  俾斯麥  
+##### 66#       发表于 2022-2-1 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54515263&amp;ptid=2050374" target="_blank">不香的鱼干 发表于 2022-2-1 22:39</a>
+
+某些人就是其他国家也过不单是你过的脑回路啊，以前贝克汉姆中文祝福中国这边就被棒子猴子出警了，那时我 ...</blockquote>
+我还见过说什么要有文化自信的，我寻思着你连自家的东西都没有自信的大声宣示主权还谈个屁的文化自信，怕不是行走的五十万<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
