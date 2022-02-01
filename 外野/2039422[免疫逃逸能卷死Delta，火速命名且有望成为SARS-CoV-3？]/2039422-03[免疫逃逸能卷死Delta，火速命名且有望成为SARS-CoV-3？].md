@@ -6444,3 +6444,14 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">好奇怪啊，国内那么多患者痊愈了没见有什么感受发上来
 
+
+
+*****
+
+####  coldhot3  
+##### 3513#       发表于 2022-2-1 14:53
+
+<blockquote>vimisbesteditor 发表于 2022-1-31 12:45
+https://www.nbcnewyork.com/news/coronavirus/nyc-starts-free-same-day-delivery-of-covid-antiviral-pil ...</blockquote>
+如果发辉瑞的，那还行，撑死了就是病毒突变了药品开发重新来，如果发默沙东的，那可是作大死。那个药的安全性是基于严格执行临床试验方案的前提的，如果让患者随便吃，养出什么蛊来真不好预测。而且这玩意可能还有基因毒性，长期吃真可能有问题。
+

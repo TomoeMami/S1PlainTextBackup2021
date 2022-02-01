@@ -6139,3 +6139,12 @@ b博
 
 没说具体哪天
 
+
+
+*****
+
+####  路人庚  
+##### 8211#       发表于 2022-2-1 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天虽然没开播了但还是在打啊，不过输了两把离白金又远了一点
+
