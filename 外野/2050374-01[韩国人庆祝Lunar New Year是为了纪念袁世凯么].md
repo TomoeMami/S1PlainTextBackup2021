@@ -695,3 +695,64 @@ machico咋了？
 某些人就是其他国家也过不单是你过的脑回路啊，以前贝克汉姆中文祝福中国这边就被棒子猴子出警了，那时我 ...</blockquote>
 我还见过说什么要有文化自信的，我寻思着你连自家的东西都没有自信的大声宣示主权还谈个屁的文化自信，怕不是行走的五十万<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  帕林马哲理  
+##### 67#       发表于 2022-2-1 23:48
+
+有些人在“大熔炉”里已经被规训成跪着爬的四足生物，根本不知道自己可以站起来，而手是可以捏成拳头打人的。不站起来确实不用担心别族把你当成人。
+
+*****
+
+####  猫溺泉君  
+##### 68#       发表于 2022-2-1 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514155&amp;ptid=2050374" target="_blank">FDGHF45 发表于 2022-2-1 21:11</a>
+为啥矛头都对准了韩国？我在美国读书时，学校用的都是lunar new year，但是好像并没有韩国的存在感，大多数 ...</blockquote>
+傻逼装什么留学生啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+这屁事是2010年奥巴马在韩国裔的游说下改的，在这之前一直是chinese new year
+这种事情在美国念过书过过春节的都应该知道，孙子你在这儿跟你爷爷装什么呢？
+
+楼下如果有帮这傻逼说话的，建议去看看这弱智的发言记录
+
+— from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  猫溺泉君  
+##### 69#       发表于 2022-2-1 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516005&amp;ptid=2050374" target="_blank">kll85757 发表于 2022-2-1 23:40</a>
+但是我在游戏里在公屏发happy new year，所有人都用happy Chinese new year来回我，普通美国人可能还是更 ...</blockquote>
+因为在2010年之前，春节就是chinese new year，在这之后才被黑奸和他背后的韩裔团体推动改成现在这德行
+然后美国华裔除了新过去的世界观还没展开的小留之外，没人鸟这个luner new year
+
+— from Sony XQ-BC72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  野上由加奈  
+##### 70#       发表于 2022-2-2 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514393&amp;ptid=2050374" target="_blank">東京地方検察庁 发表于 2022-2-1 21:34</a>
+
+真要说的话，chinese new year、spring festival 这个名字一开始就落了下乘，应该直接叫chunjie、xinnian， ...</blockquote>
+例如，什么Chinese dumpling啊，现在鬼佬更乐意叫Jiaozi，鬼子也抢注了gyouza
+
+什么Chinese Characters，鬼子抢注了kanji
+
+还有什么Chinese dargon啊，dargon boat festival啊，mid autumn festival啊
+
+比如鬼子新年，跟元旦就是一天，但输出到鬼佬就偏要用oshogatsu aka japanese new year
+
+*****
+
+####  傲娇的章鱼  
+##### 71#       发表于 2022-2-2 00:01
+
+不太懂，争这个能多放两天假吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

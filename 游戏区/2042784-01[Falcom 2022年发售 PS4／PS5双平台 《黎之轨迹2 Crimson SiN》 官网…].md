@@ -3638,3 +3638,21 @@ https://weibo.com/ttarticle/x/m/show/id/2309404725724811755550?_wb_client_=1
 
 2022-1-29 16:37 上传
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 255#       发表于 2022-2-1 23:49
+
+学妹的声优也新冠了，这下要换人还是直接开摆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 256#       发表于 2022-2-1 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516114&amp;ptid=2042784" target="_blank">红魔馆的糖 发表于 2022-2-1 23:49</a>
+学妹的声优也新冠了，这下要换人还是直接开摆</blockquote>
+没事，录音还早着呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
