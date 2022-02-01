@@ -6253,3 +6253,21 @@ y就这抗压也想打英雄联盟<img src="https://static.saraba1st.com/image/s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  T_Hb  
+##### 8225#       发表于 2022-2-1 22:10
+
+2月能不能多播点，指油管
+
+*****
+
+####  rosevalley46  
+##### 8226#       发表于 2022-2-1 22:17
+
+那祈祷她赶紧上白金吧,再被打烂几天别说播,工商怕是都扔了
+
+直播连败时状态都不像个主播了,就搁那蒙头狂打
+
