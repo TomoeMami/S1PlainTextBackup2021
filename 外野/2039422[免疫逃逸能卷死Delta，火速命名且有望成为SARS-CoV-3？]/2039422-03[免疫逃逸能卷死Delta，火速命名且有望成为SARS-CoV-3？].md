@@ -6344,3 +6344,15 @@ O的毒性据说是比原始大的，现在看到都是疫苗加持下的死亡�
 
 感染后群体免疫论再次破产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wszweill  
+##### 3504#       发表于 2022-2-1 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54507487&amp;ptid=2039422" target="_blank">黑爪爪 发表于 2022-1-31 18:57</a>
+
+南非疫苗接种率也就二十多，buff不高吧</blockquote>
+还有“自然免疫”呢，O声名鹊起不就是卷死了D<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 至少算是第三波收割了
+
