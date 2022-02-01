@@ -13968,3 +13968,16 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 谁敢买</blockquote>
 为啥啊
 
+
+
+*****
+
+####  暗黑能乐  
+##### 2565#       发表于 2022-2-1 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54509261&amp;ptid=1963832" target="_blank">xeseed 发表于 2022-2-1 12:26</a>
+为啥啊</blockquote>
+追加是个不可明说的声优
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
