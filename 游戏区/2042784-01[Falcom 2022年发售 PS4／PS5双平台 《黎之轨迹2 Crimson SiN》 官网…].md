@@ -3697,3 +3697,14 @@ https://weibo.com/ttarticle/x/m/show/id/2309404725724811755550?_wb_client_=1
 
 不愧是太极大师 功力又见涨了
 
+
+
+*****
+
+####  悠悠你心  
+##### 261#       发表于 2022-2-2 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">就现在日本声优中招的趋势。。。感觉已经扩散到不可控制了。。。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -1094,3 +1094,65 @@ image.png
 上一次看到网上这么多棒子的起源 ...</blockquote>
 kpop战略的一环
 
+
+
+*****
+
+####  SakuraAyane  
+##### 99#       发表于 2022-2-2 09:51
+
+韩国佬去汉字不彻底去掉春节，日本佬去农历春节但是保留汉字…
+
+*****
+
+####  EVA01  
+##### 100#       发表于 2022-2-2 09:59
+
+传统文化被偷被挪用被暗度陈仓，ZF层面装聋作哑 从来不置一词
+
+*****
+
+####  红腹锦鸡当选  
+##### 101#       发表于 2022-2-2 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516218&amp;ptid=2050374" target="_blank">野上由加奈 发表于 2022-02-02 00:00:25</a>
+例如，什么Chinese dumpling啊，现在鬼佬更乐意叫Jiaozi，鬼子也抢注了gyouza
+
+什么Chinese Characters， ...</blockquote>ramen算不算？还有toufu
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  wtyrambo  
+##### 102#       发表于 2022-2-2 10:03
+
+<img src="https://img.saraba1st.com/forum/202202/02/100236rqr3wza83zzbm3vp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220202-100208.jpg</strong> (295.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 10:02 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiaoba329  
+##### 103#       发表于 2022-2-2 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518010&amp;ptid=2050374" target="_blank">这个碧池是谁？ 发表于 2022-2-2 09:36</a>
+这两年棒子偷抢我们文化的力度真的是来势汹汹，不知背后是什么力量在驱使
+上一次看到网上这么多棒子的起源 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这两年中美啥关系，绑在美国文化战车上的南伪动作越来越多也不奇怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  响鬼  
+##### 104#       发表于 2022-2-2 10:06
+
+农历是阴阳历也是中国的农耕历，和中国高度绑定。把农历当阴历的哪来的资格逼逼农历春节。
+
