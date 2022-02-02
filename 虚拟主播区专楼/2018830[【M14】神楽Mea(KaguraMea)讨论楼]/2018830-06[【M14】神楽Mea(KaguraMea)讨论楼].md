@@ -6321,3 +6321,47 @@ y就这抗压也想打英雄联盟<img src="https://static.saraba1st.com/image/s
 
 建议图奇开瓦
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8231#       发表于 2022-2-2 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54519696&amp;ptid=2018830" target="_blank">T_Hb 发表于 2022-2-2 13:08</a>
+
+建议图奇开瓦</blockquote>
+她瓦还不如lol呢……
+
+*****
+
+####  T_Hb  
+##### 8232#       发表于 2022-2-2 13:30
+
+ 本帖最后由 T_Hb 于 2022-2-2 13:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没了上分的念想就是存粹的快乐了
+
+*****
+
+####  古战场亡魂  
+##### 8233#       发表于 2022-2-2 13:36
+
+不想上白金的黄金不是好白银，这赛季还长呢。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8234#       发表于 2022-2-2 13:43
+
+开了（
+
+*****
+
+####  pei23333  
+##### 8235#       发表于 2022-2-2 13:43
+
+还就那闷头嗯打
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
