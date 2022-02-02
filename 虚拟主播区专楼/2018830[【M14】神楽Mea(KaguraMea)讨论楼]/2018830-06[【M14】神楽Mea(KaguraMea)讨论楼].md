@@ -6365,3 +6365,33 @@ y就这抗压也想打英雄联盟<img src="https://static.saraba1st.com/image/s
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  T_Hb  
+##### 8236#       发表于 2022-2-2 13:52
+
+可惜看不了
+
+*****
+
+####  古战场亡魂  
+##### 8237#       发表于 2022-2-2 13:55
+
+g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
+
+*****
+
+####  makourisu-2  
+##### 8238#       发表于 2022-2-2 13:56
+
+至少开始打上单而不是铁混子辅助了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T_Hb  
+##### 8239#       发表于 2022-2-2 14:00
+
+我觉得渡劫局她会选回辅助的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
