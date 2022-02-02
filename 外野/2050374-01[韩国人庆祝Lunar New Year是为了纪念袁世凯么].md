@@ -1275,3 +1275,13 @@ kpop战略的一环
 
 　　意译才是汉语母语者自古以来文化输出的传统好不好，不学无术的日耳曼蛮子才什么外来词都直接引用，最后搞出“轮胎炎”之类乐子来。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夏之岚  
+##### 117#       发表于 2022-2-2 12:43
+
+不是，这些国家没有自己的节日吗？
+Don’t u guys have phone(划掉  ur own festival ?
+
