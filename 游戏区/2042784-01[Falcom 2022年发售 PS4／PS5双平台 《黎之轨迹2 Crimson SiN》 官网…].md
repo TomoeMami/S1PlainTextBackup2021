@@ -3717,3 +3717,16 @@ https://weibo.com/ttarticle/x/m/show/id/2309404725724811755550?_wb_client_=1
 
 轨迹又不是没换人配音的前例
 
+
+
+*****
+
+####  oskneo  
+##### 263#       发表于 2022-2-2 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516114&amp;ptid=2042784" target="_blank">红魔馆的糖 发表于 2022-2-1 23:49</a>
+学妹的声优也新冠了，这下要换人还是直接开摆</blockquote>
+不是说游戏分开录音吗？这么长的时间段，哪个好哪个先录呗
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

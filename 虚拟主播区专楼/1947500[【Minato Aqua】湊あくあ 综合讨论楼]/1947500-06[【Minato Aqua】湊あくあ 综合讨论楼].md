@@ -3062,3 +3062,12 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 假如你夸之前一直用屁男or直布or密客估计已经钻1了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 7852#       发表于 2022-2-2 15:10
+
+昨天，不，今天早上最后一个半小时用密客上了两三百分吧，今天夸客还能上分吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

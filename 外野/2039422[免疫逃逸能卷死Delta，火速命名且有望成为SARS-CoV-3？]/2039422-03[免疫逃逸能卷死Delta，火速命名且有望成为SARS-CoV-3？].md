@@ -6466,3 +6466,26 @@ https://www.nbcnewyork.com/news/coronavirus/nyc-starts-free-same-day-delivery-of
 
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  星星狐  
+##### 3515#       发表于 2022-2-2 15:26
+
+<blockquote>拍照稀烂帮帮主
+
+​
+
+再抢个跑，又发现了另外一组Delta/Omicron重组……
+
+这次是美国，底子是AY.119.2+BA.1.1，
+
+并且重组breaking point在刺突蛋白NTD/RBD之间，也就是说，
+
+Delta的NTD加上Omicron的RBD和S2[捂脸]
+
+现在已经在PA、NJ、TN、MA四个州检出……[捂脸]</blockquote>
+
+美国发生了另一起独立的德奥合并事件，D的NTD+O的RBD，这么组合好处估计是：美国相当人打的是mRNA，而mRNA疫苗只编程了RBD蛋白，D的RBD接近原始株，面对mRNA疫苗天生不利，那么换成O的RBD或许会有新的表现也说不定。
+
