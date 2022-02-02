@@ -1294,3 +1294,20 @@ Don’t u guys have phone(划掉  ur own festival ?
 
 哈哈哈，外交部的老爷是好的，你们下面这帮玩意儿又把经念歪了吧！ 反正怎么也能圆回来吧！嘿嘿嘿！
 
+
+
+*****
+
+####  shallen320  
+##### 119#       发表于 2022-2-2 15:38
+
+刚看到你们最爱的steam上也是lunar new year。。。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/01/233841dp9god09rpr2pwa6.png" referrerpolicy="no-referrer">
+
+<strong>Capture.PNG</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 15:38 上传
+
