@@ -1156,3 +1156,54 @@ kpop战略的一环
 
 农历是阴阳历也是中国的农耕历，和中国高度绑定。把农历当阴历的哪来的资格逼逼农历春节。
 
+
+
+*****
+
+####  红腹锦鸡当选  
+##### 105#       发表于 2022-2-2 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518163&amp;ptid=2050374" target="_blank">wtyrambo 发表于 2022-02-02 10:03:10</a></blockquote>上面的大人物是不会懂的<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  聚散浮云  
+##### 106#       发表于 2022-2-2 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518163&amp;ptid=2050374" target="_blank">wtyrambo 发表于 2022-2-2 10:03</a></blockquote>
+没事，都能回旋
+
+*****
+
+####  任天索尼子  
+##### 107#       发表于 2022-2-2 10:08
+
+上面这几年把韩国当做可以拉拢的对象 搞中韩友好热火朝天呢 几个无关紧要的节日哪有中韩友好重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  yimisheji  
+##### 108#       发表于 2022-2-2 10:13
+
+ 本帖最后由 yimisheji 于 2022-2-2 10:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514899&amp;ptid=2050374" target="_blank">天仓怜 发表于 2022-2-1 22:08</a>
+
+问题是中国人不需要像你美那样照顾棒猴的看法啊，本质就是中国人对棒猴将中国节日去中国化的不满，非要扯你美的认同感？</blockquote>　　高丽棒子和越南猴子自以为在去中国化罢了。
+
+　　“Luna New Year”和“Spring Festival”是典型的（基于汉语语法的）<strong>洋泾浜英语</strong>，因为只有汉语母语者才会称农历为“阴历”、称农历正月初一为“春节”。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yimisheji  
+##### 109#       发表于 2022-2-2 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518181&amp;ptid=2050374" target="_blank">响鬼 发表于 2022-2-2 10:06</a>
+
+农历是阴阳历也是中国的农耕历，和中国高度绑定。把农历当阴历的哪来的资格逼逼农历春节。 </blockquote>　　[农历和阴历是怎么一回事儿？](http://www.news.cn/science/2021-11/07/c_1310297839.htm)
+
+　　阴阳历警察差不多得叻，和格里历对称的时候谁他妈要专门强调农历是阴阳历啊。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
