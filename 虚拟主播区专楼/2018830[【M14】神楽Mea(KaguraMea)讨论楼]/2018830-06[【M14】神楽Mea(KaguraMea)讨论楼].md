@@ -6571,3 +6571,19 @@ g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8259#       发表于 2022-2-2 20:51
+
+看了一下，星宮汐 s6黄金1 s7白金5 s8黄金2 s9黄金1……主玩ad的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看看有没有机会吧。
+
+*****
+
+####  T_Hb  
+##### 8260#       发表于 2022-2-2 20:55
+
+我觉得概率还不如兰太郎找个职业哥
+

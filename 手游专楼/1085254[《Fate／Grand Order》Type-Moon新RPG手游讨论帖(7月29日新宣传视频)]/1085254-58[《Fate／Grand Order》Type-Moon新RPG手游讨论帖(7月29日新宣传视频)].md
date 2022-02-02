@@ -13216,3 +13216,16 @@ yls庄司盐川一起滚(无慈悲
 没人说阿叶不干了啊？在说盐川大尊师跑路了</blockquote>
 原来是两件事，我还以为新公司刚出来人家跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 86778#       发表于 2022-2-2 21:05
+
+今年特攻有小安
+
+今年加的角色是巴赛特吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+boxer<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

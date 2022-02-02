@@ -1467,3 +1467,44 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 
 [https://www.bilibili.com/video/BV1Q34y1B7kE](https://www.bilibili.com/video/BV1Q34y1B7kE)
 
+
+
+*****
+
+####  风起云吟  
+##### 135#       发表于 2022-2-2 20:56
+
+<img src="https://img.saraba1st.com/forum/202202/02/205557huemqceq2u2jqzmq.jpg" referrerpolicy="no-referrer">
+
+<strong>-7da9Q2p-8zoqZcT3cSsg-sb.jpg</strong> (114.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 20:55 上传
+
+<img src="https://img.saraba1st.com/forum/202202/02/205557wzfqf6jrr1p6vfjl.jpg" referrerpolicy="no-referrer">
+
+<strong>-7da9Q2p-jg8qK29T3cSof-sg.jpg</strong> (82.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 20:55 上传
+
+*****
+
+####  天仓怜  
+##### 136#       发表于 2022-2-2 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54523923&amp;ptid=2050374" target="_blank">风起云吟 发表于 2022-2-2 20:56</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">资本家没有国家铁证了
+
+*****
+
+####  风起云吟  
+##### 137#       发表于 2022-2-2 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54524009&amp;ptid=2050374" target="_blank">天仓怜 发表于 2022-2-2 21:04</a>
+
+资本家没有国家铁证了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实 这个对比倒是一个很好的体现资本家没有祖国的例子
+
