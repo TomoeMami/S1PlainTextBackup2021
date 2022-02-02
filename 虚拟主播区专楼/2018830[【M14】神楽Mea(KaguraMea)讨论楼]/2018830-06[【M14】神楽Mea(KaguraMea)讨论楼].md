@@ -6395,3 +6395,14 @@ g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
 
 我觉得渡劫局她会选回辅助的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8240#       发表于 2022-2-2 14:25
+
+ 本帖最后由 古战场亡魂 于 2022-2-2 14:26 编辑 
+
+一个人的逆风……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">6级对拼优势还好，均势、劣势大招临死才放有时候还放不出来。非惦记你个波比干什么……
+
