@@ -1382,3 +1382,14 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 撒比重生怎么不把g7喷火放出来？服务电竞？
 
+
+
+*****
+
+####  希望之异热同心  
+##### 76#       发表于 2022-2-2 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">改动很好，风暴点重生就表现出了强烈的游戏节奏pubg化，然后这次把平行长弓丢进复制器里，锤击点放出来，让大家要不远距离互卡谁都近不了身要不突然遭遇近距离接战融化
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
