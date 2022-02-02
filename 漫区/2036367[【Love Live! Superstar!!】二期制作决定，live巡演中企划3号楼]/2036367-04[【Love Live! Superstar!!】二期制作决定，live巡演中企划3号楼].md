@@ -5699,3 +5699,20 @@ cw 曲好一般………………
 
 我听到可可声音的第一反应是诈骗，还想着这电信诈骗玩的真花<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  starring  
+##### 4972#       发表于 2022-2-2 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54519432&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-2 12:37</a></blockquote>
+这运动外套+双马尾，就是JK嘛（本来就是<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  musicat  
+##### 4973#       发表于 2022-2-2 13:22
+
+JK真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
