@@ -1062,3 +1062,35 @@ image.png
 
 —— 来自 HUAWEI VOG-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  这个碧池是谁？  
+##### 96#       发表于 2022-2-2 09:36
+
+这两年棒子偷抢我们文化的力度真的是来势汹汹，不知背后是什么力量在驱使
+上一次看到网上这么多棒子的起源论还是好多年前了
+
+*****
+
+####  rain319415  
+##### 97#       发表于 2022-2-2 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518010&amp;ptid=2050374" target="_blank">这个碧池是谁？ 发表于 2022-2-2 09:36</a>
+
+这两年棒子偷抢我们文化的力度真的是来势汹汹，不知背后是什么力量在驱使
+
+上一次看到网上这么多棒子的起源 ...</blockquote>
+韩国政府掏钱，民主党推波助澜，和台巴子、外务省共用渠道，越南猴子跟着喊666
+
+*****
+
+####  天仓怜  
+##### 98#       发表于 2022-2-2 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518010&amp;ptid=2050374" target="_blank">这个碧池是谁？ 发表于 2022-2-2 09:36</a>
+这两年棒子偷抢我们文化的力度真的是来势汹汹，不知背后是什么力量在驱使
+上一次看到网上这么多棒子的起源 ...</blockquote>
+kpop战略的一环
+
