@@ -1262,3 +1262,16 @@ kpop战略的一环
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  yimisheji  
+##### 116#       发表于 2022-2-2 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518617&amp;ptid=2050374" target="_blank">qilang 发表于 2022-2-2 11:10</a>
+
+我个人觉得我国翻译工作者从上到下都被历史压着不敢反弹，之前的近代屈辱史让翻译工作者不敢强势推广文化输出。日本被美国占领都敢只说漫画manga，忍者ninja，动画donga，汉字kanji，我们呢，只敢候着外国人说他们能理解的英语，不敢用自己的语言发音来文化输出，从底层逻辑就输太多。上面有人说饺子豆腐功夫其实外国人也愿意说中文的发音，但是我国的翻译工作者还是不敢从根本上转换过来</blockquote>　　什么倒果为因，意译看不出输出者是谁，音译就能看出来了？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+　　意译才是汉语母语者自古以来文化输出的传统好不好，不学无术的日耳曼蛮子才什么外来词都直接引用，最后搞出“轮胎炎”之类乐子来。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
