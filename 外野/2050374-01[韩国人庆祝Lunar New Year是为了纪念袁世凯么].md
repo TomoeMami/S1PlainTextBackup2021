@@ -949,3 +949,12 @@ Chinese Characters还真早就被出警过了，现在日本人说自己用的�
 Chinese Characters还真早就被出警过了，现在日本人说自己用的是Kanji，棒子说自己用的是Hanja，就是要和 ...</blockquote>
 但是这俩写出来（韩文虽然没汉字但看也知道）不就是汉字么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">除了他们能把汉文化给去中国化不如不还是变相承认
 
+
+
+*****
+
+####  caupollen  
+##### 89#       发表于 2022-2-2 08:18
+
+我觉得担心这个还是没太大必要把，虽然别人恶心人，我们要做的就是过自己的春节 坚持叫CNY，过的越好影响力自然就大，如果自己人都不在乎过这个节，被拿走才有可能吧
+
