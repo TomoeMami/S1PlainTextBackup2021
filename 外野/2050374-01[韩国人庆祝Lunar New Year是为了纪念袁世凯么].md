@@ -1244,3 +1244,21 @@ kpop战略的一环
 不算背刺我国教科书一直教lunar new year和Spring festival，后者一直推广不出去，所以更多用前者 ...</blockquote>
 我个人觉得我国翻译工作者从上到下都被历史压着不敢反弹，之前的近代屈辱史让翻译工作者不敢强势推广文化输出。日本被美国占领都敢只说漫画manga，忍者ninja，动画donga，汉字kanji，我们呢，只敢候着外国人说他们能理解的英语，不敢用自己的语言发音来文化输出，从底层逻辑就输太多。上面有人说饺子豆腐功夫其实外国人也愿意说中文的发音，但是我国的翻译工作者还是不敢从根本上转换过来
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 114#       发表于 2022-2-2 11:53
+
+中国驻美大使馆也用啊
+
+*****
+
+####  cat1230  
+##### 115#       发表于 2022-2-2 12:08
+
+别说了，说多了老爷不高兴<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
