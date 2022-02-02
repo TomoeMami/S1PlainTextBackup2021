@@ -6614,3 +6614,24 @@ g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8264#       发表于 2022-2-2 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54524423&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-2-2 21:45</a>
+
+别看她现在天天脑死lol，真上了反而不知道接下来干什么了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">冲钻石啊……想啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aisakahammer  
+##### 8265#       发表于 2022-2-2 21:55
+
+ 唱歌 打瓦 打匹配 杂谈分享生活 看到她101 我就头疼
+
