@@ -967,3 +967,98 @@ Chinese Characters还真早就被出警过了，现在日本人说自己用的�
 
 屁民就别管这些狗屁事情了，小心老爷觉得你翻墙不好，反手抓你进去过年
 
+
+
+*****
+
+####  博阳明禄  
+##### 91#       发表于 2022-2-2 09:07
+
+近代东亚各国“大难临头各自飞”后，就别指望他们承认自己在过中国新年了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rain319415  
+##### 92#       发表于 2022-2-2 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54515570&amp;ptid=2050374" target="_blank">lais 发表于 2022-2-1 23:06</a>
+
+话说韩国人为什么要弃汉字，以他们的德行直接把汉字改名成为韩字不行吗？ ...</blockquote>
+你以为他们没干过么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rain319415  
+##### 93#       发表于 2022-2-2 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514335&amp;ptid=2050374" target="_blank">疾风之wolf 发表于 2022-2-1 21:29</a>
+
+这就是高华歧视中国的理由咯？已经是文化挪用了</blockquote>
+这人是个屁的高华，压根就是个棒子
+
+*****
+
+####  rain319415  
+##### 94#       发表于 2022-2-2 09:19
+
+ 本帖最后由 rain319415 于 2022-2-2 09:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514479&amp;ptid=2050374" target="_blank">梅德韦杰夫 发表于 2022-2-1 21:39</a>
+
+担心远坂
+
+在意樱</blockquote>
+看来这位是专业人士了，论坛功能玩得那叫个溜，他已经把相关历史隐藏了
+
+image.png
+(6.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202202/02/091908goptitetro6bwwzb.png" referrerpolicy="no-referrer">
+
+image.png
+(162.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-1-28 17:15 上传
+
+<img src="https://img.saraba1st.com/forum/202201/28/171518g49tlwk9hxol0ol3.png" referrerpolicy="no-referrer">
+
+image.png
+(197.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-11-22 14:55 上传
+
+<img src="https://img.saraba1st.com/forum/202111/22/145521lkbtpkpkxpssctb2.png" referrerpolicy="no-referrer">
+
+image.png
+(57.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-7 20:51 上传
+
+<img src="https://img.saraba1st.com/forum/202106/07/205103kztrirtqtrrnmikr.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rain319415  
+##### 95#       发表于 2022-2-2 09:22
+
+ 本帖最后由 rain319415 于 2022-2-2 09:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54516128&amp;ptid=2050374" target="_blank">猫溺泉君 发表于 2022-2-1 23:51</a>
+傻逼装什么留学生啊
+这屁事是2010年奥巴马在韩国裔的游说下改的，在这之前一直是chinese new year ...</blockquote>
+这玩意儿已经在隐藏手尾了
+
+<img src="https://p.sda1.dev/4/d08d4afe0c98ce83e2bc1f77a4da02ba/N1OT32%6U)2_CJJNU`1V4GM(1).png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
