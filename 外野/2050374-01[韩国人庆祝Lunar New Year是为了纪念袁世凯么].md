@@ -1540,3 +1540,31 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 
 我记得新闻联播还是新闻直播间讲过这个事情，好像态度是不管是中国新年还是农历新年都是我们的。都可以说，所以我觉得现在喜欢炒作这个的可能是在华的韩国人，大家要小心一点啊，你们只看见春节，人家惦记着农历呢
 
+
+
+*****
+
+####  caupollen  
+##### 140#       发表于 2022-2-2 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54524351&amp;ptid=2050374" target="_blank">kumasukiyaki 发表于 2022-2-2 21:38</a>
+
+那像这种写个“Lunar New Year”但是图上有配中文的咋说？</blockquote>
+不如<img src="https://img.saraba1st.com/forum/202202/02/173551bbzpehpjgkae0lzk.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ad5457  
+##### 141#       发表于 2022-2-2 22:41
+
+老爷们再这样搞下去，哪天真有兔友天诛国贼了，就有好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  atfawp  
+##### 142#       发表于 2022-2-2 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514155&amp;ptid=2050374" target="_blank">FDGHF45 发表于 2022-2-1 21:11</a>
+为啥矛头都对准了韩国？我在美国读书时，学校用的都是lunar new year，但是好像并没有韩国的存在感，大多数 ...</blockquote>
+天子礼乐岂容番邦僭越。谅以天尊地卑，君臣道别。
+
