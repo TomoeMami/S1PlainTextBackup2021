@@ -5828,3 +5828,47 @@ A2B94949-451D-4ABE-8331-9B1EB76A7433.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/02/225455mymd089180709192.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 4979#       发表于 2022-2-2 23:24
+
+ 本帖最后由 仟音一心 于 2022-2-2 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54519432&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-2-2 12:37</a></blockquote>
+
+2.2是双马尾日
+
+后面还有一个麻花辫
+
+F6517A56-865C-4FE1-ACFE-ACCBC6657F84.jpeg
+(308.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 23:39 上传
+
+<img src="https://img.saraba1st.com/forum/202202/02/233900lb4jlqlj4djppvss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+6091F043-97D2-462F-AE20-9B792460F196.jpeg
+(236.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 23:39 上传
+
+<img src="https://img.saraba1st.com/forum/202202/02/233900zcaef1pyi1fy1ja1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 4980#       发表于 2022-2-2 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54523564&amp;ptid=2036367" target="_blank">stygian 发表于 2022-2-2 20:20</a>
+
+就可能正如5ch老哥总结的美人ptsd，我总觉得青山不笑比笑好看，笑起来总莫名有一种business感
+
+ ...</blockquote>
+怎么有一种打铁+鲤鱼+青山三个人的人脸合成图的感觉
+
