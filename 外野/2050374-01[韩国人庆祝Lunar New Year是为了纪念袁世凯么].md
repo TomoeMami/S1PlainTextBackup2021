@@ -1207,3 +1207,29 @@ kpop战略的一环
 
 　　阴阳历警察差不多得叻，和格里历对称的时候谁他妈要专门强调农历是阴阳历啊。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shallen320  
+##### 110#       发表于 2022-2-2 10:32
+
+我tm笑死，被外椒部背刺
+
+*****
+
+####  alex0566  
+##### 111#       发表于 2022-2-2 10:38
+
+只有发动世界大战才能洗刷耻辱 我无比的支持战争 甚至核战争 
+
+*****
+
+####  野上由加奈  
+##### 112#       发表于 2022-2-2 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54518360&amp;ptid=2050374" target="_blank">shallen320 发表于 2022-2-2 10:32</a>
+我tm笑死，被外椒部背刺</blockquote>
+不算背刺<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我国教科书一直教lunar new year和Spring festival，后者一直推广不出去，所以更多用前者
+就像中国其实没有端午节，只有dragon boat festival，所以韩国lunar历五月初五的端午祭叫Danoje，跟dragon boat的festival明显不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

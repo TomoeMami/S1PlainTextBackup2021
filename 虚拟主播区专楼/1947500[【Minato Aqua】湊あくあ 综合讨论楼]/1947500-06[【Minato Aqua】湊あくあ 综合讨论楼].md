@@ -3006,3 +3006,12 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 有点难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7846#       发表于 2022-2-2 10:24
+
+还直播外打呢，接下来这几天有没有播都看运气吧，没法要求太高
+
