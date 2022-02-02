@@ -6498,3 +6498,26 @@ Delta的NTD加上Omicron的RBD和S2[捂脸]
 
 这次的变种是真的太厉害了。坐标德国，疫情两年，因为公司一直坚持远程和严格防疫，其实身边得新冠的并不多。从上周开始一半同事病假隔离了，而媳妇公司更是全军覆没
 
+
+
+*****
+
+####  coldhot3  
+##### 3517#       发表于 2022-2-2 17:22
+
+<blockquote>星星狐 发表于 2022-2-2 15:26
+美国发生了另一起独立的德奥合并事件，D的NTD+O的RBD，这么组合好处估计是：美国相当人打的是mRNA，而mRN ...</blockquote>
+不对吧，我记得biontech的是Spike全序列
+
+*****
+
+####  wszweill  
+##### 3518#       发表于 2022-2-2 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54511098&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-1 03:09</a>
+
+我有个问题，当时不是说mrna疫苗可以像编程一样针对不同的变种进行编程，迅速针对新变种进行疫苗免疫，但现 ...</blockquote>
+可以编程不代表可以很简单的编程，要是测完序列就能搞出疫苗，那懂王在位时疫苗就能拉出来了；其次相对灭活简单，但是扩产也要时间。扩产之后行政管理上扯皮，直到安排打针也要时间。
+
+但是现在西方估计3月份O都结束了，美帝每天小百万感染，O的疫苗显然赶不上群体免疫速度，那公司也不是傻子，估计也就是在做了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
