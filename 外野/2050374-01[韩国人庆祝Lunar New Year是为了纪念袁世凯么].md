@@ -1400,3 +1400,21 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 
 臣等正欲死战，陛下何故先降？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  致远星总书记  
+##### 128#       发表于 2022-2-2 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下蜀国主降为安乐公了
+
+*****
+
+####  飞霞精灵  
+##### 129#       发表于 2022-2-2 19:51
+
+姥爷们永远是带头背刺的那个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这事自己心里有杆秤就行。
+
