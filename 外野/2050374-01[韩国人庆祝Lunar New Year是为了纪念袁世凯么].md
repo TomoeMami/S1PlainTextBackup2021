@@ -1508,3 +1508,35 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 资本家没有国家铁证了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实 这个对比倒是一个很好的体现资本家没有祖国的例子
 
+
+
+*****
+
+####  kumasukiyaki  
+##### 138#       发表于 2022-2-2 21:38
+
+那像这种写个“Lunar New Year”但是图上有配中文的咋说？
+
+<img src="https://img.saraba1st.com/forum/202202/02/213740pxhn10o0xlfhj4fn.jpg" referrerpolicy="no-referrer">
+
+<strong>FKePq1hXMAAMjwC.jpg</strong> (173.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 21:37 上传
+
+<img src="https://img.saraba1st.com/forum/202202/02/213740bd03n5xu40udznn4.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2022-02-02T13-31-44.114Z.png</strong> (120.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 21:37 上传
+
+*****
+
+####  sjbssd  
+##### 139#       发表于 2022-2-2 21:43
+
+我记得新闻联播还是新闻直播间讲过这个事情，好像态度是不管是中国新年还是农历新年都是我们的。都可以说，所以我觉得现在喜欢炒作这个的可能是在华的韩国人，大家要小心一点啊，你们只看见春节，人家惦记着农历呢
+
