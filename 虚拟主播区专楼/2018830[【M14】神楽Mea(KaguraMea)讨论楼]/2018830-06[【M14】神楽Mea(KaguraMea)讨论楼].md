@@ -6422,3 +6422,24 @@ g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
 
 问题是 她就只会那几个英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8243#       发表于 2022-2-2 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54520503&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-2 14:47</a>
+
+问题是 她就只会那几个英雄</blockquote>
+她也玩过蛤蟆啊，还赢过，蛤蟆强不强她不清楚？？？
+
+*****
+
+####  古战场亡魂  
+##### 8244#       发表于 2022-2-2 14:53
+
+ 本帖最后由 古战场亡魂 于 2022-2-2 14:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">抓阿卡丽，知道对面技能都在放着真眼，你tm一个波比中单是盖伦，真眼插了你也抓不死啊，钱是真的多……这把打野也是傻逼，对面上单没tp不往死里抓？？全程没来过。
+
