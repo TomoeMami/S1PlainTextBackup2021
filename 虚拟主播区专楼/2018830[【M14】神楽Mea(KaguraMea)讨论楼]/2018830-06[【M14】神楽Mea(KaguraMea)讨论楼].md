@@ -6662,3 +6662,21 @@ g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
 
 利好101民
 
+
+
+*****
+
+####  璃絵和花瑠  
+##### 8269#       发表于 2022-2-3 00:35
+
+某种程度上不利好任何期待直播内容的人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  T_Hb  
+##### 8270#       发表于 2022-2-3 00:36
+
+大半夜还记得营业啊
+
