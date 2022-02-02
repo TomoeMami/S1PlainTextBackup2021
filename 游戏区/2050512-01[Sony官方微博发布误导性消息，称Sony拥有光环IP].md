@@ -633,3 +633,17 @@ https://bbs.saraba1st.com/2b/thread-1103319-1-1.htm ...</blockquote>
 
 我很好奇，现在开发光环的是343i，距离上次棒鸡开发光环还是360时代的致远星，那时候命运1代还没开始研发。都十多年前的事情了，既然知道棒鸡和光环的关系，还会说出什么PS5上玩光环，棒鸡有光环IP这些不可思议的蠢话？
 
+
+
+*****
+
+####  busher  
+##### 66#       发表于 2022-2-3 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54523215&amp;ptid=2050512" target="_blank">松鼠和葱花 发表于 2022-2-2 19:46</a>
+
+有没有一种可能，索尼真的以为halo是棒鸡的……</blockquote>
+破案了，343（包括不少留在微软集团下的bungie老人）和微软向重新独立出去自立门户的bungie支付了十几年版权费
+
+而微软大煽人当初让bungie带着光环版权走的目的是为让bungie能够继续自由地做光环外传与343两个赛道两头出汗一同充实光环系列宇宙，只是bungie十来年都没领情（背后的原因令人暖心
+
