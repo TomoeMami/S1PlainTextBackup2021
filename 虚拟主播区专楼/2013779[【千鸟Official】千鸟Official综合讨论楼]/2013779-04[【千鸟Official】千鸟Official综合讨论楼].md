@@ -8080,3 +8080,13 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 不是没有真打起来，而是他们天天在打，已经看习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Quark  
+##### 5348#       发表于 2022-2-3 01:49
+
+甚至都不知道矛盾在哪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+是那个语言节目还是对万国宣战书啊
+
