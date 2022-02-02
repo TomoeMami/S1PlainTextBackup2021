@@ -1393,3 +1393,12 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  dddty  
+##### 77#       发表于 2022-2-2 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">想要回近战版本加强R99和獒犬和平啊。梦回S5
+
