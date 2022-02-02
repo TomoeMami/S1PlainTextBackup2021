@@ -1568,3 +1568,29 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 为啥矛头都对准了韩国？我在美国读书时，学校用的都是lunar new year，但是好像并没有韩国的存在感，大多数 ...</blockquote>
 天子礼乐岂容番邦僭越。谅以天尊地卑，君臣道别。
 
+
+
+*****
+
+####  tropic  
+##### 143#       发表于 2022-2-2 22:52
+
+建议直接改成chunjie
+
+*****
+
+####  芝士排骨  
+##### 144#       发表于 2022-2-2 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54524954&amp;ptid=2050374" target="_blank">ad5457 发表于 2022-2-2 22:41</a>
+老爷们再这样搞下去，哪天真有兔友天诛国贼了，就有好玩了</blockquote>
+兔友之所以叫兔友就是因为跟随路线摇摆。
+因为民族主义而对老爷不满的叫“皇汉”
+
+*****
+
+####  seeeeee  
+##### 145#       发表于 2022-2-2 23:11
+
+韩国偷了好多东西了，然而上头啥都不管，我只觉得恶心
+
