@@ -8090,3 +8090,24 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 甚至都不知道矛盾在哪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 是那个语言节目还是对万国宣战书啊
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 5349#       发表于 2022-2-3 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54526681&amp;ptid=2013779" target="_blank">Quark 发表于 2022-2-3 01:49</a>
+甚至都不知道矛盾在哪
+是那个语言节目还是对万国宣战书啊</blockquote>
+语言节目吧
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  tankai  
+##### 5350#       发表于 2022-2-3 03:14
+
+新人不知道那几个说相声的是最早做千鸟二创的.,在千鸟2.0起步渴求人手的时候早被认知完了.
+
