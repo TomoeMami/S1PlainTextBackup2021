@@ -919,3 +919,33 @@ Chinese Characters还真早就被出警过了，现在日本人说自己用的�
 
 —— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
+
+
+*****
+
+####  角色扮演  
+##### 86#       发表于 2022-2-2 07:51
+
+棒子太恶心了，各种水军出警，说过春节其实本偷国连这个农历几号到几号是春节都搞不清。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  角色扮演  
+##### 87#       发表于 2022-2-2 07:54
+
+欧洲还好点，大部分都是Chinese new year，东南亚除了猴国都是叫Chinese new year。美国和加拿大疯了真是，为了捧韩国文化，恶心
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  Duc_d'_Muka  
+##### 88#       发表于 2022-2-2 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54515327&amp;ptid=2050374" target="_blank">这就是奇迹 发表于 2022-2-1 22:45</a>
+
+Chinese Characters还真早就被出警过了，现在日本人说自己用的是Kanji，棒子说自己用的是Hanja，就是要和 ...</blockquote>
+但是这俩写出来（韩文虽然没汉字但看也知道）不就是汉字么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">除了他们能把汉文化给去中国化不如不还是变相承认
+
