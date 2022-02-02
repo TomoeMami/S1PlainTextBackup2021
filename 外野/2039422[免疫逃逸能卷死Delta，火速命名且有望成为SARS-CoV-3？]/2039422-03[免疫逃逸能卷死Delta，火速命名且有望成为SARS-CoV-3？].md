@@ -6553,3 +6553,28 @@ Delta的NTD加上Omicron的RBD和S2[捂脸]
 
 那么新老师下一个版本大更新什么时候来呢？
 
+
+
+*****
+
+####  nvis  
+##### 3522#       发表于 2022-2-2 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54509297&amp;ptid=2039422" target="_blank">嘉峪君 发表于 2022-2-1 12:30</a>
+辉瑞的奥疫苗到底能不能如期问世呢
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+辉瑞德疫苗都还没问世，仍靠着旧版疫苗对抗德株，这就想着奥疫苗？
+
+*****
+
+####  nvis  
+##### 3523#       发表于 2022-2-2 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54521823&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-2 17:27</a>
+不能快速出新种的mrna疫苗，那么mrna和灭活的风险对比真不值得推广啊
+
+—— 来自 HUAWEI NOH-AN00, Andro ...</blockquote>
+mrna快速迭代的前提是有一个稳定可靠的1.0版为基础，且产能和渠道铺开的方案已经成熟。
+现在作为全球史上首次大规模推广mrna，它的1.0版的效果、副作用、生产模式、推广途径仍是观察阶段，全是未知前景摸着石头过河，这时基础不牢固，你就想发挥它快速迭代的特性，就算药厂敢这么玩，政府部门也不敢批。
+
