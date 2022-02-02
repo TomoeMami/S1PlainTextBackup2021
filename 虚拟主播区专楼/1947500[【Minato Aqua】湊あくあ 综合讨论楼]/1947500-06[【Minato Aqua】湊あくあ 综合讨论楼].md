@@ -3171,3 +3171,35 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 明明是 诗音的完全无所谓，总之先买了两个我的（断章取义）（盐水解散）
 
+
+
+*****
+
+####  nian1538  
+##### 7865#       发表于 2022-2-2 16:50
+
+这局打的好开心啊
+
+不过都6个头了，理论上来说这时候已经可以苟了吧
+
+*****
+
+####  面具13  
+##### 7866#       发表于 2022-2-2 16:53
+
+为什么知道补给不够了还要去骚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 7867#       发表于 2022-2-2 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贫乏却依旧在挣扎的你。
+
+*****
+
+####  面具13  
+##### 7868#       发表于 2022-2-2 16:57
+
+我觉得她并不只是想上分，异常地看重伤害，所以老是会有穿着金甲红甲拿狙惹全场仇恨的情况。她看上去完全没有反省啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
