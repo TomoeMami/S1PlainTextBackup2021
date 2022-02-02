@@ -3139,3 +3139,35 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 莫名其妙有人送俩人头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  erer  
+##### 7861#       发表于 2022-2-2 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">plus  大胜利？??
+
+*****
+
+####  越动天下  
+##### 7862#       发表于 2022-2-2 16:21
+
+什么粉丝见面会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 正分就行了
+
+*****
+
+####  nian1538  
+##### 7863#       发表于 2022-2-2 16:23
+
+回想一下刚才那局说巧克力的时候还能开盐水玩笑
+
+あくシオはある
+
+*****
+
+####  离魂仙  
+##### 7864#       发表于 2022-2-2 16:27
+
+明明是 诗音的完全无所谓，总之先买了两个我的（断章取义）（盐水解散）
+

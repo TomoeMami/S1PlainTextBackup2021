@@ -1348,3 +1348,30 @@ Don’t u guys have phone(划掉  ur own festival ?
 
 事态发展太典了，每次都这样也太爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泉玲奈  
+##### 123#       发表于 2022-2-2 16:28
+
+越南才离开中华几百年就成了猴...
+
+这种经营同化多年的地区..
+
+要是国家蹦离...
+
+那大家不知道要黑成什么样子
+
+东亚授时,发放日历的是谁?
+
+这节日的根据,流传都清清楚楚
+
+*****
+
+####  ad5457  
+##### 124#       发表于 2022-2-2 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54520788&amp;ptid=2050374" target="_blank"> hellsing 发表于 2022-2-2 15:27</a> 哈哈哈，外交部的老爷是好的，你们下面这帮玩意儿又把经念歪了吧！ 反正怎么也能圆回来吧！嘿嘿嘿！ </blockquote>
+Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
