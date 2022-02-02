@@ -5739,3 +5739,22 @@ JK真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png"
 
 2022-2-2 19:27 上传
 
+
+
+*****
+
+####  stygian  
+##### 4975#       发表于 2022-2-2 20:20
+
+ 本帖最后由 stygian 于 2022-2-2 20:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202202/02/202039wei5ryhyz5yxu4oe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (354.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-2 20:20 上传
+
+就可能正如5ch老哥总结的美人ptsd，我总觉得青山不笑比笑好看，笑起来总莫名有一种business感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
