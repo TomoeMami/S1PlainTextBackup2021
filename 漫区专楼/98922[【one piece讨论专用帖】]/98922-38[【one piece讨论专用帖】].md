@@ -10873,3 +10873,21 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 说起来现在OP的编辑是谁
 
+
+
+*****
+
+####  抽烟的猴  
+##### 56351#       发表于 2022-2-2 17:26
+
+大妈马上要倒了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">现在的罗打明哥岂不是一刀一个
+
+*****
+
+####  仟音一心  
+##### 56352#       发表于 2022-2-2 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54510816&amp;ptid=98922" target="_blank">icewolf01 发表于 2022-2-1 15:28</a>
+说起来现在OP的编辑是谁</blockquote>
+不重要，现在OP编辑都收稿员。
+

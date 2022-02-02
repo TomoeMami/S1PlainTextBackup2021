@@ -1375,3 +1375,28 @@ Don’t u guys have phone(划掉  ur own festival ?
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54520788&amp;ptid=2050374" target="_blank"> hellsing 发表于 2022-2-2 15:27</a> 哈哈哈，外交部的老爷是好的，你们下面这帮玩意儿又把经念歪了吧！ 反正怎么也能圆回来吧！嘿嘿嘿！ </blockquote>
 Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  芝士排骨  
+##### 125#       发表于 2022-2-2 17:38
+
+说起来，中韩文化争议问题，韩国电视台报道与攻击过，国内老爷可从没说过话。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  直刺苍穹的光  
+##### 126#       发表于 2022-2-2 17:48
+
+什么敌在XXX<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  阿卵真是牛逼  
+##### 127#       发表于 2022-2-2 17:49
+
+臣等正欲死战，陛下何故先降？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

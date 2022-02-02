@@ -6521,3 +6521,35 @@ Delta的NTD加上Omicron的RBD和S2[捂脸]
 
 但是现在西方估计3月份O都结束了，美帝每天小百万感染，O的疫苗显然赶不上群体免疫速度，那公司也不是傻子，估计也就是在做了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  海关  
+##### 3519#       发表于 2022-2-2 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54521797&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-2-2 17:24</a>
+可以编程不代表可以很简单的编程，要是测完序列就能搞出疫苗，那懂王在位时疫苗就能拉出来了；其次相对灭 ...</blockquote>
+不能快速出新种的mrna疫苗，那么mrna和灭活的风险对比真不值得推广啊
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  wszweill  
+##### 3520#       发表于 2022-2-2 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54521823&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-2 04:27</a>
+
+不能快速出新种的mrna疫苗，那么mrna和灭活的风险对比真不值得推广啊
+
+—— 来自 HUAWEI NOH-AN00, Andro ...</blockquote>
+其实吧，我觉得不能把中国的速度和美国比，这是个参照系问题。要比也是假如美国搞新的灭活和美国搞新的mrna，这么比速度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windrarara  
+##### 3521#       发表于 2022-2-2 17:42
+
+那么新老师下一个版本大更新什么时候来呢？
+

@@ -3254,3 +3254,41 @@ JP感觉电竞一点的成员都用罗技，你们日本人没有别的外社牌
 
 最强借口：回线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  越动天下  
+##### 7876#       发表于 2022-2-2 17:21
+
+无了 明天又是工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 7877#       发表于 2022-2-2 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天要去偶像活了，那本游戏民就撤了。
+
+*****
+
+####  离魂仙  
+##### 7878#       发表于 2022-2-2 17:22
+
+为什么作为日本人会在晚上开始网络波动？
+您也用公共wifi上网的吗
+
+*****
+
+####  面具13  
+##### 7879#       发表于 2022-2-2 17:23
+
+明天有工作，所以今晚不会播。明天怕不是也没了
+
+*****
+
+####  星の守  
+##### 7880#       发表于 2022-2-2 17:38
+
+这网络也太差了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
