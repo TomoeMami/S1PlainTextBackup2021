@@ -1458,3 +1458,12 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 上一次看到网上这么多棒子的起源 ...</blockquote>
 但是韩国文化在世界上有影响力的，都是现代创作那部分。什么K-pop，韩剧，韩国电影等等。
 
+
+
+*****
+
+####  kumasukiyaki  
+##### 134#       发表于 2022-2-2 20:40
+
+[https://www.bilibili.com/video/BV1Q34y1B7kE](https://www.bilibili.com/video/BV1Q34y1B7kE)
+

@@ -1413,3 +1413,17 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  talse  
+##### 79#       发表于 2022-2-2 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54523543&amp;ptid=2046838" target="_blank">鹅大人 发表于 2022-2-2 20:19</a>
+
+平行又不是拿不到了，转点路线选择好的话造个平行还是很轻松的，好歹还有个car可以当配件架不用拿猎兽和赫 ...</blockquote>
+反正下赛季进化皮是赫姆洛克，直接加强下我就用赫姆洛克了。
+
+不过选路线找制造机这种事情，风暴点和世界尽头还好说，可下赛季是奥林匹斯主场，这图哪来的路线选择……
+
