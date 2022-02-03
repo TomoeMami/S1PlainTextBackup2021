@@ -13238,3 +13238,22 @@ boxer<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" refer
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近的复刻是真的猛
 
+
+
+*****
+
+####  الطائر  
+##### 86780#       发表于 2022-2-3 12:32
+
+ 本帖最后由 الطائر 于 2022-2-3 12:33 编辑 
+
+新公司名的由来难道是…… 医院骑士团大团长 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+Claude de la Sengle (1494 – 18 August 1557) was the 48th Grand Master of the Order of Malta, from 1553 to his death. His successor was Fra' Jean Parisot de Valette. 
+
+A native Frenchman, Sengle, then Bailli of the French langue of the Order, was heavily involved in the battles of the Knights in the Mediterranean and in North Africa against the Ottoman corsairs led by admiral Turgut Reis, and particularly in the struggles for Djerba and Tripoli.
+
+Sengle had considerable impact on the military strengthening of Malta, notably by initiating in 1554 the development of the city of Senglea, which was later named after him and uses his coat of arms.
+
+...
+

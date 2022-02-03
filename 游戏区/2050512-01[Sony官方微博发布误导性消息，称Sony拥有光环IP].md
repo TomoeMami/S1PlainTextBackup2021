@@ -752,3 +752,18 @@ https://bbs.saraba1st.com/2b/thread-1103319-1-1.htm ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  希远闹  
+##### 78#       发表于 2022-2-3 12:35
+
+你以为没用？看看上钩的
+
+#11 lDavidl 2022-2-1 11:17
+
+posted by wap, platform: iPhone
+
+收了棒鸡， 就像战国互派人质一样，如果cod真的以后不上ps系，光环也别想上xsx了，等于逼玩家双平台，当然这个骂名肯定要微软来背了
+
