@@ -16900,3 +16900,16 @@ I'm going to do my best at 26 without forgetting to thank and respect those who 
 
 vox和mysta那场联动差不多前半场是vox热脸贴mysta冷屁股，后面提了ike之后瞬间变成年度情感剧场，内含mysta初恋小故事，你提ike的时候我很寂寞，以及vosta复婚
 
+
+
+*****
+
+####  fastary  
+##### 10452#       发表于 2022-2-3 20:24
+
+还以为怎么了，那不是很正常吗，这场直播就是为了这点狗血剧的醋包的饺子啊<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+vox卖腐和饭撒都超级敬业这不是出道就坚持的事，倒是mysta还真憋住了愿意跟他一直演啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+(mmr和)我就好这一口，越工业糖精吃起来越香，我去补原档了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

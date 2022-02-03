@@ -13297,3 +13297,25 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 竟然抽嫁王而不攒石么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这井还攒石？ 吃饱了
 
+
+
+*****
+
+####  qixinno2  
+##### 86785#       发表于 2022-2-3 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54535204&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-3 20:14</a>
+
+就这井还攒石？ 吃饱了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新还需要那垃圾保底么 不是随便一发十连就出NEW了
+
+*****
+
+####  alucardcz  
+##### 86786#       发表于 2022-2-3 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54535393&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-3 20:30</a>
+
+萌新还需要那垃圾保底么 不是随便一发十连就出NEW了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是喝多了 说话前后矛盾
+
