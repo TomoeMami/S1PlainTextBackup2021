@@ -6713,3 +6713,19 @@ d主要是booster可以对付，就没必要做新疫苗了
 o已经做出来了，正在做安全测试</blockquote>
 主要是新病新疫苗，大家都摸不准。流感疫苗每年都是新的，咋可能卡这么久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BLTUS  
+##### 3533#       发表于 2022-2-4 06:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54511098&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-1 16:09</a>
+
+我有个问题，当时不是说mrna疫苗可以像编程一样针对不同的变种进行编程，迅速针对新变种进行疫苗免疫，但现 ...</blockquote>
+只是制作出针对新变种的疫苗快得很，问题是拿EUS/NDA又不是切菜
+
+如果再补一针老疫苗能勉强对付新变种那当然凑合着拿Booster的EUS就算了，多费什么美国力气<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做了
+
