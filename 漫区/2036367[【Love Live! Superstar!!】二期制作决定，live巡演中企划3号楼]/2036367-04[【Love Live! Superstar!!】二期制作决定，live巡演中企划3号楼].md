@@ -6170,3 +6170,12 @@ pay
 
 田村很多活动mc都是わし我倒是早习惯他的风格，但是碰到鲤鱼一个外国人加上还是憨憨，就特别好奇他会咋样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 5009#       发表于 2022-2-3 23:15
+
+靠我一开始已经笑趴
+

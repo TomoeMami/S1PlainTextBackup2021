@@ -3527,3 +3527,79 @@ syl晚上九点ape
 
 密客多来几个鸡屁股吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nian1538  
+##### 7909#       发表于 2022-2-3 23:01
+
+感觉霰弹peek经常打不过，那个位置换把SMG或者devotion另一把拿flatline或者rampage好像胜率还高点
+
+*****
+
+####  面具13  
+##### 7910#       发表于 2022-2-3 23:03
+
+猛得像大哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 7911#       发表于 2022-2-3 23:04
+
+满分鸡还行
+
+*****
+
+####  erer  
+##### 7912#       发表于 2022-2-3 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">发生了什么？？？？
+
+*****
+
+####  乌鸦绅士  
+##### 7913#       发表于 2022-2-3 23:04
+
+这局杀爽了
+
+*****
+
+####  越动天下  
+##### 7914#       发表于 2022-2-3 23:04
+
+ 本帖最后由 越动天下 于 2022-2-3 23:05 编辑 
+
+拉满 8835 <img src="https://p.sda1.dev/4/595add224f6e652cd0f7056d6351de74/-781f6df7da2b10a2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 7915#       发表于 2022-2-3 23:05
+
+当我在外面看见同接暴涨的时候就知道猎杀时刻到了
+
+*****
+
+####  梅斯之围  
+##### 7916#       发表于 2022-2-3 23:06
+
+这是运气好，不然还剩六七个人那把没管队友楞头冲的时候就已经寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7917#       发表于 2022-2-3 23:13
+
+ 本帖最后由 面具13 于 2022-2-3 23:15 编辑 
+
+这是来了几队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉对枪又有自信了
+
+*****
+
+####  越动天下  
+##### 7918#       发表于 2022-2-3 23:14
+
+怎么这么多人 刚开场就1400伤害了
+
