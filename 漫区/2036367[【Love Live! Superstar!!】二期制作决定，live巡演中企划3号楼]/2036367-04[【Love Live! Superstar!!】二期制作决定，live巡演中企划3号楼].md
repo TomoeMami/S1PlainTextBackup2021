@@ -6029,3 +6029,53 @@ F6517A56-865C-4FE1-ACFE-ACCBC6657F84.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 4995#       发表于 2022-2-3 21:29
+
+瞄了一下nga水区那黑屁贴，拿以前老三样造谣，全当看猴子刷戏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+鲤鱼这写真除了amazon还有哪里可以买，amazon那边还显示无货买不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ayangsu  
+##### 4996#       发表于 2022-2-3 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54536428&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-3 21:29</a>
+瞄了一下nga水区那黑屁贴，拿以前老三样造谣，全当看猴子刷戏
+
+鲤鱼这写真除了amazon还有哪里可以买 ...</blockquote>
+无货应该是区域不对吧，我修改居住地到日本然后添加一键购买方式就能买了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 4997#       发表于 2022-2-3 21:34
+
+<img src="https://img.saraba1st.com/forum/202202/03/213440xtxg5yz71rxhe1wm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220203_213224.jpg</strong> (109.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-3 21:34 上传
+
+pay
+
+*****
+
+####  lj205  
+##### 4998#       发表于 2022-2-3 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54536428&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-3 21:29</a>
+瞄了一下nga水区那黑屁贴，拿以前老三样造谣，全当看猴子刷戏
+
+鲤鱼这写真除了amazon还有哪里可以买 ...</blockquote>
+週play､DMM和apple book日区都可以买
+

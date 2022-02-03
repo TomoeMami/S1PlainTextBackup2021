@@ -16942,3 +16942,23 @@ vox卖腐和饭撒都超级敬业这不是出道就坚持的事，倒是mysta还
 
 这人选 你虹二哥正式变牛郎了？还有原来eden组的真皇是黑发哥
 
+
+
+*****
+
+####  ヒトニナル  
+##### 10456#       发表于 2022-2-3 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线下好啊，再多搞点线下，虹三月
+
+*****
+
+####  alcoholic1000  
+##### 10457#       发表于 2022-2-3 21:36
+
+火星了，KR又毕业两位
+
+去dc看了一眼，除了楼友说的还有一个根本原因就是不挣钱，出道这些时间软件硬件花销加起来还得liver倒贴，尽管如此有几个眼熟的老gachi势还是很破防<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+Syl，什么二哥二哥的别乱叫，上你虹官网宣传页了吗就敢称二哥
+
