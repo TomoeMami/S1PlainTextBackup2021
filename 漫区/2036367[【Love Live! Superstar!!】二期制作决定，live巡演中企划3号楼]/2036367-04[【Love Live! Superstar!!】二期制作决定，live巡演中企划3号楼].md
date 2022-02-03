@@ -6147,3 +6147,26 @@ pay
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cybernetics31  
+##### 5006#       发表于 2022-2-3 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 5007#       发表于 2022-2-3 22:55
+
+鹫崎健比较擅长根据你刚刚说的话来抛出话题，鲤鱼估计要被问懵<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 5008#       发表于 2022-2-3 22:58
+
+田村很多活动mc都是わし我倒是早习惯他的风格，但是碰到鲤鱼一个外国人加上还是憨憨，就特别好奇他会咋样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
