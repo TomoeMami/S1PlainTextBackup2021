@@ -3722,3 +3722,33 @@ syl晚上九点ape
 
 如何评价队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  erer  
+##### 7932#       发表于 2022-2-4 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本crew的评价是 当肉盾都嫌智商低。
+
+*****
+
+####  面具13  
+##### 7933#       发表于 2022-2-4 01:03
+
+队友说不定是apex菩萨
+
+*****
+
+####  越动天下  
+##### 7934#       发表于 2022-2-4 01:08
+
+乐了 还行 可惜最后一下没打死
+
+*****
+
+####  面具13  
+##### 7935#       发表于 2022-2-4 01:08
+
+这都能正分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
