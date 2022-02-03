@@ -665,3 +665,33 @@ https://bbs.saraba1st.com/2b/thread-1103319-1-1.htm ...</blockquote>
 
 顶有意思的是，covid大流行的大景观下，游戏界此前少见的寡头垄断战争的火药味似乎愈来愈浓重了
 
+
+
+*****
+
+####  afer  
+##### 69#       发表于 2022-2-3 08:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">其实国内碰瓷友商流派的各种广告发布大神找找八代祖宗都是日系营销这一套吧，只不过日系那套现在包装的没过去那么low了。
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ppa11  
+##### 70#       发表于 2022-2-3 08:37
+
+<blockquote>csolfans 发表于 2022-2-2 21:38
+宣发权问题</blockquote>
+索尼那次p的是t2官方的宣传图，  应该不是宣发权的问题
+
+*****
+
+####  亚洲天后刘人语  
+##### 71#       发表于 2022-2-3 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54524615&amp;ptid=2050512" target="_blank">拉萨乌姆 发表于 2022-2-2 22:04</a>
+
+有没有地址</blockquote>
+微博评论下面发现的，没，瞅着像tgfc
+
