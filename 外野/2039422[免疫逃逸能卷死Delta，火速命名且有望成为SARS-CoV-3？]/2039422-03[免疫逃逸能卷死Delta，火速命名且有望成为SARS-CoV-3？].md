@@ -6729,3 +6729,15 @@ o已经做出来了，正在做安全测试</blockquote>
 
 O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做了
 
+
+
+*****
+
+####  holyblood  
+##### 3534#       发表于 2022-2-4 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54521797&amp;ptid=2039422" target="_blank">wszweill 发表于 2022-2-2 17:24</a>
+
+可以编程不代表可以很简单的编程，要是测完序列就能搞出疫苗，那懂王在位时疫苗就能拉出来了；其次相对灭 ...</blockquote>
+道理没错，但懂王那次的解释更多是有人想搞他吧
+
