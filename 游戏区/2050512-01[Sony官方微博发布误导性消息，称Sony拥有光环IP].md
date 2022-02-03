@@ -723,3 +723,12 @@ https://bbs.saraba1st.com/2b/thread-1103319-1-1.htm ...</blockquote>
 肯定不是故意的，一定是不懂的零时工干的
 不要脸犯什么法了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zzy516232108  
+##### 75#       发表于 2022-2-3 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">过两年万一微软真把xgp搬上ps5，索尼就真的能玩到光环了吧
+
