@@ -3462,3 +3462,45 @@ syl晚上九点ape
 
 哭了
 
+
+
+*****
+
+####  zpy393  
+##### 7902#       发表于 2022-2-3 22:20
+
+奇怪，上次前半段还打的挺好的，-48*4后就一路下探了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 7903#       发表于 2022-2-3 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的建议是现在下播去睡觉 3点起来打排位。
+
+*****
+
+####  Maonpuyo  
+##### 7904#       发表于 2022-2-3 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢包是真的，打的不咋地也是真的，二极管的楼友更是真加真
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 梅斯之围| + 1|吹死裱活懂不懂👊|
+
+查看全部评分
+
+*****
+
+####  越动天下  
+##### 7905#       发表于 2022-2-3 22:23
+
+欢乐了
+

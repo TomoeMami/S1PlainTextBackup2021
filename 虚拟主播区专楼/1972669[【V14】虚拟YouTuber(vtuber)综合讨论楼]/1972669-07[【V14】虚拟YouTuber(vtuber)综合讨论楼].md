@@ -16962,3 +16962,25 @@ vox卖腐和饭撒都超级敬业这不是出道就坚持的事，倒是mysta还
 
 Syl，什么二哥二哥的别乱叫，上你虹官网宣传页了吗就敢称二哥
 
+
+
+*****
+
+####  fastary  
+##### 10458#       发表于 2022-2-3 22:24
+
+eden组的人气和数据真的有皇到什么宣传图都有份的地步吗，虽然几个男的确实SC还挺突出……<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+真的好酸啊，虽然酸也没用吧……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+宣传网页还写着去年被疫情橄榄了所以今年说什么也要搞，会不放弃希望一边祈祷疫情控制一边努力准备开催<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+搞什么，赌社运吗，真就抱着你的线下梦溺死也甘愿是吗
+
+*****
+
+####  noHentai  
+##### 10459#       发表于 2022-2-3 22:38
+
+我就看田角有多少钱亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
