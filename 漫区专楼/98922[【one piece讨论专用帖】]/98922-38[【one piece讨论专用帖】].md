@@ -10942,3 +10942,12 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 大妈：我死也不会让你们上楼顶的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  svmkty  
+##### 56358#       发表于 2022-2-3 14:27
+
+尾田果然是设定强迫症，毕竟老宝可梦了
+

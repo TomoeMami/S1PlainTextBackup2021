@@ -785,3 +785,27 @@ posted by wap, platform: iPhone
 
 索尼虽然没有《光环》，但微软这下可是真的有《古惑狼》
 
+
+
+*****
+
+####  GuardHei  
+##### 81#       发表于 2022-2-3 14:32
+
+差个话题，bungie现在到底在干啥？
+命运2我怎么觉得也好久了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  m98626  
+##### 82#       发表于 2022-2-3 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54531480&amp;ptid=2050512" target="_blank">GuardHei 发表于 2022-2-3 14:32</a>
+差个话题，bungie现在到底在干啥？
+命运2我怎么觉得也好久了</blockquote>
+自从离开动视之后命运2内容产出都跟不上，哪有人手干别的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
