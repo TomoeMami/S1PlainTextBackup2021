@@ -6621,3 +6621,95 @@ mrna快速迭代的前提是有一个稳定可靠的1.0版为基础，且产能�
 但是防奥好像确实是需要更新一下 ...</blockquote>
 以色列更新了，打第四针
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3527#       发表于 2022-2-4 04:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54523589&amp;ptid=2039422" target="_blank">nvis 发表于 2022-2-2 20:23</a>
+
+所谓的仍有效只是自欺欺人，是从早前的优良下降到勉强及格，以色列就是例子。
+
+早年一堆人拒打疫苗，说要 ...</blockquote>
+因为疫苗对delta的防感染率还是80%+，没必要对delta研究新疫苗啊
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| riczxc| + 1|没必要|
+| cdyjn|-1|智障还在打滚？没去给你爹妈上坟？.|
+
+查看全部评分
+
+*****
+
+####  vimisbesteditor  
+##### 3528#       发表于 2022-2-4 04:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54511098&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-1 16:09</a>
+
+我有个问题，当时不是说mrna疫苗可以像编程一样针对不同的变种进行编程，迅速针对新变种进行疫苗免疫，但现 ...</blockquote>
+o的已经开始做一期了。。
+
+*****
+
+####  Redis  
+##### 3529#       发表于 2022-2-4 04:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54511098&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-1 16:09</a>
+
+我有个问题，当时不是说mrna疫苗可以像编程一样针对不同的变种进行编程，迅速针对新变种进行疫苗免疫，但现 ...</blockquote>
+d主要是booster可以对付，就没必要做新疫苗了
+
+o已经做出来了，正在做安全测试
+
+药品审核要不是因为疫情，都是5-10年计的
+
+*****
+
+####  Redis  
+##### 3530#       发表于 2022-2-4 04:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54521823&amp;ptid=2039422" target="_blank">海关 发表于 2022-2-2 17:27</a>
+
+不能快速出新种的mrna疫苗，那么mrna和灭活的风险对比真不值得推广啊
+
+—— 来自 HUAWEI NOH-AN00, Andro ...</blockquote>
+灭活扩产才是最大的问题
+
+毕竟要生物培养，几亿个鸡蛋呢
+
+biotech德国一个实验室一天就能出几百万剂的原液
+
+*****
+
+####  vimisbesteditor  
+##### 3531#       发表于 2022-2-4 04:55
+
+ 本帖最后由 vimisbesteditor 于 2022-2-4 04:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540002&amp;ptid=2039422" target="_blank">Redis 发表于 2022-2-4 04:53</a>
+
+灭活扩产才是最大的问题
+
+毕竟要生物培养，几亿个鸡蛋呢</blockquote>
+这次灭活是用细胞系培养的，所以还行？
+
+*****
+
+####  wszweill  
+##### 3532#       发表于 2022-2-4 06:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54539999&amp;ptid=2039422" target="_blank">Redis 发表于 2022-2-3 15:50</a>
+
+d主要是booster可以对付，就没必要做新疫苗了
+
+o已经做出来了，正在做安全测试</blockquote>
+主要是新病新疫苗，大家都摸不准。流感疫苗每年都是新的，咋可能卡这么久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

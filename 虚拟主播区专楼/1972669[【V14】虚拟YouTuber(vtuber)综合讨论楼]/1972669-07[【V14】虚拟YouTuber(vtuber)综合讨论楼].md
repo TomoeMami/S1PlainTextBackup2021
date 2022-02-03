@@ -17012,3 +17012,41 @@ eden组的人气和数据真的有皇到什么宣传图都有份的地步吗，�
 
 省一楼，郡郡开始播审判之眼了，好怕之前某楼友又来怒喷我郡玩的跟啥一样<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">，但是郡郡这种胡逼玩法我好喜欢希望能继续播下去...
 
+
+
+*****
+
+####  poipanchao  
+##### 10462#       发表于 2022-2-4 01:43
+
+ 本帖最后由 poipanchao 于 2022-2-4 02:31 编辑 
+
+这新传奇被动加速+透墙
+
+小技能穿罩子，胖子好死！
+
+大招边滚边掉落加速buff?
+
+基本上是泥头车配置的感觉
+
+syl，堇好惨，因为跟大亏同一时期在搞大师企划的原因被各种拉踩……
+
+姐姐这个大龄枪女确实没有solo master的实力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 10463#       发表于 2022-2-4 02:52
+
+后知后觉仔细看了眼，luca那瓜居然还涉及4v趁乱抹黑简中粉，这下塌房了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有一说一日V我就没见过还会跑出来讲话的房管，luca没怎么看过直播不过之前看vox直播的时候房管甚至会混在评论栏版聊，给我看惊了
+
+人格化的房管先不说容易被认为是恋人代理，也很容易发生这类冲突……EN人连这也都觉得无所谓还挺那个的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+(虽说也可能只是我推jp久了太阴湿了
+
+syl
+
+题外话，我唯一关注的龙了很多黑客切片和完整熟肉的黑客gachi在en出来后没多久就脱粉转推mysta和luca了甚至黑客复归也没反应……虽然我也看en切片所以没取关，但说实话有点悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

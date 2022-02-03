@@ -6267,3 +6267,18 @@ pay
 
 打游戏忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">等录像了。。。
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 5015#       发表于 2022-2-4 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54529896&amp;ptid=2036367" target="_blank">梶原ひかり 发表于 2022-2-3 12:25</a>
+对于lovelive出个新游戏真不抱希望...真没什么公司能做好
+
+还是在原来水团缪斯那个街机实装 或者 直 ...</blockquote>
+街机都亡了，还是as吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
