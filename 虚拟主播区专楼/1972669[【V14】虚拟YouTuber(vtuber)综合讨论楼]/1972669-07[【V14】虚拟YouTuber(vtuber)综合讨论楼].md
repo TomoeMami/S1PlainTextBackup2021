@@ -16984,3 +16984,20 @@ eden组的人气和数据真的有皇到什么宣传图都有份的地步吗，�
 
 我就看田角有多少钱亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 10460#       发表于 2022-2-4 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54524554&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-2-2 21:59</a>
+破船赶紧跑吧
+
+之前我也以为韩V市场小
+
+后来因为V综之前聊过的那个“KR asoul”去冲了下浪</blockquote>
+韩国市场真不小，平常哪个v说一句韩语，聊天室能冒出一大片
+
+— from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
