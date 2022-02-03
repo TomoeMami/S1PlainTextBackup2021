@@ -13319,3 +13319,15 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 萌新还需要那垃圾保底么 不是随便一发十连就出NEW了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是喝多了 说话前后矛盾
 
+
+
+*****
+
+####  qixinno2  
+##### 86787#       发表于 2022-2-3 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54535573&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-3 20:45</a>
+
+你是不是喝多了 说话前后矛盾</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有毛病 
+
