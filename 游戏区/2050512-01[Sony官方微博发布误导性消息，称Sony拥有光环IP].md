@@ -732,3 +732,12 @@ https://bbs.saraba1st.com/2b/thread-1103319-1-1.htm ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">过两年万一微软真把xgp搬上ps5，索尼就真的能玩到光环了吧
 
+
+
+*****
+
+####  龙如2010  
+##### 76#       发表于 2022-2-3 11:04
+
+这属于企业文化了已经。
+

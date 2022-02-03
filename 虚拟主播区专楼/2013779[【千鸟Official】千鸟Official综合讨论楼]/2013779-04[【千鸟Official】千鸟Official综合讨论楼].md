@@ -8132,3 +8132,14 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
+
+
+*****
+
+####  冯闵斯特伯格  
+##### 5353#       发表于 2022-2-3 10:59
+
+还是多整点猫和老鼠吧
+
+—— 来自 vivo V1986A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
