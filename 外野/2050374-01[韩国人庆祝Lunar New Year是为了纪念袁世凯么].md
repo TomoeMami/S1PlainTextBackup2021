@@ -1628,3 +1628,16 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  卡爹  
+##### 149#       发表于 2022-2-3 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54514296&amp;ptid=2050374" target="_blank">FDGHF45 发表于 2022-2-1 21:26</a>
+东亚这批都是同一天吧。反正在美国的语境里，用chinese new year肯定会政治不正确一些，因为没有顾及到那 ...</blockquote>
+问题是阴历新年和农历新年不是同一天吧，在农历新年庆祝阴历是不是有什么问题？
+
+—— 来自 vivo V1950A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
