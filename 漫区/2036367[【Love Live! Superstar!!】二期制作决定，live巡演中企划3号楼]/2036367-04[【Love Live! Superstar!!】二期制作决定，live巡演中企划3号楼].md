@@ -6079,3 +6079,23 @@ pay
 鲤鱼这写真除了amazon还有哪里可以买 ...</blockquote>
 週play､DMM和apple book日区都可以买
 
+
+
+*****
+
+####  D麦林  
+##### 4999#       发表于 2022-2-3 22:12
+
+所以你们为什么还在贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我自从几次大吵架事件以后就撤出贴吧了
+真的没意思
+
+*****
+
+####  cat1230  
+##### 5000#       发表于 2022-2-3 22:18
+
+国内能看到讨论ll就那么几个地方。其实跟2ch差不多吧，我看下来感觉黑屁鲤鱼中国人身份的也有，及时是现在。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

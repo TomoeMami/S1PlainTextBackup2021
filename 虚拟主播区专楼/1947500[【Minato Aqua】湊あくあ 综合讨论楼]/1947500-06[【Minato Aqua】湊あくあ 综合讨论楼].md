@@ -3423,3 +3423,42 @@ syl晚上九点ape
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这局可怪不了网络，你没延迟也架不住倒个人之后对面马上拉门冲
 
+
+
+*****
+
+####  nian1538  
+##### 7897#       发表于 2022-2-3 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">完了啊...
+
+*****
+
+####  erer  
+##### 7898#       发表于 2022-2-3 22:09
+
+脑死状态还玩apex，无语了🙄
+
+*****
+
+####  越动天下  
+##### 7899#       发表于 2022-2-3 22:10
+
+完了 要掉了
+
+*****
+
+####  梅斯之围  
+##### 7900#       发表于 2022-2-3 22:14
+
+掉段
+
+别老说网不好这种话了，隐含意思是网好的话上分必定轻轻松松？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7901#       发表于 2022-2-3 22:19
+
+哭了
+
