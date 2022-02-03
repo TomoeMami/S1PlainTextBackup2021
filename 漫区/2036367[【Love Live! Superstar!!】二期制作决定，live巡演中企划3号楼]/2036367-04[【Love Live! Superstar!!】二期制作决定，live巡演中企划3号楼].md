@@ -5905,3 +5905,14 @@ F6517A56-865C-4FE1-ACFE-ACCBC6657F84.jpeg
 
 这破游戏实装有什么好处嘛，不如整个新游戏
 
+
+
+*****
+
+####  梶原ひかり  
+##### 4984#       发表于 2022-2-3 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于lovelive出个新游戏真不抱希望...真没什么公司能做好
+
+还是在原来水团缪斯那个街机实装 或者 直接省成本点在AS出比较好吧..
+
