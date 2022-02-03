@@ -1614,3 +1614,17 @@ Nga老哥说都是翻译的错<img src="https://static.saraba1st.com/image/smile
 
 神兔二相性这就来了。</blockquote>　　神蛆和兔杂哪有什么二象性，不都是石头缝里蹦出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 148#       发表于 2022-2-3 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54525491&amp;ptid=2050374" target="_blank">reedwkaka 发表于 2022-2-2 23:32</a>
+我琢磨着韩国用阴历新年，生肖总不会也照抄吧，现在看满世界今年用的都是虎年元素 ...</blockquote>
+你好，会的，
+而且他们公历新年就在庆祝虎年了。
+
+—— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
