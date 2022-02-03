@@ -16891,3 +16891,12 @@ I'm going to do my best at 26 without forgetting to thank and respect those who 
 
 房管乱警告人，有人打sc跟他说了以后他站房管，下播以后粉丝吵起来，他发了个推说相信房管，发sc的是liar
 
+
+
+*****
+
+####  路西西啦  
+##### 10451#       发表于 2022-2-3 19:40
+
+vox和mysta那场联动差不多前半场是vox热脸贴mysta冷屁股，后面提了ike之后瞬间变成年度情感剧场，内含mysta初恋小故事，你提ike的时候我很寂寞，以及vosta复婚
+
