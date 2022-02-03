@@ -13275,3 +13275,25 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新all in花嫁无事发生  辣鸡游戏
 
+
+
+*****
+
+####  qixinno2  
+##### 86783#       发表于 2022-2-3 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54533067&amp;ptid=1085254" target="_blank">alucardcz 发表于 2022-2-3 17:20</a>
+
+萌新all in花嫁无事发生  辣鸡游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然抽嫁王而不攒石么
+
+*****
+
+####  alucardcz  
+##### 86784#       发表于 2022-2-3 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54535177&amp;ptid=1085254" target="_blank">qixinno2 发表于 2022-2-3 20:13</a>
+
+竟然抽嫁王而不攒石么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这井还攒石？ 吃饱了
+
