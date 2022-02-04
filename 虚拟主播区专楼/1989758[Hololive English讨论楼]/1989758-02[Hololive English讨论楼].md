@@ -1318,3 +1318,16 @@ mumei比游戏吓人xd
 
 死鲨新歌好棒 这MV有请动画制作组了吧
 
+
+
+*****
+
+####  wuzhengkai  
+##### 1622#       发表于 2022-2-4 15:38
+
+ 本帖最后由 wuzhengkai 于 2022-2-4 15:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541142&amp;ptid=1989758" target="_blank">vimisbesteditor 发表于 2022-2-4 10:47</a>
+
+死鲨新歌好棒 这MV有请动画制作组了吧</blockquote>
+是一个人  推特kaynimatic 看履历参加过不少日本动画的原画 可能是个外包啥的
+

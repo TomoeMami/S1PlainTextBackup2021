@@ -3971,3 +3971,58 @@ wow
 
 说来sui酱最近在看夸宝apex啊，还发那个lovelove的歌词
 
+
+
+*****
+
+####  面具13  
+##### 7959#       发表于 2022-2-4 15:26
+
+队友不错啊。开局是不是发了个honmono
+
+*****
+
+####  erer  
+##### 7960#       发表于 2022-2-4 15:29
+
+天秀开局！爱了爱了。
+
+*****
+
+####  越动天下  
+##### 7961#       发表于 2022-2-4 15:30
+
+ 本帖最后由 越动天下 于 2022-2-4 15:31 编辑 
+
+上来就手感火热呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有不到600分了
+
+*****
+
+####  离魂仙  
+##### 7962#       发表于 2022-2-4 15:31
+
+现在下播还来得及保分（
+
+*****
+
+####  andeloz  
+##### 7963#       发表于 2022-2-4 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了不想奶了
+
+*****
+
+####  面具13  
+##### 7964#       发表于 2022-2-4 15:33
+
+现在在想着吃三个满分鸡上大师的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 担心周日的耐久办不了。
+
+好飘啊，接下来给你直接安排俯冲到7200<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 7965#       发表于 2022-2-4 15:36
+
+这种垃圾loot还全是人，这把不好打啊
+
