@@ -1006,3 +1006,22 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 
 之前Netflix的7seeds虽然做了两季才24集 而且剧本疯狂跑火车 
 
+
+
+*****
+
+####  why3000  
+##### 73#       发表于 2022-2-4 21:50
+
+顺便问下二手日版《BASTARD!! 暗黑破坏神》1-28有人要么。。。
+
+*****
+
+####  gpx234mqx  
+##### 74#       发表于 2022-2-4 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54549948&amp;ptid=2050560" target="_blank">why3000 发表于 2022-2-4 21:50</a>
+
+顺便问下二手日版《BASTARD!! 暗黑破坏神》1-28有人要么。。。</blockquote>
+哪里来的28
+

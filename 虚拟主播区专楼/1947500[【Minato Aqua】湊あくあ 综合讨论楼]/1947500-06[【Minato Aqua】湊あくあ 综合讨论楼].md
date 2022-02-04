@@ -5159,3 +5159,21 @@ Crew该开始做梦了啊
 
 问就是没有含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpy393  
+##### 8114#       发表于 2022-2-4 21:30
+
+本云玩家不知道什么含金量，直播看的爽就行了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 8115#       发表于 2022-2-4 21:31
+
+上补习班的年级第一没有含金量
+
+提问：👆说这种话的人成绩一般如何呢
+
