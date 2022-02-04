@@ -914,3 +914,24 @@ PS那游戏好像补充了很多魔战将军和侍的背景设定</blockquote>
 忍者王卡拉的过去</blockquote>
 好像是弟弟接盘嫂子啥的狗血吧?果然古今中外都喜欢撒这种狗血。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 67#       发表于 2022-2-4 12:52
+
+ 本帖最后由 gpx234mqx 于 2022-2-4 13:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542157&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-4 12:34</a>
+
+好像是弟弟接盘嫂子啥的狗血吧?果然古今中外都喜欢撒这种狗血。</blockquote>
+算是变种NTR，被弟弟抢了老婆
+
+老父亲喜欢弟弟，硬是把哥哥的恋人嫁给了弟弟，赶走了哥哥，但是弟弟不知情，以为哥哥丢下青梅竹马离家出走了，于是接盘了
+
+哥哥流浪多年后拿到噬魂魔剑后回来干掉老父亲（老父亲死前才发觉哥哥比弟弟更有剑术才能，之前做的烂事也是因为觉得哥哥不如弟弟），但是误杀了恋人（从背后突然出现，条件反射反手就是一刀<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+纠结就在于哥哥认为弟弟和恋人背叛了自己，弟弟认为哥哥发疯杀了自己老婆，双方认识有问题<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这是暗黑破坏神里最狗血的故事了
+
