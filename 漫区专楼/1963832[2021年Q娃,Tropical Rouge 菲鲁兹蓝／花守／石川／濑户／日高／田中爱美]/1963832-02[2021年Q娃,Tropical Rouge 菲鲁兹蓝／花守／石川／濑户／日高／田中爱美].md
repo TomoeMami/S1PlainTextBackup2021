@@ -14011,3 +14011,16 @@ staff：不好 每集要变身……那就随便点赛开头吧当做梦吧<img 
 
 喜欢这部的剧情，除了化妆相关和珊瑚相关的部分。洛拉可爱，洛拉拒绝成为自己讨厌的为人类牺牲的人鱼，真好。最后仓促的重逢有点掩盖了洛拉的决心，但团圆结局总归是好的。
 
+
+
+*****
+
+####  月夜凝雪  
+##### 2568#       发表于 2022-2-4 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54510707&amp;ptid=1963832" target="_blank">梦诗歌雪 发表于 2022-2-1 15:12</a>
+原来还以为这个洗记忆的仪器就是单纯洗记忆，这表现已经是因果律一样的消除存在痕迹了啊，连合影上 ...</blockquote>
+女王没忘吧，看她的表情不就是在等着看结果吗
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
