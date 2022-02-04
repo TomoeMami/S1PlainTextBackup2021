@@ -4155,3 +4155,68 @@ FLAG起来了，要下大分了<img src="https://static.saraba1st.com/image/smil
 
 虽然应该没可能，但还是希望看到她能去参加参加比赛
 
+
+
+*****
+
+####  面具13  
+##### 7983#       发表于 2022-2-4 16:00
+
+BUFF满了，该下分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 7984#       发表于 2022-2-4 16:01
+
+认真下分开始（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 7985#       发表于 2022-2-4 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开启丢人模式
+
+*****
+
+####  越动天下  
+##### 7986#       发表于 2022-2-4 16:10
+
+掉分从现在开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  猫南北  
+##### 7987#       发表于 2022-2-4 16:11
+
+控分了！每次攻击别队都有第三队在默默等候。
+
+*****
+
+####  面具13  
+##### 7988#       发表于 2022-2-4 16:11
+
+单排7200之路开始了！
+
+*****
+
+####  andeloz  
+##### 7989#       发表于 2022-2-4 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坏起来了
+
+*****
+
+####  猫南北  
+##### 7990#       发表于 2022-2-4 16:19
+
+4杀1助攻，还剩18队。
+
+*****
+
+####  erer  
+##### 7991#       发表于 2022-2-4 16:19
+
+呜呜呜 她太爱队友了。这人咋回事啊？
+
