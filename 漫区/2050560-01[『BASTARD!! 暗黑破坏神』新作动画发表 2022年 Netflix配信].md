@@ -1025,3 +1025,15 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 顺便问下二手日版《BASTARD!! 暗黑破坏神》1-28有人要么。。。</blockquote>
 哪里来的28
 
+
+
+*****
+
+####  why3000  
+##### 75#       发表于 2022-2-4 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54550123&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-4 21:53</a>
+
+哪里来的28</blockquote>
+记错……加一本设定集共28本
+
