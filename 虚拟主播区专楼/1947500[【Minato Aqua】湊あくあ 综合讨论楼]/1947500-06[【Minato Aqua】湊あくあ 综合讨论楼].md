@@ -4356,3 +4356,74 @@ rp守恒定律
 
 分数反复横跳，能无限播下去
 
+
+
+*****
+
+####  面具13  
+##### 8010#       发表于 2022-2-4 17:42
+
+想趁好就收，不过要再来亿把。
+
+
+
+*****
+
+####  erer  
+##### 8011#       发表于 2022-2-4 17:54
+
+美滋滋上分局
+
+*****
+
+####  面具13  
+##### 8012#       发表于 2022-2-4 17:55
+
+偷屁股偷爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 8013#       发表于 2022-2-4 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了 甲没了
+
+*****
+
+####  猫南北  
+##### 8014#       发表于 2022-2-4 17:57
+
+哈哈哈，这一波天秀~
+
+*****
+
+####  面具13  
+##### 8015#       发表于 2022-2-4 17:58
+
+红甲被偷了，节目效果无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8016#       发表于 2022-2-4 17:58
+
+一直在想的剧本居然真的发生了
+
+还好弄了个紫甲回来不然没法打了
+
+*****
+
+####  越动天下  
+##### 8017#       发表于 2022-2-4 17:58
+
+这个甲被拿走我是真的没绷住
+
+*****
+
+####  egged5  
+##### 8018#       发表于 2022-2-4 17:58
+
+她太团队了，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
