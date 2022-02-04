@@ -74,3 +74,14 @@ bora毕业前唯一一次猎排的成员<img src="https://static.saraba1st.com/i
 [https://camp-fire.jp/projects/view/547100](https://camp-fire.jp/projects/view/547100)
 [https://www.youtube.com/watch?v=RWgoUmznT2Y](https://www.youtube.com/watch?v=RWgoUmznT2Y)
 
+
+
+*****
+
+####  fastary  
+##### 10509#       发表于 2022-2-4 23:31
+
+只要没有过分到不能被解构为妈妈逗儿子，女粉就不会破防<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+说起来luca这事到头来只有简中粉受伤，目前涨粉是没影响，后面几周要是SC也没怎么下降是否证明简中女粉只有声音大实际费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
