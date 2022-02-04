@@ -17248,3 +17248,32 @@ ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片�
 
 烧，都可以烧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 10479#       发表于 2022-2-4 14:46
+
+不过现在去看倒是已经改为正确名称并标注cover和原曲了，虽然没道歉
+
+*****
+
+####  fastary  
+##### 10480#       发表于 2022-2-4 14:46
+
+ 本帖最后由 fastary 于 2022-2-4 14:49 编辑 
+
+风怒编辑另外第一阵宣布的RD二月live也延期了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+我倒要看看enkr是先放弃大搞线下还是先溺死在线下梦里<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+话说第三阵消息怎么还没出，我还等着看enkr除了live和周边还有没有别的花样呢
+
+*****
+
+####  ヒトニナル  
+##### 10481#       发表于 2022-2-4 14:58
+
+所以没事别去翻唱偶像企划的歌，而且有一说一masterpiece和magic的确很特殊
+
