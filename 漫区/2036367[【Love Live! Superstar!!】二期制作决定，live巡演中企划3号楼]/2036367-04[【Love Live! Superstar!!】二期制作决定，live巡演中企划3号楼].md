@@ -6341,3 +6341,16 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  player3960  
+##### 5018#       发表于 2022-2-4 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540745&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-02-04 09:59:29</a>
+你鲤鱼姐腿更不行啊，虽然长，但是单独看腿会显粗 v2.5.2</blockquote>所以才要黑丝啊，显瘦，而且腿粗也只是和其他四个横向比较而已，单看没那么过分。
+我觉得蛮饱满的，之前看鲤鱼cos的高雄真的很<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
