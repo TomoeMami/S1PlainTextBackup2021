@@ -1,0 +1,22 @@
+
+
+*****
+
+####  FCCHua  
+##### 10501#       发表于 2022-2-4 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54547570&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-2-4 20:30</a>
+别的不熟，rid最大的也就KaronPe，23，而且人家已经在考虑退役了
+
+职业选手练习量大啊，能弥补年纪带来的劣 ...</blockquote>
+[https://nyfco.org/sumire_zense/](https://nyfco.org/sumire_zense/)
+
+*****
+
+####  渡鸦骑士  
+##### 10502#       发表于 2022-2-4 20:56
+
+yuni居然是把公司踢了自己单飞了草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+企业势费拉不堪
+
