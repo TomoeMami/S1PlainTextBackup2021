@@ -6741,3 +6741,15 @@ O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做�
 可以编程不代表可以很简单的编程，要是测完序列就能搞出疫苗，那懂王在位时疫苗就能拉出来了；其次相对灭 ...</blockquote>
 道理没错，但懂王那次的解释更多是有人想搞他吧
 
+
+
+*****
+
+####  wszweill  
+##### 3535#       发表于 2022-2-4 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540151&amp;ptid=2039422" target="_blank">holyblood 发表于 2022-2-3 18:29</a>
+
+道理没错，但懂王那次的解释更多是有人想搞他吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
