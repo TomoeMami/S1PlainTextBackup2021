@@ -900,3 +900,17 @@ PS那游戏好像补充了很多魔战将军和侍的背景设定</blockquote>
 
 哦 那问题就不大了。反正就他这个量看2眼就没，最重要的劲也不够大……
 
+
+
+*****
+
+####  y2w80  
+##### 66#       发表于 2022-2-4 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541973&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-4 12:12</a>
+
+魔战将军魔剑使和侍二把手两兄弟的狗血过去
+
+忍者王卡拉的过去</blockquote>
+好像是弟弟接盘嫂子啥的狗血吧?果然古今中外都喜欢撒这种狗血。
+
