@@ -4659,3 +4659,49 @@ rp守恒定律
 
 战犯哒！
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 8049#       发表于 2022-2-4 19:20
+
+懂了这把是不爽队友猎杀尾气故意送死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新磕娘  
+##### 8050#       发表于 2022-2-4 19:21
+
+开始控分了，上大师要狠狠捞一笔，不能这么草率
+
+*****
+
+####  面具13  
+##### 8051#       发表于 2022-2-4 19:21
+
+还是用你的地平线吧
+
+*****
+
+####  猫南北  
+##### 8052#       发表于 2022-2-4 19:23
+
+怎么开始用恶灵了， 上分意愿不够强啊~
+
+*****
+
+####  バーチャルS1er  
+##### 8053#       发表于 2022-2-4 19:23
+
+悲报：红牛公司经常定期性送红牛给你夸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  egged5  
+##### 8054#       发表于 2022-2-4 19:38
+
+涨了快一万同接，恐怖
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
