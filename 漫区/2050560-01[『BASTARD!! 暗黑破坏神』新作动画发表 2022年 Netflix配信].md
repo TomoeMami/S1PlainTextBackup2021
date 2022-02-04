@@ -935,3 +935,19 @@ PS那游戏好像补充了很多魔战将军和侍的背景设定</blockquote>
 
 这是暗黑破坏神里最狗血的故事了
 
+
+
+*****
+
+####  kiralzb  
+##### 68#       发表于 2022-2-4 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541920&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-4 12:07</a>
+
+父亲是魔人，银发，打完炮跑路
+
+DS也是魔人，银发，也喜欢跑路</blockquote>
+大概是Q&amp;A之类的里有提过吧，反正一般认为是父子没错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外这种设定里，好像还有问DS如果和女主成了那雷帝怎么办，回答说不是有忍者王和卡尔嘛，虽然卡尔更接近兄妹，所以烂尾也未尝不是一件好事，这画下去怕不是真要分蛋糕，虽然不知道胖子现在想法有没有变<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
