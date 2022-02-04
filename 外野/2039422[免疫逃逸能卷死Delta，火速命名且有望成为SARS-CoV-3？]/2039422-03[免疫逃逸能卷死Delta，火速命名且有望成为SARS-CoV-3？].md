@@ -6753,3 +6753,16 @@ O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做�
 道理没错，但懂王那次的解释更多是有人想搞他吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 3536#       发表于 2022-2-5 04:21
+
+重要信息。Moderna和NIH VRC刚刚在bioRxiv上传了Moderna开发的Omicron特异性疫苗mRNA-Omicron的临床前数据，这个数据非常有意思。研究给接种了mRNA-1273的恒河猴在41周后加强接种mRNA-1273或者mRNA-Omicron。在加强接种前恒河猴血清对Omicron中和活性ID50为110。加强接种后，原始疫苗mRNA-1273诱导的Omicron血清中和活性为2980。mRNA-Omicron诱导的Omicron血清中和活性为1930。也就是说Omicron特异性疫苗诱导的针对Omicron的中和滴度没有原始疫苗高。
+
+另外，两种疫苗都可以诱导70-80%的Omicron特异性的B细胞。两者对上下呼吸道病毒复制的保护力几乎完全一致，攻毒Omicron后，接种两种疫苗的恒河猴在鼻腔和BAL中的病毒载量一致，即肺中病毒载量被完全抑制；而上呼吸道被部分抑制。与之前恒河猴试验的结果一致。两种疫苗都可以完全预防肺炎发生。
+
+所以mRNA-Omicron诱导的针对Omicron的中和抗体反而不如mRNA-1273。另外，两者诱导的Omicron特异性B细胞应答，和产生的预防Omicron感染的保护力一致。鉴于这个数据，如果临床试验观察与这个结果一致，我猜FDA可能不会授权mRNA-Omicron的EUA BLA。收起
+

@@ -162,3 +162,41 @@ APEX配信者強さ格付け
 
 Ｉ　兎田ぺこら
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 10512#       发表于 2022-2-5 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553133&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-2-5 01:45</a>
+
+心血来潮去串里冲了下浪，yqqx好惨
+
+顺便这是最新节奏榜</blockquote>
+胡桃のあ可以上升一级，已经毕业的也不需要提了f:067]
+
+*****
+
+####  FCCHua  
+##### 10513#       发表于 2022-2-5 03:10
+
+ 本帖最后由 FCCHua 于 2022-2-5 03:17 编辑 
+
+为什么加藤纯一还出现在女管人榜单里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+姐姐在这两个榜单里的不同位置有点搞笑，然后黑黑两位比我想的高...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gogomw  
+##### 10514#       发表于 2022-2-5 03:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去看了几眼,虹EN男的集美们也太纯了吧怎么一群人以为那个房管会彩虹出道的给蚌埠住了
+
+*****
+
+####  Longinus_  
+##### 10515#       发表于 2022-2-5 03:23
+
+令人感叹，hendy跟着oreapo都上大师了
+

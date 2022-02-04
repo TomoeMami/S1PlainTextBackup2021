@@ -1436,3 +1436,18 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 奥林匹斯南部大改，加了不少通路，不知道实际效果如何
 
+
+
+*****
+
+####  dave606  
+##### 81#       发表于 2022-2-5 05:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54520633&amp;ptid=2046838" target="_blank">hshiki 发表于 2022-2-2 15:06</a>
+新赛季如果真是电冲进空投，平行进复制器，那我全程玩小帮手了</blockquote>
+手柄现在玩着最舒服的就是car 加小帮手了
+虽然基本来什么用什么。
+这改动的问题最大的是能量武器废了吧，除非涡轮固定进制造机
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
