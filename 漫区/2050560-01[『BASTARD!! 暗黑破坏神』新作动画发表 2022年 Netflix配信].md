@@ -860,3 +860,43 @@ PS那游戏好像补充了很多魔战将军和侍的背景设定
 
 DS也是魔人，银发，也喜欢跑路<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 63#       发表于 2022-2-4 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540899&amp;ptid=2050560" target="_blank">y2w80 发表于 2022-2-4 10:19</a>
+
+PS那游戏好像补充了很多魔战将军和侍的背景设定</blockquote>
+魔战将军魔剑使和侍二把手两兄弟的狗血过去
+
+忍者王卡拉的过去
+
+前任四天王的两位
+
+古神和天使的关系
+
+*****
+
+####  gpx234mqx  
+##### 64#       发表于 2022-2-4 12:15
+
+ 本帖最后由 gpx234mqx 于 2022-2-4 12:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540918&amp;ptid=2050560" target="_blank">zerona 发表于 2022-2-4 10:21</a>
+
+你的那个count down 我还真没有。希望共享下哦。</blockquote>
+完全版02的预告
+
+下了完全版02就不用了
+
+现在就是01没有
+
+*****
+
+####  zerona  
+##### 65#       发表于 2022-2-4 12:21
+
+哦 那问题就不大了。反正就他这个量看2眼就没，最重要的劲也不够大……
+
