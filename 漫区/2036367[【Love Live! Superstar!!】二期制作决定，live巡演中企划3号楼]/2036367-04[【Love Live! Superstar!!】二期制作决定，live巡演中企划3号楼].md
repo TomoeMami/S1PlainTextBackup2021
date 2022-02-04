@@ -6667,3 +6667,15 @@ A店怎么选的照片……<img src="https://static.saraba1st.com/image/smiley/
 
 鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作
 
+
+
+*****
+
+####  player3960  
+##### 5045#       发表于 2022-2-5 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54552585&amp;ptid=2036367" target="_blank">任天索尼子 发表于 2022-02-05 00:28:09</a>
+鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作 ...</blockquote>我记得上石白萌音当时才配过两部电影就能得声优大赏（虽然被质疑演员来抢饭碗）。而ll这长期饭票，不到企划入土，鲤鱼就得一直给可可配音，虽然就一个角色，就未来的工作量和时长来看，称为声优也不过分吧，不过她都已经歌手出道了，声优方面业务估计也不会怎么开展了，虽然我也想她再接几个角色。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
