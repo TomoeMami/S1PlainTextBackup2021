@@ -85,3 +85,12 @@ bora毕业前唯一一次猎排的成员<img src="https://static.saraba1st.com/i
 
 说起来luca这事到头来只有简中粉受伤，目前涨粉是没影响，后面几周要是SC也没怎么下降是否证明简中女粉只有声音大实际费拉不堪<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dybang  
+##### 10510#       发表于 2022-2-4 23:45
+
+隔壁冲到最后不也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">外网🐸乱跳，虹人继续阴湿呗，还以为en能强点呢，我就尼玛春节太闲了没事看什么直播，还不如打游戏
+
