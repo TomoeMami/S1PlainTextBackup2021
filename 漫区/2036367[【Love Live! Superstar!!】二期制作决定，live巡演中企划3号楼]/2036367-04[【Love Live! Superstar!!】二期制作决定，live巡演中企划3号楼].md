@@ -6406,3 +6406,32 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 去日亚买了，加上封面一共48页，880日元，YJ电子写真集的正常价格。有几张LS要的肉腿</blockquote>
 虽然我第一时间已经同时下单写真和YJ，不过还是谢谢支持<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5023#       发表于 2022-2-4 13:23
+
+小百合的那个广播拿到了三个提名，我记得她是最后一天才发的拉票的推特吧，好强啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 5024#       发表于 2022-2-4 13:34
+
+还是不开新帖搭楼问一下，现在日亚的kindle电子书和礼品卡充值是不是限制了大陆的visa卡，昨晚买鲤鱼的写真折腾了半天都付不了款，客服只说近期大陆卡会有支付障碍，最后只能找TB买卡充值<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前两三年还能直邮的时候买起来明明没什么障碍
+
+*****
+
+####  cqc1021  
+##### 5025#       发表于 2022-2-4 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542711&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-4 13:34</a>
+还是不开新帖搭楼问一下，现在日亚的kindle电子书和礼品卡充值是不是限制了大陆的visa卡，昨晚买鲤鱼的写真 ...</blockquote>
+中行JCB卡，你值得拥有<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
