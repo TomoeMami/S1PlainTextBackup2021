@@ -4532,3 +4532,91 @@ rp守恒定律
 
 已经该考虑SC内容写什么了
 
+
+
+*****
+
+####  面具13  
+##### 8032#       发表于 2022-2-4 18:45
+
+这队友能c啊，能跟上就有
+
+*****
+
+####  erer  
+##### 8033#       发表于 2022-2-4 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是。你们是猎杀队吗？ 怎么一直找人打啊
+
+*****
+
+####  猫南北  
+##### 8034#       发表于 2022-2-4 18:46
+
+这局队友真猛~
+
+*****
+
+####  erer  
+##### 8035#       发表于 2022-2-4 18:48
+
+是锁子哥，草
+
+*****
+
+####  nowaki  
+##### 8036#       发表于 2022-2-4 18:48
+
+已经在写sc了
+
+*****
+
+####  _Ra1nMaker  
+##### 8037#       发表于 2022-2-4 18:48
+
+原来是发现队友是挂所以去送了吗，夸夸她真的 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 8038#       发表于 2022-2-4 18:48
+
+淦，难怪那么猛。
+
+*****
+
+####  面具13  
+##### 8039#       发表于 2022-2-4 18:49
+
+草，是大哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 8040#       发表于 2022-2-4 18:49
+
+欢乐欢乐 
+
+
+
+*****
+
+####  バーチャルS1er  
+##### 8041#       发表于 2022-2-4 18:50
+
+懂了这是怀疑队友故意送死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8042#       发表于 2022-2-4 18:50
+
+泪目了，锁子哥送的分，夸宝不屑的。
+
+*****
+
+####  面具13  
+##### 8043#       发表于 2022-2-4 18:51
+
+还好死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不然被大哥带上大师也太难受了
+

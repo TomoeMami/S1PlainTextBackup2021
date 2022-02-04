@@ -967,3 +967,17 @@ DS也是魔人，银发，也喜欢跑路</blockquote>
 
 现在的是莉莉丝<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zerona  
+##### 70#       发表于 2022-2-4 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54544584&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2022-2-4 16:28</a>
+
+洋子死了啊
+
+现在的是莉莉丝</blockquote>
+方舟篇这挺好看的。
+
