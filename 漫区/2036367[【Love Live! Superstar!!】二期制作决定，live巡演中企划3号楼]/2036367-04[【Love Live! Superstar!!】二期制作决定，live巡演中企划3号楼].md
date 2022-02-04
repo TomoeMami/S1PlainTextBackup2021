@@ -6395,3 +6395,14 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 
 没有人觉得鲤鱼像西野七濑吗
 
+
+
+*****
+
+####  lj205  
+##### 5022#       发表于 2022-2-4 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541317&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-2-4 11:05</a>
+去日亚买了，加上封面一共48页，880日元，YJ电子写真集的正常价格。有几张LS要的肉腿</blockquote>
+虽然我第一时间已经同时下单写真和YJ，不过还是谢谢支持<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -846,3 +846,17 @@ PS那游戏好像补充了很多魔战将军和侍的背景设定
 发现还有</blockquote>
 你的那个count down 我还真没有。希望共享下哦。
 
+
+
+*****
+
+####  gpx234mqx  
+##### 62#       发表于 2022-2-4 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54539442&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-4 01:38</a>
+
+只有暗示，什么父亲也是个强大的魔法师，头发颜色之类？以前还有里设定的说法，不过太久了也不是记得很清 ...</blockquote>
+父亲是魔人，银发，打完炮跑路<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+DS也是魔人，银发，也喜欢跑路<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
