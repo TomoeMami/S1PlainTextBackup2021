@@ -981,3 +981,17 @@ DS也是魔人，银发，也喜欢跑路</blockquote>
 现在的是莉莉丝</blockquote>
 方舟篇这挺好看的。
 
+
+
+*****
+
+####  y2w80  
+##### 71#       发表于 2022-2-4 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54544276&amp;ptid=2050560" target="_blank">kiralzb 发表于 2022-2-4 15:59</a>
+
+大概是Q&amp;A之类的里有提过吧，反正一般认为是父子没错
+
+另外这种设定里，好像还有问DS如果和女主成 ...</blockquote>
+雷帝说过冰火虽然相对，却也因此互相吸引嘛。估计是DS带着卡鲁斯出去浪而把雷帝留在家里的缘故，雷帝非常讨厌争宠情敌卡鲁斯。
+

@@ -17331,3 +17331,14 @@ Luca刚道歉完 这会儿房管就开始拱火并且单开置顶提拆腻子 �
 某种意义上来讲胡桃fps水平还在，年龄就不是问题
 syl 其他人我不确定，hnn的话确实是懒，能少一步绝不会多一步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 10487#       发表于 2022-2-4 19:12
+
+太子也准备退了？
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

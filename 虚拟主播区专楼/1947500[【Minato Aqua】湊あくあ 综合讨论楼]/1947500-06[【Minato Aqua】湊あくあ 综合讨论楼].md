@@ -4620,3 +4620,42 @@ rp守恒定律
 
 还好死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不然被大哥带上大师也太难受了
 
+
+
+*****
+
+####  面具13  
+##### 8044#       发表于 2022-2-4 19:02
+
+ 本帖最后由 面具13 于 2022-2-4 19:05 编辑 
+
+湊あくあ最強卍。队友是真正的阴角恶灵，能融入环境不被敌人察觉
+
+*****
+
+####  黑暗贴贴  
+##### 8045#       发表于 2022-2-4 19:09
+
+笑死了，一百个人经过
+
+*****
+
+####  バーチャルS1er  
+##### 8046#       发表于 2022-2-4 19:11
+
+这把有个猎杀尾气队友，稳了稳了（奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 8047#       发表于 2022-2-4 19:16
+
+选恶灵强行延长直播时间是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8048#       发表于 2022-2-4 19:19
+
+战犯哒！
+
