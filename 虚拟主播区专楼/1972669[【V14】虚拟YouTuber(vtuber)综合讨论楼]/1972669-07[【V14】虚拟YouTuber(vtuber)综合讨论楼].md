@@ -17099,3 +17099,12 @@ syl
 
 太好了，再也不用担心紧急事态宣言了，线下要搞，大搞，使劲搞！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  dybang  
+##### 10468#       发表于 2022-2-4 10:51
+
+luca这事太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">还以为你虹能强点，估计也管不了白皮
+
