@@ -4427,3 +4427,62 @@ rp守恒定律
 
 —— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  erer  
+##### 8019#       发表于 2022-2-4 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">卧槽。孩子太强了！！！
+
+*****
+
+####  面具13  
+##### 8020#       发表于 2022-2-4 18:01
+
+卧槽，像个战神
+
+*****
+
+####  越动天下  
+##### 8021#       发表于 2022-2-4 18:01
+
+拉满 牛
+
+<img src="https://img.saraba1st.com/forum/202202/04/180131roii77giqod6qoco.png" referrerpolicy="no-referrer">
+
+<strong>DFK)CWWM82~5PA)E`M}6T.png</strong> (97.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 18:01 上传
+
+*****
+
+####  面具13  
+##### 8022#       发表于 2022-2-4 18:02
+
+还想着三连鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8023#       发表于 2022-2-4 18:02
+
+我的评价是 该喊起2年前的口号了 湊あくあ最強！湊あくあ最強！湊あくあ最強！
+
+*****
+
+####  新磕娘  
+##### 8024#       发表于 2022-2-4 18:07
+
+刚刚那局属实是好素材，笑点爆点样样都有
+
+*****
+
+####  越动天下  
+##### 8025#       发表于 2022-2-4 18:19
+
+队友可以
+
