@@ -6509,3 +6509,14 @@ E12B3EBE-4410-4F11-9171-B625ADD12777.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/04/154929prv1vndd566c8zdg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5031#       发表于 2022-2-4 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54544170&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-02-04 15:49:31</a></blockquote>这个帽子像是和ambition一套的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

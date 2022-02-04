@@ -17277,3 +17277,12 @@ ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片�
 
 所以没事别去翻唱偶像企划的歌，而且有一说一masterpiece和magic的确很特殊
 
+
+
+*****
+
+####  lkjh  
+##### 10482#       发表于 2022-2-4 17:00
+
+Luca刚道歉完 这会儿房管就开始拱火并且单开置顶提拆腻子 不得不怀疑是不是在和🐸打配合 真的太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
