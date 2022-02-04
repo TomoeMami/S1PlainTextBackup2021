@@ -17179,3 +17179,17 @@ luca这事太弱智了<img src="https://static.saraba1st.com/image/smiley/face20
 
 ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片当头像就开贴说这个事结果反而被海子姐骂有病吧
 
+
+
+*****
+
+####  fastary  
+##### 10475#       发表于 2022-2-4 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542915&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-2-4 13:55</a>
+
+不是
+
+ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片当头像就开贴说这个事结果反而被海子姐骂有 ...</blockquote>
+那确实区别很大，不过没了解事情就护粉头这个中心思想倒是异曲同工……
+
