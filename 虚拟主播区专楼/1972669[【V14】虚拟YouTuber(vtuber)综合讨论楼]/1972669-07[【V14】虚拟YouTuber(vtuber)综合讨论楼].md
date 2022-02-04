@@ -17078,3 +17078,24 @@ syl
 
 笑死，不少女粉破防大喊rnm退钱了，毕竟刚过大年初一没多久<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 10467#       发表于 2022-2-4 10:07
+
+插播管人微相关11区新闻
+
+东京都修改紧急事态要请检讨标准，由原本的
+ <blockquote>医院<strong>病床使用率50%</strong></blockquote>
+更改为
+ <blockquote><strong>重症</strong>病床使用率或需要<strong>吸氧</strong>的患者率达到30%~40%
+
+且
+
+<strong>7日平均</strong>新增感染超过2万4千人</blockquote>
+同时满足以上两个条件才会判断是否紧急宣言（注：东京都连续两天日增超过2万，2月3日重症病床使用率为7.3%，7日平均新增感染为1万7千人）
+
+太好了，再也不用担心紧急事态宣言了，线下要搞，大搞，使劲搞！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
