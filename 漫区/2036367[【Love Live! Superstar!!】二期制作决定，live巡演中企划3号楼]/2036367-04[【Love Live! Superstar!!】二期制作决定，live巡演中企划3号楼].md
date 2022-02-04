@@ -6367,3 +6367,22 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 —— 来自 samsung SM-N986 ...</blockquote>
 肉腿最棒<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 5020#       发表于 2022-2-4 11:05
+
+ 本帖最后由 cqc1021 于 2022-2-4 11:07 编辑 
+
+去日亚买了，加上封面一共48页，880日元，YJ电子写真集的正常价格。有几张LS要的肉腿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/04/110524m14s1d44ildl5dl7.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片编辑_20220204110440.jpg</strong> (416.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 11:05 上传
+

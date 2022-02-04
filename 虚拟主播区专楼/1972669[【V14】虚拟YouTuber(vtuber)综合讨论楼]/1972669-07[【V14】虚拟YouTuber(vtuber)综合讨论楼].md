@@ -17108,3 +17108,20 @@ syl
 
 luca这事太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">还以为你虹能强点，估计也管不了白皮
 
+
+
+*****
+
+####  winda  
+##### 10469#       发表于 2022-2-4 11:04
+
+<img src="https://img.saraba1st.com/forum/202202/04/110316usttntot2tp52wll.jpg" referrerpolicy="no-referrer">
+
+<strong>FJE8ScCaIAMH-3d.jpg</strong> (316.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 11:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然小千这扳手哥话多到被截图出来吐槽的地步了，但房管互动又不稀罕
+
