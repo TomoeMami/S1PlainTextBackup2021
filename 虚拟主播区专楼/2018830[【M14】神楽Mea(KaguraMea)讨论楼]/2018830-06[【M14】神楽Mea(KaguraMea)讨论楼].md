@@ -7197,3 +7197,46 @@ vcp可真是逆天，和冬奥会开幕式撞……？你tm不是没点子吗？
 
 调整了一些啊，现在不出神分了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 8331#       发表于 2022-2-5 00:19
+
+神分也适合波比的啊 短CD的Q可以频繁触发神分 波比的被动护盾还有神分的回血都挺适合的
+
+*****
+
+####  T_Hb  
+##### 8332#       发表于 2022-2-5 00:24
+
+又渡劫
+
+*****
+
+####  古战场亡魂  
+##### 8333#       发表于 2022-2-5 00:27
+
+ 本帖最后由 古战场亡魂 于 2022-2-5 00:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54552483&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-5 00:19</a>
+
+神分也适合波比的啊 短CD的Q可以频繁触发神分 波比的被动护盾还有神分的回血都挺适合的 ...</blockquote>
+左边打野推荐，右边上单推荐。mea原本一般是神分加荆棘加王者板甲，现在是霜火加荆棘加末日寒冬
+
+<img src="https://img.saraba1st.com/forum/202202/05/002536tfkafkyfkk6fbyby.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220205002513542.jpg</strong> (26.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202202/05/002402zz8l01oo8ekg1zz1.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220205002343933.jpg</strong> (27.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 00:24 上传
+

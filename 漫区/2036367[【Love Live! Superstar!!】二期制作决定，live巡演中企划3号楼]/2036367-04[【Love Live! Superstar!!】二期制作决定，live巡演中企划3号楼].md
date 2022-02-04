@@ -6658,3 +6658,12 @@ A店怎么选的照片……<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  任天索尼子  
+##### 5044#       发表于 2022-2-5 00:28
+
+鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作
+
