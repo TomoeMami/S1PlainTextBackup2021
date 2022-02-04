@@ -1055,3 +1055,19 @@ Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https:/
 
 网飞的话，又是剑风传奇那样的3d吗
 
+
+
+*****
+
+####  gpx234mqx  
+##### 78#       发表于 2022-2-4 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54551654&amp;ptid=2050560" target="_blank">gulant 发表于 2022-2-4 23:04</a>
+
+不抱希望，漫画后期那个表现力做动画就是烧钱，而且史前IP，原作摆烂多年基本热情已无，就看恰到多少。
+
+能 ...</blockquote>
+天使恶魔之战除非出剧场版
+
+否则TV版做不出来的
+
