@@ -17403,3 +17403,59 @@ syl 其他人我不确定，hnn的话确实是懒，能少一步绝不会多一�
 
 日本什么16岁天才少年，甚至正赛都没进。
 
+
+
+*****
+
+####  FCCHua  
+##### 10494#       发表于 2022-2-4 20:22
+
+狱卒新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shpdw  
+##### 10495#       发表于 2022-2-4 20:25
+
+<img src="https://img.saraba1st.com/forum/202202/04/201825bu1l4gk95kk5fsy4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot-2022-02-04-20-16-43.jpeg</strong> (20.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 20:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">18年唱的那可比M@GIC地位高多了
+
+*****
+
+####  poipanchao  
+##### 10496#       发表于 2022-2-4 20:30
+
+ 本帖最后由 poipanchao 于 2022-2-4 20:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54547044&amp;ptid=1972669" target="_blank">天天座理世 发表于 2022-2-4 20:14</a>
+
+觉得99年的堇姐年龄在apex里大？要不看看这次agls冠军的tsm，rid，df这几位都几几年的？
+
+日本什么16岁天才 ...</blockquote>
+别的不熟，rid最大的也就KaronPe，23，而且人家已经在考虑退役了
+
+职业选手练习量大啊，能弥补年纪带来的劣势
+
+主播的话主要还是靠天赋，年轻就是本钱，菜如夏小姐猛练以后枪法也是有模有样的
+
+但是主播没法一直玩一个游戏，年纪上去了就是跟不上
+
+为什么noah强，因为她可能就是练的最多的大师女了
+
+syl，等下，我查出来堇是24的啊，99年是哪来的情报
+
+*****
+
+####  真飞鸟i  
+##### 10497#       发表于 2022-2-4 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非攻击性，不过那视频下面的评论属实是以为俩个虹男是上月前二了。而且评论数感觉在虹杏b站鼎盛时期这类视频也达不到。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
