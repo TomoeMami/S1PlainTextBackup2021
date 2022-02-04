@@ -20,3 +20,28 @@ yuni居然是把公司踢了自己单飞了草<img src="https://static.saraba1st
 
 企业势费拉不堪
 
+
+
+*****
+
+####  nian1538  
+##### 10503#       发表于 2022-2-4 21:13
+
+99年7月的话那不就比夸夸大5个月吗
+
+*****
+
+####  poipanchao  
+##### 10504#       发表于 2022-2-4 21:18
+
+noah等下要去打猎排了，成员是cpt alelu
+
+bora毕业前唯一一次猎排的成员<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 10505#       发表于 2022-2-4 21:19
+
+星川上钻后哈弟还真的打电话过来了，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

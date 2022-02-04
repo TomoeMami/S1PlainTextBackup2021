@@ -5120,3 +5120,42 @@ Crew该开始做梦了啊
 
 比如说能不能把某些组合也给复活一下什么的
 
+
+
+*****
+
+####  越动天下  
+##### 8109#       发表于 2022-2-4 21:02
+
+肯定是哪个职业哥带了她 不然身法怎么练的出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 8110#       发表于 2022-2-4 21:07
+
+ 本帖最后由 Maonpuyo 于 2022-2-4 21:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被职业哥带过的人也不少了吧，真正练出来的有几个，打了几年开始被带现在还是被带，心安理得当花瓶
+
+*****
+
+####  mutoto  
+##### 8111#       发表于 2022-2-4 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我先踩一下，这赛季大师多的一逼，单排大师没有含金量。
+
+*****
+
+####  Maonpuyo  
+##### 8112#       发表于 2022-2-4 21:18
+
+一个提督就能换到的东西，确实没有含金量
+
+*****
+
+####  越动天下  
+##### 8113#       发表于 2022-2-4 21:18
+
+问就是没有含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
