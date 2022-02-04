@@ -6435,3 +6435,21 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  lj205  
+##### 5026#       发表于 2022-2-4 13:48
+
+其实不是非日亚的话购买渠道还是很多的，我现在固定是在週プレ或者DMM买，或者去杂志官网看看有没有多的购买渠道
+
+*****
+
+####  starring  
+##### 5027#       发表于 2022-2-4 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542829&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-4 13:48</a>
+其实不是非日亚的话购买渠道还是很多的，我现在固定是在週プレ或者DMM买，或者去杂志官网看看有没有多的购 ...</blockquote>
+以前在日亚买些什么都没遇到问题，没想到这次会付款卡壳
+

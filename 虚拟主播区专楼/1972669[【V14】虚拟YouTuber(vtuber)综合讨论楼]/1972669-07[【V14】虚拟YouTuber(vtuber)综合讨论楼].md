@@ -17152,3 +17152,30 @@ luca这事太弱智了<img src="https://static.saraba1st.com/image/smiley/face20
 
 萌惠突然b限，艾琳一家好久没看了不知道咋样了
 
+
+
+*****
+
+####  fastary  
+##### 10473#       发表于 2022-2-4 13:47
+
+ 本帖最后由 fastary 于 2022-2-4 13:53 编辑 
+
+速报？luca为自己用lie这个词道歉了並补充说看过了没ban任何人，但是没下房管所以不少简中粉还是不满意<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以我才比较抗拒会参与聊天(也不是说不能人格化，主要是指话多喜欢刷存在感的那些)的房管啊，一旦管理出了问题又不好好沟通再加上主播无脑站房管就会激怒普通粉丝……<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+(当年瓜没有吃的很细，ybb是不是也是类似问题来着
+
+*****
+
+####  OldGlory  
+##### 10474#       发表于 2022-2-4 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542820&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-4 13:47</a>
+
+速报？luca为自己用lie这个词道歉了並补充说看过了没ban任何人，但是没下房管所以不少简中粉还是不满意[f:0 ...</blockquote>
+不是
+
+ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片当头像就开贴说这个事结果反而被海子姐骂有病吧
+
