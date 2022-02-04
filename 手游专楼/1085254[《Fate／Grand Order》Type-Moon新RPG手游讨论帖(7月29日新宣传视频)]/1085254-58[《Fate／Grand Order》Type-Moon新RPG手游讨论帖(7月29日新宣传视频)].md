@@ -13340,3 +13340,14 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 
 惊了 fgo都要关服了突然new了个嫁尼禄
 
+
+
+*****
+
+####  sk86  
+##### 86789#       发表于 2022-2-4 16:32
+
+好耶，fgo要关服，蘑菇终于有时间搞别的系列了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
