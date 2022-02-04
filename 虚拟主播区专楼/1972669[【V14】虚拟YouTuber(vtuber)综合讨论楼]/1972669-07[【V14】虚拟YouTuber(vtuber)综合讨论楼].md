@@ -17050,3 +17050,12 @@ syl
 
 题外话，我唯一关注的龙了很多黑客切片和完整熟肉的黑客gachi在en出来后没多久就脱粉转推mysta和luca了甚至黑客复归也没反应……虽然我也看en切片所以没取关，但说实话有点悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  purdre  
+##### 10464#       发表于 2022-2-4 09:20
+
+房管有人格这不很正常么，只有JP信那套粉丝不能有自我的话术，不能在管人推上的对话里插回复也不知是哪来的规定，全世界就之见过JP实行这规矩，总之看看JP就算了，被那套规矩搞上脑了我是理解不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
