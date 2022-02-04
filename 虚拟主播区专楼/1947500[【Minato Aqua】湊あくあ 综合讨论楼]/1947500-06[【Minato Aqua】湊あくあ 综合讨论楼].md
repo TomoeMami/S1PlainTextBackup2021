@@ -4907,3 +4907,165 @@ nb啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说她坐牢上不去是没客户端吧，就她这次刚开播白金段这近战跟枪和身法就知道大师随便上了，只要还是保持这打法不漏尿。
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 8083#       发表于 2022-2-4 20:02
+
+夸神牛逼夸神牛逼夸神牛逼大亏哥你永远是我大哥！
+
+*****
+
+####  fangjun96  
+##### 8084#       发表于 2022-2-4 20:05
+
+开始有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">夸哥一向都很实，哎，又想起那个闪闪发光的她啊
+
+*****
+
+####  星の守  
+##### 8085#       发表于 2022-2-4 20:05
+
+ 本帖最后由 星の守 于 2022-2-4 20:09 编辑 
+
+甚至在大师段能加分<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8086#       发表于 2022-2-4 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">救命啊，大粪曲，污染耳朵来了。
+
+*****
+
+####  面具13  
+##### 8087#       发表于 2022-2-4 20:12
+
+ 本帖最后由 面具13 于 2022-2-4 20:14 编辑 
+
+想起当初单排上钻后直接被暴打。现在说不定有机会不当10000守门员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喝红牛算不算兴奋剂啊
+
+*****
+
+####  egged5  
+##### 8088#       发表于 2022-2-4 20:13
+
+这把分又吃满了，牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  濡鸦之羽_  
+##### 8089#       发表于 2022-2-4 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/175.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8090#       发表于 2022-2-4 20:14
+
+两个人就是霹雳Q娃，人少一个反而打得像组排
+
+真的假的卧槽
+
+*****
+
+####  面具13  
+##### 8091#       发表于 2022-2-4 20:15
+
+大师局两人吃鸡<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8092#       发表于 2022-2-4 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 8093#       发表于 2022-2-4 20:15
+
+这都行吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/04/201607kwxwwczx9xwe6ses.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 20:16 上传
+
+*****
+
+####  wwddrte  
+##### 8094#       发表于 2022-2-4 20:15
+
+这就是阿夸真正的实力吗，太强了
+
+*****
+
+####  星の守  
+##### 8095#       发表于 2022-2-4 20:15
+
+甚至还吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  egged5  
+##### 8096#       发表于 2022-2-4 20:16
+
+要不考虑一下，单排上个猎杀?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  andeloz  
+##### 8097#       发表于 2022-2-4 20:16
+
+上大分咯
+
+*****
+
+####  pissaqua  
+##### 8098#       发表于 2022-2-4 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 8099#       发表于 2022-2-4 20:17
+
+实力解放。太强了叭~
+
+*****
+
+####  zpy393  
+##### 8100#       发表于 2022-2-4 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我不是很好  
+##### 8101#       发表于 2022-2-4 20:19
+
+压力没了。心态好了
+
+*****
+
+####  离魂仙  
+##### 8102#       发表于 2022-2-4 20:19
+
+“あくアン还有什么屁话赶紧说”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别打扰夸大师Q去收人头哦
+

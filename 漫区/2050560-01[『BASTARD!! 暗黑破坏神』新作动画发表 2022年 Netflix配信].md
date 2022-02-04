@@ -995,3 +995,14 @@ DS也是魔人，银发，也喜欢跑路</blockquote>
 另外这种设定里，好像还有问DS如果和女主成 ...</blockquote>
 雷帝说过冰火虽然相对，却也因此互相吸引嘛。估计是DS带着卡鲁斯出去浪而把雷帝留在家里的缘故，雷帝非常讨厌争宠情敌卡鲁斯。
 
+
+
+*****
+
+####  纯夏  
+##### 72#       发表于 2022-2-4 20:21
+
+Netflix虽然文艺复兴 但是长度不知道会不会给够 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+之前Netflix的7seeds虽然做了两季才24集 而且剧本疯狂跑火车 
+
