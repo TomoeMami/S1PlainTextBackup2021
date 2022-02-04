@@ -6327,3 +6327,17 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/04/072052cuukrdij1usuioju.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 5017#       发表于 2022-2-4 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54536159&amp;ptid=2036367" target="_blank">player3960 发表于 2022-2-3 21:16</a>
+下午贴吧闹得不可开交，我都看无语了
+鲤鱼想涩涩得发挥优势，上身不行就多拍腿，结合以前的cos照， ...</blockquote>
+你鲤鱼姐腿更不行啊，虽然长，但是单独看腿会显粗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是拍全身照的好。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

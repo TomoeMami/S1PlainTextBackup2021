@@ -17069,3 +17069,12 @@ syl
 我看到的房管都是和普通粉丝一样看直播看直播的，节奏就删掉了，也没必要说话。这不能说没人格吧？
 不过真有意思，虹en粉的第一次4V冲击了属于是
 
+
+
+*****
+
+####  Ryuuseigun  
+##### 10466#       发表于 2022-2-4 09:57
+
+笑死，不少女粉破防大喊rnm退钱了，毕竟刚过大年初一没多久<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
