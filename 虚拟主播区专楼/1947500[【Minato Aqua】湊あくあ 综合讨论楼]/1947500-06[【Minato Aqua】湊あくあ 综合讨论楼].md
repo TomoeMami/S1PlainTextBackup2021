@@ -5209,3 +5209,12 @@ Crew该开始做梦了啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这种时候的状态应该属于是对所有游戏都没兴趣，游戏民先歇着吧
 
+
+
+*****
+
+####  吃咸菜的  
+##### 8120#       发表于 2022-2-4 22:29
+
+楼里老哥能把这几天的a整个拿破仑段子吗？
+

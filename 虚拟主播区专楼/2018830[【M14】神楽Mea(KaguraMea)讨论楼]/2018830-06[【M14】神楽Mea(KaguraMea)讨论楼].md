@@ -7145,3 +7145,23 @@ vcp可真是逆天，和冬奥会开幕式撞……？你tm不是没点子吗？
 
 打到晋级赛
 
+
+
+*****
+
+####  Klience  
+##### 8326#       发表于 2022-2-4 22:42
+
+输了 1/11 哈哈哈哈哈 好惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8327#       发表于 2022-2-4 22:43
+
+ 本帖最后由 古战场亡魂 于 2022-2-4 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54551347&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-4 22:42</a>
+
+输了 1/11 哈哈哈哈哈 好惨啊</blockquote>
+对线船长，消耗不过对面，还控不住对面。波比这个真的要看阵容啊。当然也可能对线炼金，反正都怼不过
+
