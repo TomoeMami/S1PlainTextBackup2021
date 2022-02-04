@@ -1451,3 +1451,16 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  FanKiE  
+##### 82#       发表于 2022-2-5 06:52
+
+电冲<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+进空投之后感觉也就那样，比不上空投转换者，所以到底为什么要把它送进去啊，搞不懂<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+新赛季大概会是汗洛/小帮手+R99/獒犬/CAR了，当然如果能拿到301那最好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
