@@ -6690,3 +6690,38 @@ A店怎么选的照片……<img src="https://static.saraba1st.com/image/smiley/
 不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就比较好奇事务所对鲤鱼的定位，是歌手嘛但是又出写真，可是写真又一点都不露，写着cos呢却暂时没有这方面的安排。
 我是比较希望她以后能接到国民番就更好，多几个长期饭票，不过这个也不是想想就有的，很多时候也看运气了
 
+
+
+*****
+
+####  梶原ひかり  
+##### 5047#       发表于 2022-2-5 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553855&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-5 08:46</a>
+
+说鲤鱼现在配可可是玩票不太对吧？
+
+不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就 ...</blockquote><blockquote>中国上海出身の歌手・コスプレイヤー。そのフォトジェニックなビジュアルからSNS総フォロワー数190万人を超えており、中国のみならず世界中のコスプレファンから圧倒的な人気を誇っている。2020年1月22日ランティスレーベルより、TVアニメ「はてな☆イリュージョン」OP主題歌「Magic Words」でアーティストデビュー！2nd singleとして、TVアニメ「100万の命の上に俺は立っている」ED主題歌「カルぺ・ディエム」を2020年11月25日にリリース。
+
+2022年2月9日にはファーストアルバム「Fo(u)r YuU」のリリースが決定。2022年2月11日には初のソロコンサート、Liyuu First Concert2022「Fo(u)r YuU」をパシフィコ横浜国立大ホールで開催する。
+
+また、ソロ活動と並行して「ラブライブ！スーパースター!!」のスクールアイドルグループ「Liella!」のメンバー・唐 可可役を務めている。
+
+Birthday:January 9th, 1997
+
+City:中国・上海</blockquote>
+
+定位可能就是歌手吧...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好多新人就配一个角色也是把声优写上的..但是鲤鱼简介里没有..
+
+至于COS可能从事务所角度跟出写真大同小异吧 也考虑的商业化COS需要版权？不太方便 不如直接卖鲤鱼
+
+*****
+
+####  Enakina  
+##### 5048#       发表于 2022-2-5 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54552585&amp;ptid=2036367" target="_blank">任天索尼子 发表于 2022-02-05 00:28:09</a>
+鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作 ...</blockquote>有角色，还都上了声优杂志了，先不说会不会发展声优方向，但称作声优还是没问题的。当然事务所和她个人的简介很谦虚的从来没写声优，可见也没想往声优发展
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
