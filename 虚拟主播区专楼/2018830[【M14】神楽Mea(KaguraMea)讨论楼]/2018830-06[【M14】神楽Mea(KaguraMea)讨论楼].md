@@ -7837,3 +7837,41 @@ LOL都要看吐了 我选的歌回 并且歌回比较容易吸金啊
 
 被干碎了
 
+
+
+*****
+
+####  kenjjj  
+##### 8403#       发表于 2022-2-5 19:21
+
+两把0/8确实是被干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kenjjj  
+##### 8404#       发表于 2022-2-5 19:21
+
+风怒编辑
+
+*****
+
+####  时间在我手中  
+##### 8405#       发表于 2022-2-5 19:22
+
+建议戒掉垃圾游戏，满怀期待拥抱阿尔宙斯！
+
+*****
+
+####  甘栗No.007  
+##### 8406#       发表于 2022-2-5 19:23
+
+这都几次了，铁折磨
+但这折磨说不定能让她意识到动脑打游戏的重要性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8407#       发表于 2022-2-5 19:34
+
+没脑子的人就算动脑子也没用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
