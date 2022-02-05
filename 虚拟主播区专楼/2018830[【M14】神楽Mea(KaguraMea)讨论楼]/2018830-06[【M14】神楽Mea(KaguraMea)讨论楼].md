@@ -7937,3 +7937,12 @@ emmmmmmm
 
 不存在的，lol主播破防算是常态了，随便搜搜都有一堆直播破防的。人在绷不住的时候确实是绷不住的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呓亘  
+##### 8416#       发表于 2022-2-5 20:21
+
+阿咩的情绪控制能力确实强了不少
+
