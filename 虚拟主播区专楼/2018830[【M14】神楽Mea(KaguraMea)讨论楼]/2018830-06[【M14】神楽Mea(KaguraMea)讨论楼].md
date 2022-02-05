@@ -7787,3 +7787,19 @@ LOL都要看吐了 我选的歌回 并且歌回比较容易吸金啊
 
 这纳尔把咩当猪宰啊 经验包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Klience  
+##### 8397#       发表于 2022-2-5 18:45
+
+晋级赛第二场输了 被纳尔吊起来打 开始了第三场 对面上单鳄鱼 哦 我看错了 我看到波比以为是咩的波比 这场是辅助露露<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8398#       发表于 2022-2-5 18:58
+
+卑鄙的长手打短手，mea还不醒悟吗，兽耳波比多可爱啊，纳尔。
+
