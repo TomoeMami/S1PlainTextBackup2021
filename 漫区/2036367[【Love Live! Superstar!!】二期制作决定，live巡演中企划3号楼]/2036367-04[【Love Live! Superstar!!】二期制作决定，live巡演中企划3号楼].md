@@ -6926,3 +6926,21 @@ Nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  csolfans  
+##### 5067#       发表于 2022-2-6 01:21
+
+<blockquote>lj205 发表于 2022-2-5 23:28
+Nagi还没换手机</blockquote>
+Nagi之前说她手机的home键都已经按爆了(好像是iPhone8来着
+
+*****
+
+####  Norkey1  
+##### 5068#       发表于 2022-2-6 01:40
+
+主要是配音这块再怎么样需求还是大，国内声优市场也还没成熟，鲤鱼真往歌手走两边都难。作为国内拉拉人不推她也支持了两张，但后面没有了热度加持只能看她造化了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
