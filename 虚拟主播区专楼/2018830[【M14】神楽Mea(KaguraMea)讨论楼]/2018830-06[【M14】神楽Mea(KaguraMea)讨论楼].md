@@ -7382,3 +7382,35 @@ zsyl，vcp企划内容微相关（看来立本挺喜欢在年末、年初搞瀑�
 
 搞笑的是，对面抢了波比的情况下，她会选蛤蟆，配合打野疯狂欺负波比。蛤蟆开团抗伤配合gank也比波比方便多了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 8347#       发表于 2022-2-5 11:01
+
+蛤蟆不可爱，不会玩的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  往世雷书  
+##### 8348#       发表于 2022-2-5 11:07
+
+魔法少女厄加特，魔法少女塔姆安排上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我单推副会长  
+##### 8349#       发表于 2022-2-5 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554595&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-2-5 11:01</a>
+
+蛤蟆不可爱，不会玩的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+她今天早上晋级赛对线波比玩了蛤蟆我才说的。
+
