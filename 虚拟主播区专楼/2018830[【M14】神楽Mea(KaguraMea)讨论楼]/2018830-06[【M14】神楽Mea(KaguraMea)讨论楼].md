@@ -7989,3 +7989,12 @@ emmmmmmm
 
 大亏算了吧 都多久没打了 恐怕以后都不会见到她上lol了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 8422#       发表于 2022-2-5 21:26
+
+虽然这些年经历了那么多大风大浪，但是这种细小的绝望mea还是体会的少了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
