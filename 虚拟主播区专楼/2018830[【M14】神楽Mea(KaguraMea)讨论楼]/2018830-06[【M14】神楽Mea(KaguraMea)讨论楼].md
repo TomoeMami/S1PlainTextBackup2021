@@ -7353,3 +7353,15 @@ zsyl，vcp企划内容微相关（看来立本挺喜欢在年末、年初搞瀑�
 
 2022-2-5 07:58 上传
 
+
+
+*****
+
+####  ashero  
+##### 8345#       发表于 2022-2-5 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553734&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-5 07:58</a>
+
+三过白金而不入，主播的辅助还是再练练吧。一到晋级赛第五把，就不敢选上单证明自己……你的辅助能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经不是上单证不证明自己的问题了 她波比现在胜率趋近于5050 就是没有左右对局天平的能力了 所以这个晋级赛就完全看运气
+
