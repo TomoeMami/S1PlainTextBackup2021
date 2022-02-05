@@ -6791,3 +6791,21 @@ City:中国・上海</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  仟音一心  
+##### 5054#       发表于 2022-2-5 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554734&amp;ptid=2036367" target="_blank">Karin11974 发表于 2022-2-5 11:18</a>
+个人是觉得鲤鱼当声优比歌手有潜力，至少可可听着挺舒服，有机会还是应该多争取声优工作，多一条出路，除非 ...</blockquote>
+走声优发展的最大问题是没这么多角色给你，除非是设定的中国人或者需要说大量汉语的角色，否则真的不是非选你不可，毕竟声优界非常之卷。
+
+*****
+
+####  cybernetics31  
+##### 5055#       发表于 2022-2-5 12:31
+
+………………歌手也卷，说实话都卷，走声优这条路无非希望她多走条路罢了
+
