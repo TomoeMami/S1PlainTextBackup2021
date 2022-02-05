@@ -8222,3 +8222,12 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 今天这歌回不是挺好的嘛
 
+
+
+*****
+
+####  rgauss  
+##### 5363#       发表于 2022-2-5 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实可以让白白来文静房间直接贴贴唱歌
+

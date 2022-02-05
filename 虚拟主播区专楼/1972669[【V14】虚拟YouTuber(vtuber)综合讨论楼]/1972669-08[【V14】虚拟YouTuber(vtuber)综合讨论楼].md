@@ -328,3 +328,12 @@ Valera Kitsu发布这篇文章的诉求是希望ML解散，Shel道歉并付清�
 看着应该是iwng从彩虹独立出去后自己带的新企划……能活吗说实话</blockquote>
 原来​キルシュトルテ（之前和king&amp;黛灰以及其他虹v联动过的金毛神父）是签在いわ旗下的<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwera3469  
+##### 10524#       发表于 2022-2-5 22:08
+
+不如说他从出道到现在什么时候演过，我看迟早撕皮跑路
+

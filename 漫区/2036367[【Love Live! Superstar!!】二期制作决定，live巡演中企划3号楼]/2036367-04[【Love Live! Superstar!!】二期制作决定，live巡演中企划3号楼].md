@@ -6876,3 +6876,12 @@ City:中国・上海</blockquote>
 
 其实因为可可在国内的热度其实可以试试国内的手游能不能混到角色，直接搞个中日同一人配音的噱头也不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 5062#       发表于 2022-2-5 22:18
+
+国内外最热的2次元手游不就原神么，不知道有没有希望混到个角色。
+
