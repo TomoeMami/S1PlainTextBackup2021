@@ -6853,3 +6853,17 @@ City:中国・上海</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cqc1021  
+##### 5060#       发表于 2022-2-5 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553855&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-5 08:46</a>
+
+说鲤鱼现在配可可是玩票不太对吧？
+
+不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就 ...</blockquote>
+出写真太正常了，毕竟现在是在日本发展的，日本女星有几个不拍写真的，而且鲤鱼还是coser。最近几年enako和伊织萌还有前两年开始走红的桃月梨子，上杂志拍写真的次数远比出cos的次数多。可能是拍写真更赚钱吧。至于尺度就是事务所和本人意愿的问题了。
+
