@@ -6780,3 +6780,17 @@ O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做�
 
 现实世界里现在每天成千上万死的都是幻觉？
 
+
+
+*****
+
+####  有口皆悲  
+##### 3538#       发表于 2022-2-5 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553507&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-2-5 04:21</a>
+
+重要信息。Moderna和NIH VRC刚刚在bioRxiv上传了Moderna开发的Omicron特异性疫苗mRNA-Omicron的临床前数据 ...</blockquote>
+哇哇，那可真是棒棒的。我记得旧疫苗只敢说预防严重肺炎，不敢说完全预防肺炎。
+
+耶耶，今年疫情就结束了，这是最后一个疫情寒冬！
+
