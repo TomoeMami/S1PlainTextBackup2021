@@ -6766,3 +6766,17 @@ O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做�
 
 所以mRNA-Omicron诱导的针对Omicron的中和抗体反而不如mRNA-1273。另外，两者诱导的Omicron特异性B细胞应答，和产生的预防Omicron感染的保护力一致。鉴于这个数据，如果临床试验观察与这个结果一致，我猜FDA可能不会授权mRNA-Omicron的EUA BLA。收起
 
+
+
+*****
+
+####  ysys  
+##### 3537#       发表于 2022-2-5 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553507&amp;ptid=2039422" target="_blank">vimisbesteditor 发表于 2022-2-5 04:21</a>
+
+重要信息。Moderna和NIH VRC刚刚在bioRxiv上传了Moderna开发的Omicron特异性疫苗mRNA-Omicron的临床前数据 ...</blockquote>
+完全预防？
+
+现实世界里现在每天成千上万死的都是幻觉？
+
