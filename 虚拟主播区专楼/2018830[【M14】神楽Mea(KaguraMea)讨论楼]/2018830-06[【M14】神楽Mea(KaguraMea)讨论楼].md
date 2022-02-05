@@ -7654,3 +7654,50 @@ LOL都要看吐了 我选的歌回 并且歌回比较容易吸金啊
 
 怎么就第五次了？？？我统计错了？？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我单推副会长  
+##### 8380#       发表于 2022-2-5 17:41
+
+经典开局1-5
+
+*****
+
+####  Klience  
+##### 8381#       发表于 2022-2-5 17:41
+
+对面纳尔也算是个绝活了 看他战绩大多数用纳尔上分 看这把打成什么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8382#       发表于 2022-2-5 17:48
+
+出装正确的重要性，出耀光早被遛死了
+
+*****
+
+####  Klience  
+##### 8383#       发表于 2022-2-5 17:51
+
+不如说她最近都在这样出装了
+
+*****
+
+####  Klience  
+##### 8384#       发表于 2022-2-5 17:54
+
+好 这把寄了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8385#       发表于 2022-2-5 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54558154&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-5 17:51</a>
+
+不如说她最近都在这样出装了</blockquote>
+最近？今天和昨天√
+
