@@ -6768,3 +6768,14 @@ City:中国・上海</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cat1230  
+##### 5052#       发表于 2022-2-5 11:36
+
+我觉得吧声优比起天赋努力占比更大，相反歌手对比努力天赋占比更大。如果鲤鱼有打铁那副嗓子，估摸着大家也不会思考要不要她去做声优更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
