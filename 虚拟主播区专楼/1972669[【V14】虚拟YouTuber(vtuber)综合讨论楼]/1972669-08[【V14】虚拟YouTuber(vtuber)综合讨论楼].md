@@ -263,3 +263,68 @@ APEX配信者強さ格付け
 
 嘛，V不V的早就没人在意了
 
+
+
+*****
+
+####  fastary  
+##### 10520#       发表于 2022-2-5 19:18
+
+看着应该是iwng从彩虹独立出去后自己带的新企划……能活吗说实话
+
+*****
+
+####  winda  
+##### 10521#       发表于 2022-2-5 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mitwun卖点不就是人皮合一的v么
+
+syl cr valo这名单，drm+king，arip也在，这队同接拉满了
+
+*****
+
+####  alcoholic1000  
+##### 10522#       发表于 2022-2-5 19:21
+
+世界上的另一个角落：
+
+一家南非的VTuber社团<strong>MysteriaLive</strong>，于2021年11月12日开放了二期的试镜，这篇檄文由二期的Valera Kitsu发布；
+
+<img src="https://img.saraba1st.com/forum/202202/05/191647uqqczwdvzc4bfitg.png" referrerpolicy="no-referrer">
+
+<strong>MysteriaLive.png</strong> (34.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 19:16 上传
+
+MysteriaLive公司的老板Shaldon（Shel/Nyantails）在涉及恋童背景的情况下，雇用了多名未成年人liver（原话into erotic roleplay）。
+
+其中扮演Valera Kitsu的女生仅<strong>15岁</strong>（试镜时14岁），被要求隐瞒未成年的事实，提供媚宅百合表演并配合Shel创造的扭曲的背景故事——即Kitsu的角色实际上是Velty Darling和Shel未来结婚后的女儿，而Shel在Velty Darling恋爱时她同样是未成年，shel为她购买了播放量以达到收益化——“<strong>I’ve always wanted a loli</strong>”）
+
+ML禁止liver之间私下交流以及透露任何个人信息，相反staff们会在私下交流中挑拨离间，很多liver在之前也并不了解雇佣未成年的事实；
+
+Valera Kitsu发布这篇文章的诉求是希望ML解散，Shel道歉并付清白嫖的诸多设计及其他稿件。
+
+[全文链接](http://shorturl.at/clyK2)
+
+<img src="https://img.saraba1st.com/forum/202202/05/191725sk59e1vkx8kvy2jx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>valera kitsu.jpeg</strong> (508.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 19:17 上传
+
+南非炼铜白河豚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alcoholic1000  
+##### 10523#       发表于 2022-2-5 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54559072&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-5 19:18</a>
+
+看着应该是iwng从彩虹独立出去后自己带的新企划……能活吗说实话</blockquote>
+原来​キルシュトルテ（之前和king&amp;黛灰以及其他虹v联动过的金毛神父）是签在いわ旗下的<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+

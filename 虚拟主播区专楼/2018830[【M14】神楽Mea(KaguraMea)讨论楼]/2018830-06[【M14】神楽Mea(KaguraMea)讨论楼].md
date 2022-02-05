@@ -7803,3 +7803,37 @@ LOL都要看吐了 我选的歌回 并且歌回比较容易吸金啊
 
 卑鄙的长手打短手，mea还不醒悟吗，兽耳波比多可爱啊，纳尔。
 
+
+
+*****
+
+####  Klience  
+##### 8399#       发表于 2022-2-5 19:13
+
+第三局输了 辅助露露0/8 紧急失败 61胜点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pei23333  
+##### 8400#       发表于 2022-2-5 19:17
+
+心态炸了，b限延到明天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  路人庚  
+##### 8401#       发表于 2022-2-5 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这101真是一件美逝啊
+
+*****
+
+####  我单推副会长  
+##### 8402#       发表于 2022-2-5 19:19
+
+被干碎了
+
