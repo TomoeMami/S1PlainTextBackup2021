@@ -7573,3 +7573,84 @@ zsyl，vcp企划内容微相关（看来立本挺喜欢在年末、年初搞瀑�
 
 打几把撸，唱歌给爷唱，撸🐶cbddl
 
+
+
+*****
+
+####  呓亘  
+##### 8370#       发表于 2022-2-5 17:21
+
+LOL都要看吐了 我选的歌回 并且歌回比较容易吸金啊
+
+
+
+*****
+
+####  我单推副会长  
+##### 8371#       发表于 2022-2-5 17:26
+
+10点这个时间很微妙啊，今天油管也要播一下吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 8372#       发表于 2022-2-5 17:30
+
+反正一小时结束走人
+
+*****
+
+####  Klience  
+##### 8373#       发表于 2022-2-5 17:31
+
+ 本帖最后由 Klience 于 2022-2-5 17:34 编辑 
+
+那就一边唱歌一边LOL吧 两边都能受益<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llconforever  
+##### 8374#       发表于 2022-2-5 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">能不能别撸了。一看到撸我身上就像有小麻蚁在爬<strong></strong>
+
+*****
+
+####  我单推副会长  
+##### 8375#       发表于 2022-2-5 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54557982&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-5 17:31</a>
+
+那就一边唱歌一边LOL吧 两边都能受益 我怀疑这人昨晚都没睡觉 排位打到快4点了 然后快7点的时候换号 ...</blockquote>
+这种企划得有人和她提啊……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+或者直播lol的时候发个sc尝试呼吁一下。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8376#       发表于 2022-2-5 17:37
+
+单排一库走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 8377#       发表于 2022-2-5 17:38
+
+老鼠台播了打撸
+
+*****
+
+####  我单推副会长  
+##### 8378#       发表于 2022-2-5 17:39
+
+第四次白金冲击开始！！！！！！！！
+
+*****
+
+####  我单推副会长  
+##### 8379#       发表于 2022-2-5 17:40
+
+怎么就第五次了？？？我统计错了？？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
