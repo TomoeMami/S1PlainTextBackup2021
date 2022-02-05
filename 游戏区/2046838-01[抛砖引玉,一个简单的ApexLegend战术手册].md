@@ -1464,3 +1464,21 @@ re45落地神枪，莫桑比克现在比EVA8强，3030准起来就不说了，�
 
 新赛季大概会是汗洛/小帮手+R99/獒犬/CAR了，当然如果能拿到301那最好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hshiki  
+##### 83#       发表于 2022-2-5 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553595&amp;ptid=2046838" target="_blank">dave606 发表于 2022-2-5 05:49</a>
+
+手柄现在玩着最舒服的就是car 加小帮手了
+
+虽然基本来什么用什么。
+
+这改动的问题最大的是能量武器废了吧， ...</blockquote>
+数据挖掘出一把能量手枪，不知道为什么这个赛季没放出来
+
+我感觉涡轮太影响能量武器体系，迟早要被重做或者整合，快速上弹金配件那种程度就刚刚好，有没有差别不太大
+

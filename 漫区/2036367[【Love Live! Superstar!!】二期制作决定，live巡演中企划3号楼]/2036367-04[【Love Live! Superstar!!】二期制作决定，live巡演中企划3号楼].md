@@ -6779,3 +6779,15 @@ City:中国・上海</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  Enakina  
+##### 5053#       发表于 2022-2-5 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554891&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-02-05 11:36:33</a>
+我觉得吧声优比起天赋努力占比更大，相反歌手对比努力天赋占比更大。如果鲤鱼有打铁那副嗓子，估摸着大家也 ...</blockquote>换种想法不也挺励志的吗，也是从无到有自己努力来的。倒是小百合，企划出道就是天才素人，天籁之音，各种buff给拉满了，人气也是高得离谱，甚至有反哺kanon的感觉了，都高到5厕有一些逆反心理了，天天爱拿她钓鱼。可以等个个人出道，肯定无比风光，出道单初动破万不是梦（误）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
