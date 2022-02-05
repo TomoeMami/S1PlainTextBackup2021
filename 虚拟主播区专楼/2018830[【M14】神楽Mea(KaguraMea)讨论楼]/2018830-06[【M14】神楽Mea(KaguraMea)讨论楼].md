@@ -7998,3 +7998,12 @@ emmmmmmm
 
 虽然这些年经历了那么多大风大浪，但是这种细小的绝望mea还是体会的少了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cortana  
+##### 8423#       发表于 2022-2-5 22:52
+
+有一说一，还是挺想看她躺地上打滚撒泼的，像是在发脾气，又像在撒娇，充满了女友感。
+
