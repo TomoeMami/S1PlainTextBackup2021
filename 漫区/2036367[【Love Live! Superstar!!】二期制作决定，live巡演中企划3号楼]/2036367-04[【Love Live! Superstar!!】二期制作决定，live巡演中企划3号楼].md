@@ -6725,3 +6725,35 @@ City:中国・上海</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  秋月艾莉  
+##### 5049#       发表于 2022-2-5 10:21
+
+没记错的话，去horipro官网按标签筛人，可以在偶像、模特、歌手那里筛出来
+
+但就是没有声优hhhhhh
+
+*****
+
+####  lj205  
+##### 5050#       发表于 2022-2-5 10:32
+
+<img src="https://img.saraba1st.com/forum/202202/05/103152utlnnmh8ln39rtn1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A848FDBF-C001-454D-BDEC-830A50EF9581.jpeg</strong> (167.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 10:31 上传
+
+<img src="https://img.saraba1st.com/forum/202202/05/103153kpe855hopzm5k0o8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>516D58D4-E022-4C94-AAC4-025AAE9C805D.jpeg</strong> (181.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 10:31 上传
+

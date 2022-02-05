@@ -1331,3 +1331,12 @@ mumei比游戏吓人xd
 死鲨新歌好棒 这MV有请动画制作组了吧</blockquote>
 是一个人  推特kaynimatic 看履历参加过不少日本动画的原画 可能是个外包啥的
 
+
+
+*****
+
+####  shimmy1996  
+##### 1623#       发表于 2022-2-5 10:26
+
+Guramei apex 三轮车！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -7365,3 +7365,20 @@ zsyl，vcp企划内容微相关（看来立本挺喜欢在年末、年初搞瀑�
 三过白金而不入，主播的辅助还是再练练吧。一到晋级赛第五把，就不敢选上单证明自己……你的辅助能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经不是上单证不证明自己的问题了 她波比现在胜率趋近于5050 就是没有左右对局天平的能力了 所以这个晋级赛就完全看运气
 
+
+
+*****
+
+####  我单推副会长  
+##### 8346#       发表于 2022-2-5 10:32
+
+ 本帖最后由 我单推副会长 于 2022-2-5 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554292&amp;ptid=2018830" target="_blank">ashero 发表于 2022-2-5 10:19</a>
+
+已经不是上单证不证明自己的问题了 她波比现在胜率趋近于5050 就是没有左右对局天平的能力了 所以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">……s2022总体波比87场，60%胜率，最近19场有11场波比7胜4负……波比胜率64%，已经不错了。
+
+选波比确实可能没有太左右对局天平的能力……但是她选辅助尤其选露露的时候可太有决定能力了，打团空蓝等于少个人。就算要消除不稳定因素，她也该玩波比啊。
+
+搞笑的是，对面抢了波比的情况下，她会选蛤蟆，配合打野疯狂欺负波比。蛤蟆开团抗伤配合gank也比波比方便多了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
