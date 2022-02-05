@@ -6794,3 +6794,14 @@ O这种再扎也免疫不了的才有点搞头，而且实际几家也都在做�
 
 耶耶，今年疫情就结束了，这是最后一个疫情寒冬！
 
+
+
+*****
+
+####  lazyboy  
+##### 3539#       发表于 2022-2-5 10:49
+
+吹得天花乱坠能针对不同毒株快速调整设计的MRNA技术对omicron没有卵用<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
