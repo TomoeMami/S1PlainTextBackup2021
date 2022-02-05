@@ -7962,3 +7962,30 @@ emmmmmmm
 
 阿咩：压力⬆️⬆️⬆️⬆️
 
+
+
+*****
+
+####  十九号大侠  
+##### 8419#       发表于 2022-2-5 21:02
+
+哈哈哈，笑
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 8420#       发表于 2022-2-5 21:04
+
+实在不行求大天使带一带
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 8421#       发表于 2022-2-5 21:12
+
+大亏算了吧 都多久没打了 恐怕以后都不会见到她上lol了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
