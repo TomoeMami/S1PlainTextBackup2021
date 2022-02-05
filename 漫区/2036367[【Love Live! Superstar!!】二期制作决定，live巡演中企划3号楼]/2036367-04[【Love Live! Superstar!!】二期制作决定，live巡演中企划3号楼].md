@@ -6903,3 +6903,26 @@ City:中国・上海</blockquote>
 
 Nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 5065#       发表于 2022-2-5 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54561839&amp;ptid=2036367" target="_blank">stygian 发表于 2022-02-05 23:00:07</a>
+事务所可是horipro你们眼界放开点，只要她自己乐意捧个令和陈美龄不是问题</blockquote>没那么夸张吧，horipro是牛逼，但horipro international能动用的资源肯定没那么多吧，但估计也能沾沾本社的光吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cqc1021  
+##### 5066#       发表于 2022-2-6 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541553&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-2-4 11:28</a>
+没有人觉得鲤鱼像西野七濑吗</blockquote>
+其实是像渡边理佐
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
