@@ -218,3 +218,37 @@ APEX配信者強さ格付け
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最喜欢虹男集美的一句发言“nijisanji是什么”
 
+
+
+*****
+
+####  free  
+##### 10518#       发表于 2022-2-5 18:40
+
+这个“Blast Project”是啥？彩虹搞的新项目吗
+[https://twitter.com/blastpj](https://twitter.com/blastpj)
+[https://www.blastpj.com/audition](https://www.blastpj.com/audition)
+
+【#Vtuberオーディション】
+
+「Blast Project」はゲーム実況を中心に活動するVtuberグループです。
+
+初期メンバーの、
+
+キルシュトルテ 
+
+@Kirschtort3
+
+ミトゥン 
+
+@_d_r_u_m_
+
+に続く新規メンバーを募集しています。
+
+ご応募は下記HPからお願いします。
+[https://blastpj.com/audition](https://blastpj.com/audition)
+
+企画:いわなが 
+
+@iwataiki
+
