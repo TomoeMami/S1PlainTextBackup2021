@@ -6679,3 +6679,14 @@ A店怎么选的照片……<img src="https://static.saraba1st.com/image/smiley/
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 5046#       发表于 2022-2-5 08:46
+
+说鲤鱼现在配可可是玩票不太对吧？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就比较好奇事务所对鲤鱼的定位，是歌手嘛但是又出写真，可是写真又一点都不露，写着cos呢却暂时没有这方面的安排。
+我是比较希望她以后能接到国民番就更好，多几个长期饭票，不过这个也不是想想就有的，很多时候也看运气了
+
