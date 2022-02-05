@@ -7919,3 +7919,21 @@ emmmmmmm
 
 也就现在有偶像包袱了，放几年前，已经在表演砸桌，拆楼，怒吼，崩溃了，都是一等一的节目效果。这白金真的是个坎。
 
+
+
+*****
+
+####  T_Hb  
+##### 8414#       发表于 2022-2-5 20:05
+
+ 本帖最后由 T_Hb 于 2022-2-5 20:06 编辑 
+
+有没有可能节目效果才是演的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在属于是不想演了
+
+*****
+
+####  我单推副会长  
+##### 8415#       发表于 2022-2-5 20:19
+
+不存在的，lol主播破防算是常态了，随便搜搜都有一堆直播破防的。人在绷不住的时候确实是绷不住的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
