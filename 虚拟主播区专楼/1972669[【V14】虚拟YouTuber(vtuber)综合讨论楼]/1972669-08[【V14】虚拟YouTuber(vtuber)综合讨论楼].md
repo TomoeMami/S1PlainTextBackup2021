@@ -337,3 +337,17 @@ Valera Kitsu发布这篇文章的诉求是希望ML解散，Shel道歉并付清�
 
 不如说他从出道到现在什么时候演过，我看迟早撕皮跑路
 
+
+
+*****
+
+####  rzrbtk  
+##### 10525#       发表于 2022-2-6 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54547943&amp;ptid=1972669" target="_blank">zerouuz 发表于 2022-2-4 20:42</a>
+
+生病了？</blockquote>
+没有没有，郡郡打麻心态崩删直播我感叹一句罢了。
+
+省一楼，感觉最近这个派派潮流又回来了是怎么回事，郡郡都开始玩儿诶（也许是为了逃避麻将）
+
