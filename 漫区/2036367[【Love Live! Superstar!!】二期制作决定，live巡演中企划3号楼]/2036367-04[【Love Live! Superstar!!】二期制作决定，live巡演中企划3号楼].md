@@ -6983,3 +6983,14 @@ Lantis EXPO广播鲤鱼出演，一个人的广播，日语水平进步真快<im
 
 都10天了，岬还是一点消息都没吗？
 
+
+
+*****
+
+####  player3960  
+##### 5072#       发表于 2022-2-6 13:38
+
+Nako什么时候能报个平安啊，这都一个星期没动静了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
