@@ -8231,3 +8231,12 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实可以让白白来文静房间直接贴贴唱歌
 
+
+
+*****
+
+####  伞沢直美  
+##### 5364#       发表于 2022-2-6 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝直播间bgm一直很雅，导致我起床失败已经半小时了
+
