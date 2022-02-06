@@ -8738,3 +8738,14 @@ tv加强版对受众来说不就是最高的赞美了吗，总不能一个完结
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">另外我怎么找了几个资源站都没搜到总集篇的资源。。
 
+
+
+*****
+
+####  TTAA  
+##### 659#       发表于 2022-2-6 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54532721&amp;ptid=2043629" target="_blank">堆雪若叶 发表于 2022-2-3 16:43</a>
+看了下宝冢100周年的大运动会，发现宣誓时喊的是校训清正美（清く 正しく 美しく），是不是真昼宣誓喊的“ ...</blockquote>
+我以为是来自公主q娃变身后最后的唱名，公主q娃那个强 温柔 美好像是，就中间的那个不同。不过照楼主你这么一说搞不好公主q娃的其实也是来自宝冢
+
