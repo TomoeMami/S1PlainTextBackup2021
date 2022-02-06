@@ -6944,3 +6944,16 @@ Nagi之前说她手机的home键都已经按爆了(好像是iPhone8来着
 
 主要是配音这块再怎么样需求还是大，国内声优市场也还没成熟，鲤鱼真往歌手走两边都难。作为国内拉拉人不推她也支持了两张，但后面没有了热度加持只能看她造化了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 5069#       发表于 2022-2-6 10:15
+
+，
+
+ 本帖最后由 cat1230 于 2022-2-6 10:16 编辑 
+
+Lantis EXPO广播鲤鱼出演，一个人的广播，日语水平进步真快<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
