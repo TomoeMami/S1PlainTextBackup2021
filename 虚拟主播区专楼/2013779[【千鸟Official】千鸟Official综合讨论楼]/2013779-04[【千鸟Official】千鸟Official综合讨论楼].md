@@ -8152,3 +8152,91 @@ co宝过个年像毕业一样<img src="https://static.saraba1st.com/image/smiley
 
 文静 你这个jj毒唯的丑态<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伞沢直美  
+##### 5355#       发表于 2022-2-4 11:12
+
+静子气味杂谈最终回
+
+
+
+*****
+
+####  夜潇箫  
+##### 5356#       发表于 2022-2-4 11:51
+
+文静身上会是什么味道呢<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伞沢直美  
+##### 5357#       发表于 2022-2-4 12:11
+
+我超，白！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  suzumiya123  
+##### 5358#       发表于 2022-2-4 12:36
+
+屎尿屁最终回是吧
+
+
+
+*****
+
+####  Wen749  
+##### 5359#       发表于 2022-2-4 13:09
+
+润了，受不了文静 zqsg的声线
+
+
+
+*****
+
+####  rgauss  
+##### 5360#       发表于 2022-2-4 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今晚我也弄的番茄炒🍅，我跟思思贴贴
+
+
+
+*****
+
+####  Quark  
+##### 5361#       发表于 2022-2-4 23:24
+
+想摆烂了 合唱歌会下次再投吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  H2Ofrozen  
+##### 5362#       发表于 2022-2-5 21:51
+
+今天这歌回不是挺好的嘛
+
+
+
+*****
+
+####  rgauss  
+##### 5363#       发表于 2022-2-5 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">其实可以让白白来文静房间直接贴贴唱歌
+
+
+
+*****
+
+####  伞沢直美  
+##### 5364#       发表于 2022-2-6 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">co宝直播间bgm一直很雅，导致我起床失败已经半小时了
+

@@ -3893,3 +3893,1328 @@ wow
 
 一年远离s1，使我变身萌萌人，已经记不起阿夸的黑料了。
 
+
+
+*****
+
+####  nian1538  
+##### 7952#       发表于 2022-2-4 14:03
+
+ 本帖最后由 nian1538 于 2022-2-4 14:09 编辑 
+
+3点
+
+6号周日耐久
+
+打2个小时就到晚高峰了，应该不会太久
+
+
+
+*****
+
+####  大厨麦当牛  
+##### 7953#       发表于 2022-2-4 14:29
+
+<blockquote>erer 发表于 2022-2-4 03:59
+一年远离s1，使我变身萌萌人，已经记不起阿夸的黑料了。</blockquote>
+夸夸有什么黑料？被咩阿扇屁股喊爽吗？
+
+
+
+*****
+
+####  andeloz  
+##### 7954#       发表于 2022-2-4 15:03
+
+昨天没看 现在多少分了
+
+*****
+
+####  面具13  
+##### 7955#       发表于 2022-2-4 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54543658&amp;ptid=1947500" target="_blank">andeloz 发表于 2022-2-4 15:03</a>
+
+昨天没看 现在多少分了</blockquote>
+现在差一些钻2升钻1，9190。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| andeloz| + 1|好评加鹅 虽然刚刚也看到了|
+
+查看全部评分
+
+*****
+
+####  aisakahammer  
+##### 7956#       发表于 2022-2-4 15:09
+
+800 分微妙的不远啊 祝阿夸这赛季上大师成功啊
+
+*****
+
+####  nian1538  
+##### 7957#       发表于 2022-2-4 15:16
+
+希望这把的crew是个正常人
+
+*****
+
+####  面具13  
+##### 7958#       发表于 2022-2-4 15:20
+
+说来sui酱最近在看夸宝apex啊，还发那个lovelove的歌词
+
+
+
+*****
+
+####  面具13  
+##### 7959#       发表于 2022-2-4 15:26
+
+队友不错啊。开局是不是发了个honmono
+
+*****
+
+####  erer  
+##### 7960#       发表于 2022-2-4 15:29
+
+天秀开局！爱了爱了。
+
+*****
+
+####  越动天下  
+##### 7961#       发表于 2022-2-4 15:30
+
+ 本帖最后由 越动天下 于 2022-2-4 15:31 编辑 
+
+上来就手感火热呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有不到600分了
+
+*****
+
+####  离魂仙  
+##### 7962#       发表于 2022-2-4 15:31
+
+现在下播还来得及保分（
+
+*****
+
+####  andeloz  
+##### 7963#       发表于 2022-2-4 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了不想奶了
+
+*****
+
+####  面具13  
+##### 7964#       发表于 2022-2-4 15:33
+
+现在在想着吃三个满分鸡上大师的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 担心周日的耐久办不了。
+
+好飘啊，接下来给你直接安排俯冲到7200<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 7965#       发表于 2022-2-4 15:36
+
+这种垃圾loot还全是人，这把不好打啊
+
+
+
+*****
+
+####  面具13  
+##### 7966#       发表于 2022-2-4 15:41
+
+队友恶灵nice啊
+
+*****
+
+####  erer  
+##### 7967#       发表于 2022-2-4 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是吃了大力吗？我已经看不懂了。 
+
+syl 阳间队友真的好棒
+
+*****
+
+####  nian1538  
+##### 7968#       发表于 2022-2-4 15:47
+
+刚才那波躲子弹什么黑客帝国
+
+还是说对面的枪太马
+
+*****
+
+####  面具13  
+##### 7969#       发表于 2022-2-4 15:51
+
+飘了飘了，1人直接冲三人队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 7970#       发表于 2022-2-4 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上大分咯咯
+
+*****
+
+####  越动天下  
+##### 7971#       发表于 2022-2-4 15:53
+
+怎么回事 感觉手感火热了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还有451分
+
+*****
+
+####  面具13  
+##### 7972#       发表于 2022-2-4 15:53
+
+这不得给恶灵滑跪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 7973#       发表于 2022-2-4 15:53
+
+ 本帖最后由 梅斯之围 于 2022-2-4 15:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">强行给自己加难度是吧，嬉皮笑脸的，这把没吃鸡不是你全责？
+
+*****
+
+####  星の守  
+##### 7974#       发表于 2022-2-4 15:55
+
+这人飘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 7975#       发表于 2022-2-4 15:55
+
+推特作法
+
+*****
+
+####  バーチャルS1er  
+##### 7976#       发表于 2022-2-4 15:56
+
+FLAG起来了，要下大分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 7977#       发表于 2022-2-4 15:57
+
+现在在整什么？
+
+*****
+
+####  猫南北  
+##### 7978#       发表于 2022-2-4 15:57
+
+楼友太乐。笑嘻了~
+
+*****
+
+####  越动天下  
+##### 7979#       发表于 2022-2-4 15:58
+
+用了死神的歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 别立flag了 没上就搞笑了
+
+*****
+
+####  离魂仙  
+##### 7980#       发表于 2022-2-4 15:58
+
+这集锦你花钱外包的吧！
+
+
+
+*****
+
+####  nian1538  
+##### 7981#       发表于 2022-2-4 15:59
+
+喷了，等下看看推特谁认领一下这个PV
+
+*****
+
+####  FCCHua  
+##### 7982#       发表于 2022-2-4 16:00
+
+虽然应该没可能，但还是希望看到她能去参加参加比赛
+
+
+
+*****
+
+####  面具13  
+##### 7983#       发表于 2022-2-4 16:00
+
+BUFF满了，该下分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星の守  
+##### 7984#       发表于 2022-2-4 16:01
+
+认真下分开始（<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 7985#       发表于 2022-2-4 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开启丢人模式
+
+*****
+
+####  越动天下  
+##### 7986#       发表于 2022-2-4 16:10
+
+掉分从现在开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  猫南北  
+##### 7987#       发表于 2022-2-4 16:11
+
+控分了！每次攻击别队都有第三队在默默等候。
+
+*****
+
+####  面具13  
+##### 7988#       发表于 2022-2-4 16:11
+
+单排7200之路开始了！
+
+*****
+
+####  andeloz  
+##### 7989#       发表于 2022-2-4 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坏起来了
+
+*****
+
+####  猫南北  
+##### 7990#       发表于 2022-2-4 16:19
+
+4杀1助攻，还剩18队。
+
+*****
+
+####  erer  
+##### 7991#       发表于 2022-2-4 16:19
+
+呜呜呜 她太爱队友了。这人咋回事啊？
+
+
+
+*****
+
+####  梅斯之围  
+##### 7992#       发表于 2022-2-4 16:22
+
+已经跑不掉，对面辛烷扔跳板了她一个地平线咋跑
+
+*****
+
+####  erer  
+##### 7993#       发表于 2022-2-4 16:23
+
+会不会有点太激烈了，怎么每局都在落地打架、
+
+*****
+
+####  バーチャルS1er  
+##### 7994#       发表于 2022-2-4 16:25
+
+这把PK很神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 7995#       发表于 2022-2-4 16:25
+
+“你为什么不捡队友牌子！“<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 7996#       发表于 2022-2-4 16:25
+
+落地都是几队在混战。
+
+*****
+
+####  面具13  
+##### 7997#       发表于 2022-2-4 16:27
+
+rp守恒定律
+
+*****
+
+####  Maonpuyo  
+##### 7998#       发表于 2022-2-4 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">右上角奇怪的图标若隐若现，到点了
+
+*****
+
+####  nian1538  
+##### 7999#       发表于 2022-2-4 16:40
+
+这操作也太脑溢血了，还好有个恶灵
+
+
+
+*****
+
+####  越动天下  
+##### 8000#       发表于 2022-2-4 16:45
+
+额
+
+*****
+
+####  erer  
+##### 8001#       发表于 2022-2-4 16:45
+
+起码是正分
+
+*****
+
+####  erer  
+##### 8002#       发表于 2022-2-4 16:45
+
+ 本帖最后由 erer 于 2022-2-4 16:47 编辑 
+
+卡了 卡了
+
+*****
+
+####  面具13  
+##### 8003#       发表于 2022-2-4 16:52
+
+抽到不错的队友了
+
+*****
+
+####  nian1538  
+##### 8004#       发表于 2022-2-4 16:57
+
+该下播了
+
+
+
+*****
+
+####  面具13  
+##### 8005#       发表于 2022-2-4 17:13
+
+钻1是差不多会被排进猎杀带了
+
+*****
+
+####  面具13  
+##### 8006#       发表于 2022-2-4 17:16
+
+丢包标志常驻，差不多该下播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  andeloz  
+##### 8007#       发表于 2022-2-4 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还可以这样啊
+
+*****
+
+####  nian1538  
+##### 8008#       发表于 2022-2-4 17:32
+
+这种地方居然也可以苟，长见识了
+
+*****
+
+####  面具13  
+##### 8009#       发表于 2022-2-4 17:37
+
+分数反复横跳，能无限播下去
+
+
+
+*****
+
+####  面具13  
+##### 8010#       发表于 2022-2-4 17:42
+
+想趁好就收，不过要再来亿把。
+
+
+
+*****
+
+####  erer  
+##### 8011#       发表于 2022-2-4 17:54
+
+美滋滋上分局
+
+*****
+
+####  面具13  
+##### 8012#       发表于 2022-2-4 17:55
+
+偷屁股偷爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andeloz  
+##### 8013#       发表于 2022-2-4 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了 甲没了
+
+*****
+
+####  猫南北  
+##### 8014#       发表于 2022-2-4 17:57
+
+哈哈哈，这一波天秀~
+
+*****
+
+####  面具13  
+##### 8015#       发表于 2022-2-4 17:58
+
+红甲被偷了，节目效果无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nian1538  
+##### 8016#       发表于 2022-2-4 17:58
+
+一直在想的剧本居然真的发生了
+
+还好弄了个紫甲回来不然没法打了
+
+*****
+
+####  越动天下  
+##### 8017#       发表于 2022-2-4 17:58
+
+这个甲被拿走我是真的没绷住
+
+*****
+
+####  egged5  
+##### 8018#       发表于 2022-2-4 17:58
+
+她太团队了，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  erer  
+##### 8019#       发表于 2022-2-4 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">卧槽。孩子太强了！！！
+
+*****
+
+####  面具13  
+##### 8020#       发表于 2022-2-4 18:01
+
+卧槽，像个战神
+
+*****
+
+####  越动天下  
+##### 8021#       发表于 2022-2-4 18:01
+
+拉满 牛
+
+<img src="https://img.saraba1st.com/forum/202202/04/180131roii77giqod6qoco.png" referrerpolicy="no-referrer">
+
+<strong>DFK)CWWM82~5PA)E`M}6T.png</strong> (97.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 18:01 上传
+
+*****
+
+####  面具13  
+##### 8022#       发表于 2022-2-4 18:02
+
+还想着三连鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8023#       发表于 2022-2-4 18:02
+
+我的评价是 该喊起2年前的口号了 湊あくあ最強！湊あくあ最強！湊あくあ最強！
+
+*****
+
+####  新磕娘  
+##### 8024#       发表于 2022-2-4 18:07
+
+刚刚那局属实是好素材，笑点爆点样样都有
+
+*****
+
+####  越动天下  
+##### 8025#       发表于 2022-2-4 18:19
+
+队友可以
+
+
+
+*****
+
+####  越动天下  
+##### 8026#       发表于 2022-2-4 18:34
+
+这凭什么打呀
+
+*****
+
+####  erer  
+##### 8027#       发表于 2022-2-4 18:34
+
+好莽啊。
+
+*****
+
+####  _Ra1nMaker  
+##### 8028#       发表于 2022-2-4 18:35
+
+这波看不懂，怎么就冲对面基地了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8029#       发表于 2022-2-4 18:35
+
+ 本帖最后由 面具13 于 2022-2-4 18:36 编辑 
+
+最后的操作有点蠢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 为了吃对面亡灵大招进去1v3
+
+*****
+
+####  猫南北  
+##### 8030#       发表于 2022-2-4 18:35
+
+今天很顺利，3小时上了600分了。
+
+*****
+
+####  nian1538  
+##### 8031#       发表于 2022-2-4 18:37
+
+已经该考虑SC内容写什么了
+
+
+
+*****
+
+####  面具13  
+##### 8032#       发表于 2022-2-4 18:45
+
+这队友能c啊，能跟上就有
+
+*****
+
+####  erer  
+##### 8033#       发表于 2022-2-4 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是。你们是猎杀队吗？ 怎么一直找人打啊
+
+*****
+
+####  猫南北  
+##### 8034#       发表于 2022-2-4 18:46
+
+这局队友真猛~
+
+*****
+
+####  erer  
+##### 8035#       发表于 2022-2-4 18:48
+
+是锁子哥，草
+
+*****
+
+####  nowaki  
+##### 8036#       发表于 2022-2-4 18:48
+
+已经在写sc了
+
+*****
+
+####  _Ra1nMaker  
+##### 8037#       发表于 2022-2-4 18:48
+
+原来是发现队友是挂所以去送了吗，夸夸她真的 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 8038#       发表于 2022-2-4 18:48
+
+淦，难怪那么猛。
+
+*****
+
+####  面具13  
+##### 8039#       发表于 2022-2-4 18:49
+
+草，是大哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 8040#       发表于 2022-2-4 18:49
+
+欢乐欢乐 
+
+
+
+*****
+
+####  バーチャルS1er  
+##### 8041#       发表于 2022-2-4 18:50
+
+懂了这是怀疑队友故意送死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8042#       发表于 2022-2-4 18:50
+
+泪目了，锁子哥送的分，夸宝不屑的。
+
+*****
+
+####  面具13  
+##### 8043#       发表于 2022-2-4 18:51
+
+还好死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不然被大哥带上大师也太难受了
+
+
+
+*****
+
+####  面具13  
+##### 8044#       发表于 2022-2-4 19:02
+
+ 本帖最后由 面具13 于 2022-2-4 19:05 编辑 
+
+湊あくあ最強卍。队友是真正的阴角恶灵，能融入环境不被敌人察觉
+
+*****
+
+####  黑暗贴贴  
+##### 8045#       发表于 2022-2-4 19:09
+
+笑死了，一百个人经过
+
+*****
+
+####  バーチャルS1er  
+##### 8046#       发表于 2022-2-4 19:11
+
+这把有个猎杀尾气队友，稳了稳了（奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 8047#       发表于 2022-2-4 19:16
+
+选恶灵强行延长直播时间是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8048#       发表于 2022-2-4 19:19
+
+战犯哒！
+
+
+
+*****
+
+####  バーチャルS1er  
+##### 8049#       发表于 2022-2-4 19:20
+
+懂了这把是不爽队友猎杀尾气故意送死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新磕娘  
+##### 8050#       发表于 2022-2-4 19:21
+
+开始控分了，上大师要狠狠捞一笔，不能这么草率
+
+*****
+
+####  面具13  
+##### 8051#       发表于 2022-2-4 19:21
+
+还是用你的地平线吧
+
+*****
+
+####  猫南北  
+##### 8052#       发表于 2022-2-4 19:23
+
+怎么开始用恶灵了， 上分意愿不够强啊~
+
+*****
+
+####  バーチャルS1er  
+##### 8053#       发表于 2022-2-4 19:23
+
+悲报：红牛公司经常定期性送红牛给你夸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  egged5  
+##### 8054#       发表于 2022-2-4 19:38
+
+涨了快一万同接，恐怖
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  离魂仙  
+##### 8055#       发表于 2022-2-4 19:40
+
+我超上了，牛逼啊我超
+
+*****
+
+####  星の守  
+##### 8056#       发表于 2022-2-4 19:41
+
+上了啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+*****
+
+####  猫南北  
+##### 8057#       发表于 2022-2-4 19:42
+
+我错了，我错了，我错了。 啊夸最强！！！！！！！！！
+
+*****
+
+####  erer  
+##### 8058#       发表于 2022-2-4 19:42
+
+她做到了！
+
+*****
+
+####  越动天下  
+##### 8059#       发表于 2022-2-4 19:42
+
+大师大师 
+
+*****
+
+####  andeloz  
+##### 8060#       发表于 2022-2-4 19:42
+
+终于！
+
+*****
+
+####  egged5  
+##### 8061#       发表于 2022-2-4 19:42
+
+牛逼
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  IDIDIDID  
+##### 8062#       发表于 2022-2-4 19:43
+
+卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍卍湊アクア最強卍
+
+*****
+
+####  lhawp  
+##### 8063#       发表于 2022-2-4 19:43
+
+nb啊
+
+*****
+
+####  面具13  
+##### 8064#       发表于 2022-2-4 19:43
+
+打脸王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8065#       发表于 2022-2-4 19:43
+
+我为10天前天真而愚蠢的我向夸大师道歉！
+
+*****
+
+####  pissaqua  
+##### 8066#       发表于 2022-2-4 19:44
+
+泪目
+
+*****
+
+####  zpy393  
+##### 8067#       发表于 2022-2-4 19:44
+
+草，太爽了
+
+*****
+
+####  越动天下  
+##### 8068#       发表于 2022-2-4 19:44
+
+真的王者归来 最后一把吃鸡加上大师加5万同接
+
+*****
+
+####  andeloz  
+##### 8069#       发表于 2022-2-4 19:45
+
+哭哭了 我也要哭哭了 我这边熬到快四点
+
+*****
+
+####  shiroslime  
+##### 8070#       发表于 2022-2-4 19:46
+
+牛啊
+
+
+
+*****
+
+####  nian1538  
+##### 8071#       发表于 2022-2-4 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 8072#       发表于 2022-2-4 19:46
+
+湊あくあ最強卍
+
+*****
+
+####  新磕娘  
+##### 8073#       发表于 2022-2-4 19:47
+
+今天状态怎么这么好，钻1局乱杀，感觉下分的局都像是故意送的，难道夸大师已经强到可以在钻石局控分了吗
+
+*****
+
+####  deadinside666  
+##### 8074#       发表于 2022-2-4 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8075#       发表于 2022-2-4 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">她还是这么爱在达成目标后哭，好像什么都没有变。
+
+*****
+
+####  面具13  
+##### 8076#       发表于 2022-2-4 19:49
+
+主人公体质。一下午吃了多少个鸡啊
+
+*****
+
+####  nian1538  
+##### 8077#       发表于 2022-2-4 19:49
+
+あくシオはある！！！！！
+
+*****
+
+####  erer  
+##### 8078#       发表于 2022-2-4 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">但是我开始担心了，夸都大师了，那么接下来能玩的游戏不会只有mc了吧？？？？？我会窒息的。
+
+*****
+
+####  面具13  
+##### 8079#       发表于 2022-2-4 19:52
+
+あくシオはある！！！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新磕娘  
+##### 8080#       发表于 2022-2-4 19:53
+
+玩上瘾了hhh，大师局狠狠的吃瘪吧
+
+*****
+
+####  星の守  
+##### 8081#       发表于 2022-2-4 19:54
+
+一年之后她终于做到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天天座理世  
+##### 8082#       发表于 2022-2-4 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说她坐牢上不去是没客户端吧，就她这次刚开播白金段这近战跟枪和身法就知道大师随便上了，只要还是保持这打法不漏尿。
+
+
+
+*****
+
+####  大厨麦当牛  
+##### 8083#       发表于 2022-2-4 20:02
+
+夸神牛逼夸神牛逼夸神牛逼大亏哥你永远是我大哥！
+
+*****
+
+####  fangjun96  
+##### 8084#       发表于 2022-2-4 20:05
+
+开始有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">夸哥一向都很实，哎，又想起那个闪闪发光的她啊
+
+*****
+
+####  星の守  
+##### 8085#       发表于 2022-2-4 20:05
+
+ 本帖最后由 星の守 于 2022-2-4 20:09 编辑 
+
+甚至在大师段能加分<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8086#       发表于 2022-2-4 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">救命啊，大粪曲，污染耳朵来了。
+
+*****
+
+####  面具13  
+##### 8087#       发表于 2022-2-4 20:12
+
+ 本帖最后由 面具13 于 2022-2-4 20:14 编辑 
+
+想起当初单排上钻后直接被暴打。现在说不定有机会不当10000守门员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喝红牛算不算兴奋剂啊
+
+*****
+
+####  egged5  
+##### 8088#       发表于 2022-2-4 20:13
+
+这把分又吃满了，牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  濡鸦之羽_  
+##### 8089#       发表于 2022-2-4 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/175.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  离魂仙  
+##### 8090#       发表于 2022-2-4 20:14
+
+两个人就是霹雳Q娃，人少一个反而打得像组排
+
+真的假的卧槽
+
+*****
+
+####  面具13  
+##### 8091#       发表于 2022-2-4 20:15
+
+大师局两人吃鸡<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erer  
+##### 8092#       发表于 2022-2-4 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 8093#       发表于 2022-2-4 20:15
+
+这都行吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/04/201607kwxwwczx9xwe6ses.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 20:16 上传
+
+*****
+
+####  wwddrte  
+##### 8094#       发表于 2022-2-4 20:15
+
+这就是阿夸真正的实力吗，太强了
+
+*****
+
+####  星の守  
+##### 8095#       发表于 2022-2-4 20:15
+
+甚至还吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  egged5  
+##### 8096#       发表于 2022-2-4 20:16
+
+要不考虑一下，单排上个猎杀?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  andeloz  
+##### 8097#       发表于 2022-2-4 20:16
+
+上大分咯
+
+*****
+
+####  pissaqua  
+##### 8098#       发表于 2022-2-4 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫南北  
+##### 8099#       发表于 2022-2-4 20:17
+
+实力解放。太强了叭~
+
+*****
+
+####  zpy393  
+##### 8100#       发表于 2022-2-4 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我不是很好  
+##### 8101#       发表于 2022-2-4 20:19
+
+压力没了。心态好了
+
+*****
+
+####  离魂仙  
+##### 8102#       发表于 2022-2-4 20:19
+
+“あくアン还有什么屁话赶紧说”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别打扰夸大师Q去收人头哦
+
+
+
+*****
+
+####  andeloz  
+##### 8103#       发表于 2022-2-4 20:20
+
+草 还有ED
+
+*****
+
+####  Maonpuyo  
+##### 8104#       发表于 2022-2-4 20:25
+
+无敌！
+
+*****
+
+####  面具13  
+##### 8105#       发表于 2022-2-4 20:27
+
+单排上了大师，获得半年免喷权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看得很爽啊。
+
+
+
+*****
+
+####  梅斯之围  
+##### 8106#       发表于 2022-2-4 20:41
+
+免喷（玩apex时限定）
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">闲话人可不会因为上了个大师就停嘴
+
+*****
+
+####  面具13  
+##### 8107#       发表于 2022-2-4 20:58
+
+看5ch有人猜平时小号其实打了一段时间大师段位了（还有职业哥双排教学），我觉得可能性挺大的
+
+*****
+
+####  nian1538  
+##### 8108#       发表于 2022-2-4 21:00
+
+Crew该开始做梦了啊
+
+比如说能不能把某些组合也给复活一下什么的
+
+
+
+*****
+
+####  越动天下  
+##### 8109#       发表于 2022-2-4 21:02
+
+肯定是哪个职业哥带了她 不然身法怎么练的出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Maonpuyo  
+##### 8110#       发表于 2022-2-4 21:07
+
+ 本帖最后由 Maonpuyo 于 2022-2-4 21:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被职业哥带过的人也不少了吧，真正练出来的有几个，打了几年开始被带现在还是被带，心安理得当花瓶
+
+*****
+
+####  mutoto  
+##### 8111#       发表于 2022-2-4 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我先踩一下，这赛季大师多的一逼，单排大师没有含金量。
+
+*****
+
+####  Maonpuyo  
+##### 8112#       发表于 2022-2-4 21:18
+
+一个提督就能换到的东西，确实没有含金量
+
+*****
+
+####  越动天下  
+##### 8113#       发表于 2022-2-4 21:18
+
+问就是没有含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zpy393  
+##### 8114#       发表于 2022-2-4 21:30
+
+本云玩家不知道什么含金量，直播看的爽就行了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 8115#       发表于 2022-2-4 21:31
+
+上补习班的年级第一没有含金量
+
+提问：👆说这种话的人成绩一般如何呢
+
+
+
+*****
+
+####  天天座理世  
+##### 8116#       发表于 2022-2-4 21:45
+
+她这种近战身法肯定找了人训练场对练
+
+*****
+
+####  天天座理世  
+##### 8117#       发表于 2022-2-4 21:45
+
+她这种近战身法肯定找了人训练场对练
+
+*****
+
+####  天天座理世  
+##### 8118#       发表于 2022-2-4 21:49
+
+她这种近战身法肯定找了人训练场对练
+
+
+
+*****
+
+####  梅斯之围  
+##### 8119#       发表于 2022-2-4 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这种时候的状态应该属于是对所有游戏都没兴趣，游戏民先歇着吧
+
+
+
+*****
+
+####  吃咸菜的  
+##### 8120#       发表于 2022-2-4 22:29
+
+楼里老哥能把这几天的a整个拿破仑段子吗？
+

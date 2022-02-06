@@ -17059,3 +17059,429 @@ syl
 
 房管有人格这不很正常么，只有JP信那套粉丝不能有自我的话术，不能在管人推上的对话里插回复也不知是哪来的规定，全世界就之见过JP实行这规矩，总之看看JP就算了，被那套规矩搞上脑了我是理解不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 10465#       发表于 2022-2-4 09:37
+
+我看到的房管都是和普通粉丝一样看直播看直播的，节奏就删掉了，也没必要说话。这不能说没人格吧？
+不过真有意思，虹en粉的第一次4V冲击了属于是
+
+
+
+*****
+
+####  Ryuuseigun  
+##### 10466#       发表于 2022-2-4 09:57
+
+笑死，不少女粉破防大喊rnm退钱了，毕竟刚过大年初一没多久<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ketestrait  
+##### 10467#       发表于 2022-2-4 10:07
+
+插播管人微相关11区新闻
+
+东京都修改紧急事态要请检讨标准，由原本的
+ <blockquote>医院<strong>病床使用率50%</strong></blockquote>
+更改为
+ <blockquote><strong>重症</strong>病床使用率或需要<strong>吸氧</strong>的患者率达到30%~40%
+
+且
+
+<strong>7日平均</strong>新增感染超过2万4千人</blockquote>
+同时满足以上两个条件才会判断是否紧急宣言（注：东京都连续两天日增超过2万，2月3日重症病床使用率为7.3%，7日平均新增感染为1万7千人）
+
+太好了，再也不用担心紧急事态宣言了，线下要搞，大搞，使劲搞！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  dybang  
+##### 10468#       发表于 2022-2-4 10:51
+
+luca这事太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">还以为你虹能强点，估计也管不了白皮
+
+
+
+*****
+
+####  winda  
+##### 10469#       发表于 2022-2-4 11:04
+
+<img src="https://img.saraba1st.com/forum/202202/04/110316usttntot2tp52wll.jpg" referrerpolicy="no-referrer">
+
+<strong>FJE8ScCaIAMH-3d.jpg</strong> (316.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 11:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然小千这扳手哥话多到被截图出来吐槽的地步了，但房管互动又不稀罕
+
+
+
+*****
+
+####  我不是很好  
+##### 10470#       发表于 2022-2-4 11:28
+
+多来点，反正你虹也放不下cn市场
+
+
+
+*****
+
+####  FCCHua  
+##### 10471#       发表于 2022-2-4 12:09
+
+姐姐不是99年的吗，哪里大龄了...
+
+
+
+*****
+
+####  free  
+##### 10472#       发表于 2022-2-4 12:41
+
+萌惠突然b限，艾琳一家好久没看了不知道咋样了
+
+
+
+*****
+
+####  fastary  
+##### 10473#       发表于 2022-2-4 13:47
+
+ 本帖最后由 fastary 于 2022-2-4 13:53 编辑 
+
+速报？luca为自己用lie这个词道歉了並补充说看过了没ban任何人，但是没下房管所以不少简中粉还是不满意<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以我才比较抗拒会参与聊天(也不是说不能人格化，主要是指话多喜欢刷存在感的那些)的房管啊，一旦管理出了问题又不好好沟通再加上主播无脑站房管就会激怒普通粉丝……<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+(当年瓜没有吃的很细，ybb是不是也是类似问题来着
+
+*****
+
+####  OldGlory  
+##### 10474#       发表于 2022-2-4 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542820&amp;ptid=1972669" target="_blank">fastary 发表于 2022-2-4 13:47</a>
+
+速报？luca为自己用lie这个词道歉了並补充说看过了没ban任何人，但是没下房管所以不少简中粉还是不满意[f:0 ...</blockquote>
+不是
+
+ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片当头像就开贴说这个事结果反而被海子姐骂有病吧
+
+
+
+*****
+
+####  fastary  
+##### 10475#       发表于 2022-2-4 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542915&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-2-4 13:55</a>
+
+不是
+
+ybb是贴吧的一个脆鲨发现海子姐的一个知名粉丝换了010照片当头像就开贴说这个事结果反而被海子姐骂有 ...</blockquote>
+那确实区别很大，不过没了解事情就护粉头这个中心思想倒是异曲同工……
+
+
+
+*****
+
+####  dybang  
+##### 10476#       发表于 2022-2-4 14:21
+
+也就这样了吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">房管真是要出道的也不好撤，但你虹就不给培训的么，道歉扯Chinese就是雷，要么房管就是🐸
+
+*****
+
+####  winda  
+##### 10477#       发表于 2022-2-4 14:32
+
+<img src="https://img.saraba1st.com/forum/202202/04/143201ej1jj7kiktw7tysi.jpg" referrerpolicy="no-referrer">
+
+<strong>unnamed.jpg</strong> (83.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/143208ptq8vqxgdtnmjqz8.jpg" referrerpolicy="no-referrer">
+
+<strong>unnamed (1).jpg</strong> (69.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/143214ls0vv0aqtaofspd1.jpg" referrerpolicy="no-referrer">
+
+<strong>unnamed (2).jpg</strong> (102.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/143221cq71rr10xzrmfzfx.png" referrerpolicy="no-referrer">
+
+<strong>unnamed.png</strong> (85.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 14:32 上传
+
+这回轮到彩虹的m@gic翻唱烧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 10478#       发表于 2022-2-4 14:39
+
+烧，都可以烧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fastary  
+##### 10479#       发表于 2022-2-4 14:46
+
+不过现在去看倒是已经改为正确名称并标注cover和原曲了，虽然没道歉
+
+*****
+
+####  fastary  
+##### 10480#       发表于 2022-2-4 14:46
+
+ 本帖最后由 fastary 于 2022-2-4 14:49 编辑 
+
+风怒编辑另外第一阵宣布的RD二月live也延期了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+我倒要看看enkr是先放弃大搞线下还是先溺死在线下梦里<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+话说第三阵消息怎么还没出，我还等着看enkr除了live和周边还有没有别的花样呢
+
+*****
+
+####  ヒトニナル  
+##### 10481#       发表于 2022-2-4 14:58
+
+所以没事别去翻唱偶像企划的歌，而且有一说一masterpiece和magic的确很特殊
+
+
+
+*****
+
+####  lkjh  
+##### 10482#       发表于 2022-2-4 17:00
+
+Luca刚道歉完 这会儿房管就开始拱火并且单开置顶提拆腻子 不得不怀疑是不是在和🐸打配合 真的太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+
+*****
+
+####  qwera3469  
+##### 10483#       发表于 2022-2-4 17:26
+
+简中粉丝已经要写邮件给虹说虹管教不力了
+
+*****
+
+####  aisakahammer  
+##### 10484#       发表于 2022-2-4 17:29
+
+<img src="https://img.saraba1st.com/forum/202202/04/172953o66n3in7v3n914n8.jpg" referrerpolicy="no-referrer">
+
+<strong>@25[EDWHDD@Z4KMV{1`JKK1.jpg</strong> (552.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 17:29 上传
+
+
+
+*****
+
+####  poipanchao  
+##### 10485#       发表于 2022-2-4 17:56
+
+堇今年24的样子吧，在fps选手里算大了
+
+相比大亏、bora、星川这几个20岁的
+
+
+
+*****
+
+####  FCCHua  
+##### 10486#       发表于 2022-2-4 18:05
+
+ 本帖最后由 FCCHua 于 2022-2-4 18:18 编辑 
+
+某种意义上来讲胡桃fps水平还在，年龄就不是问题
+syl 其他人我不确定，hnn的话确实是懒，能少一步绝不会多一步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  椎名mahuyo  
+##### 10487#       发表于 2022-2-4 19:12
+
+太子也准备退了？
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  IDIDIDID  
+##### 10488#       发表于 2022-2-4 19:44
+
+你圈又多了一个女大师
+
+*****
+
+####  poipanchao  
+##### 10489#       发表于 2022-2-4 19:56
+
+ 本帖最后由 poipanchao 于 2022-2-4 19:58 编辑 
+
+含金量！
+
+话说apex那几个大主播，比如哈弟，对未来都有些悲观
+
+大亏这波流量能不能救一下
+
+*****
+
+####  我不是很好  
+##### 10490#       发表于 2022-2-4 19:58
+
+不看apex。在女v里算什么水平？
+
+
+
+*****
+
+####  poipanchao  
+##### 10491#       发表于 2022-2-4 20:05
+
+首先小菜比咱们就不算了，比如噗nrk，一之濑之类的，单从这次单排大师的战斗力来看
+
+综合实力（包含选点、身法、枪力、指挥）上，应该是noah、qu、bora、大亏一个级别了，顶级枪女
+
+如果带队指挥的话noah强一点，单纯靶场solo的话大亏bora强一点
+
+*****
+
+####  IDIDIDID  
+##### 10492#       发表于 2022-2-4 20:10
+
+🙋‍打断一下插个话题：
+
+要说EN虹男在中国火得有多离谱的话，👇这个视频是很好的例子。一般来说过去两年这种斗虫视频都是杏奴自娱自乐，偶来来点火畜吹吹king，播放量也一般。但是EN虹男第一次上榜的这个视频已经被解解全方位包围了，10w+播放只能说哈人。
+[https://www.bilibili.com/video/BV1WS4y1y7hV](https://www.bilibili.com/video/BV1WS4y1y7hV)
+
+*****
+
+####  天天座理世  
+##### 10493#       发表于 2022-2-4 20:14
+
+觉得99年的堇姐年龄在apex里大？要不看看这次agls冠军的tsm，rid，df这几位都几几年的？
+
+日本什么16岁天才少年，甚至正赛都没进。
+
+
+
+*****
+
+####  FCCHua  
+##### 10494#       发表于 2022-2-4 20:22
+
+狱卒新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shpdw  
+##### 10495#       发表于 2022-2-4 20:25
+
+<img src="https://img.saraba1st.com/forum/202202/04/201825bu1l4gk95kk5fsy4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Screenshot-2022-02-04-20-16-43.jpeg</strong> (20.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 20:18 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">18年唱的那可比M@GIC地位高多了
+
+*****
+
+####  poipanchao  
+##### 10496#       发表于 2022-2-4 20:30
+
+ 本帖最后由 poipanchao 于 2022-2-4 20:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54547044&amp;ptid=1972669" target="_blank">天天座理世 发表于 2022-2-4 20:14</a>
+
+觉得99年的堇姐年龄在apex里大？要不看看这次agls冠军的tsm，rid，df这几位都几几年的？
+
+日本什么16岁天才 ...</blockquote>
+别的不熟，rid最大的也就KaronPe，23，而且人家已经在考虑退役了
+
+职业选手练习量大啊，能弥补年纪带来的劣势
+
+主播的话主要还是靠天赋，年轻就是本钱，菜如夏小姐猛练以后枪法也是有模有样的
+
+但是主播没法一直玩一个游戏，年纪上去了就是跟不上
+
+为什么noah强，因为她可能就是练的最多的大师女了
+
+syl，等下，我查出来堇是24的啊，99年是哪来的情报
+
+*****
+
+####  真飞鸟i  
+##### 10497#       发表于 2022-2-4 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非攻击性，不过那视频下面的评论属实是以为俩个虹男是上月前二了。而且评论数感觉在虹杏b站鼎盛时期这类视频也达不到。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  dybang  
+##### 10498#       发表于 2022-2-4 20:41
+
+年一v（双重含义
+
+*****
+
+####  zerouuz  
+##### 10499#       发表于 2022-2-4 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54526329&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-2-3 01:01</a>
+
+郡郡说不定一辈子都打不了强强麻将了…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">生病了？
+
+*****
+
+####  Longinus_  
+##### 10500#       发表于 2022-2-4 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">nrk新衣服内容好多好可爱
+

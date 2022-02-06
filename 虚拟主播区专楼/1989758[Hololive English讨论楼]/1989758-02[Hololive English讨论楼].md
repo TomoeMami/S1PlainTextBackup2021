@@ -1309,3 +1309,81 @@ mumei比游戏吓人xd
 
 — from Google Pixel 3 XL, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  vimisbesteditor  
+##### 1621#       发表于 2022-2-4 10:47
+
+死鲨新歌好棒 这MV有请动画制作组了吧
+
+
+
+*****
+
+####  wuzhengkai  
+##### 1622#       发表于 2022-2-4 15:38
+
+ 本帖最后由 wuzhengkai 于 2022-2-4 15:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541142&amp;ptid=1989758" target="_blank">vimisbesteditor 发表于 2022-2-4 10:47</a>
+
+死鲨新歌好棒 这MV有请动画制作组了吧</blockquote>
+是一个人  推特kaynimatic 看履历参加过不少日本动画的原画 可能是个外包啥的
+
+
+
+*****
+
+####  shimmy1996  
+##### 1623#       发表于 2022-2-5 10:26
+
+Guramei apex 三轮车！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  vimisbesteditor  
+##### 1624#       发表于 2022-2-5 13:06
+
+这也能混到吃鸡XD
+
+
+
+*****
+
+####  shimmy1996  
+##### 1625#       发表于 2022-2-6 10:06
+
+Ametori off collab coming soon(TM)<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  vimisbesteditor  
+##### 1626#       发表于 2022-2-6 12:12
+
+话说大家对日英混杂的歌曲怎么看的？mumei的a new start日英混听起来感觉一段一段的
+
+
+
+*****
+
+####  吃咸菜的  
+##### 1627#       发表于 2022-2-6 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54566330&amp;ptid=1989758" target="_blank">vimisbesteditor 发表于 2022-2-6 12:12</a>
+话说大家对日英混杂的歌曲怎么看的？mumei的a new start日英混听起来感觉一段一段的 ...</blockquote>
+这类问题都可以归结为词曲水平问题
+
+
+
+*****
+
+####  vimisbesteditor  
+##### 1628#       发表于 2022-2-6 13:58
+
+鲨鱼开场：我今天不舒服，我是新冠患者的密接
+

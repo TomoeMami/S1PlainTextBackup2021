@@ -10989,3 +10989,26 @@ king的塑造明显没有结束，这个人肯定会跟随现任joyboy
 
 电磁炮打完大妈的表情总觉得看着像还要打一回合，，
 
+
+
+*****
+
+####  klzxs  
+##### 56362#       发表于 2022-2-4 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540428&amp;ptid=98922" target="_blank">灰狼 发表于 2022-2-4 09:02</a>
+
+电磁炮打完大妈的表情总觉得看着像还要打一回合，，</blockquote>
+奎恩被踢飞的时候大家也是这么像的
+
+只能说看下回了
+
+
+
+*****
+
+####  jxzeroga0  
+##### 56363#       发表于 2022-2-4 13:40
+
+这两话好像除了大招升级，差点想不出来剧情有什么进展
+

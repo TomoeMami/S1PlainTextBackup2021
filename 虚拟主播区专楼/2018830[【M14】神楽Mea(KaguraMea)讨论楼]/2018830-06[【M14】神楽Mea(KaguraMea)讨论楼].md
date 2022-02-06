@@ -6972,3 +6972,1096 @@ g了，又是这样，为了1级团学e，但是没杀掉，开始坐牢……
 
 vcp可真是逆天，和冬奥会开幕式撞……？你tm不是没点子吗？不会同步视听开幕式？
 
+
+
+*****
+
+####  路人庚  
+##### 8305#       发表于 2022-2-4 13:54
+
+同步试听开幕式还行，转播费谁出啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然我都不知道今天是开幕式
+
+*****
+
+####  我单推副会长  
+##### 8306#       发表于 2022-2-4 14:00
+
+<blockquote>路人庚 发表于 2022-2-4 13:54
+同步试听开幕式还行，转播费谁出啊（虽然我都不知道今天是开幕式</blockquote>
+当然是无声无画面了，大家都这么办的
+
+
+
+*****
+
+####  Mr.shelter  
+##### 8307#       发表于 2022-2-4 15:53
+
+这有什么，原神前瞻也撞开幕式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，说不定咩咩同步试听原神前瞻呢
+
+*****
+
+####  呓亘  
+##### 8308#       发表于 2022-2-4 16:09
+
+阿咩什么时候能再直播一次原神啊，我刚打到雪山那里，正好和阿咩一起开荒
+
+
+
+*****
+
+####  T_Hb  
+##### 8309#       发表于 2022-2-4 16:14
+
+我记得上次说过  不玩了
+
+
+
+*****
+
+####  古战场亡魂  
+##### 8310#       发表于 2022-2-4 19:48
+
+预热开起来了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我单推副会长  
+##### 8311#       发表于 2022-2-4 20:02
+
+没两个男主持，我怕了
+
+
+
+*****
+
+####  T_Hb  
+##### 8312#       发表于 2022-2-4 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一题怎么就在做梦
+
+*****
+
+####  我单推副会长  
+##### 8313#       发表于 2022-2-4 20:14
+
+不是，你出了直播间能做mc，能做副手控场。你自己直播间也多搞搞啊……
+
+*****
+
+####  Klience  
+##### 8314#       发表于 2022-2-4 20:23
+
+别问 问就是懒
+
+
+
+*****
+
+####  我单推副会长  
+##### 8315#       发表于 2022-2-4 20:29
+
+感觉她在两位男主持身上学到了东西啊……
+
+*****
+
+####  T_Hb  
+##### 8316#       发表于 2022-2-4 20:34
+
+什么时候组长化，好日子就来了
+
+*****
+
+####  路人庚  
+##### 8317#       发表于 2022-2-4 20:36
+
+《话术》
+
+*****
+
+####  T_Hb  
+##### 8318#       发表于 2022-2-4 20:41
+
+这题有点难了
+
+*****
+
+####  路人庚  
+##### 8319#       发表于 2022-2-4 20:41
+
+ 本帖最后由 路人庚 于 2022-2-4 20:46 编辑 
+
+蓝色药丸系题目
+
+不得不嗦一百日元有点少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我单推副会长  
+##### 8320#       发表于 2022-2-4 20:49
+
+真蓝色药丸题啊……不结合热点玩异世界转世吗？
+
+
+
+*****
+
+####  古战场亡魂  
+##### 8321#       发表于 2022-2-4 21:53
+
+黄金1 75胜点，原来昨天晚上和今天凌晨打了3把啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8322#       发表于 2022-2-4 21:56
+
+咩姐：下了班当然就是快乐游戏时间（）
+
+*****
+
+####  古战场亡魂  
+##### 8323#       发表于 2022-2-4 22:00
+
+93胜点了，开播冲白金吗？？
+
+
+
+*****
+
+####  Klience  
+##### 8324#       发表于 2022-2-4 22:30
+
+播个屁 私下上分 直播掉分你懂不？不说了 我上线去ob一下这人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 8325#       发表于 2022-2-4 22:32
+
+打到晋级赛
+
+
+
+*****
+
+####  Klience  
+##### 8326#       发表于 2022-2-4 22:42
+
+输了 1/11 哈哈哈哈哈 好惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 8327#       发表于 2022-2-4 22:43
+
+ 本帖最后由 古战场亡魂 于 2022-2-4 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54551347&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-4 22:42</a>
+
+输了 1/11 哈哈哈哈哈 好惨啊</blockquote>
+对线船长，消耗不过对面，还控不住对面。波比这个真的要看阵容啊。当然也可能对线炼金，反正都怼不过
+
+
+
+*****
+
+####  Klience  
+##### 8328#       发表于 2022-2-4 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54551363&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-4 22:43</a>
+
+对线船长，消耗不过对面，还控不住对面。波比这个真的要看阵容啊。当然也可能对线炼金，反正都怼不过 ...</blockquote>
+感觉更多的是对面小丑一直抓上 单单炼金不可能杀那么多次的
+
+
+
+*****
+
+####  T_Hb  
+##### 8329#       发表于 2022-2-4 23:39
+
+ 本帖最后由 T_Hb 于 2022-2-4 23:42 编辑 
+
+没打了，97lp
+
+哦，又开了，一鼓作气吗
+
+*****
+
+####  古战场亡魂  
+##### 8330#       发表于 2022-2-4 23:41
+
+调整了一些啊，现在不出神分了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Klience  
+##### 8331#       发表于 2022-2-5 00:19
+
+神分也适合波比的啊 短CD的Q可以频繁触发神分 波比的被动护盾还有神分的回血都挺适合的
+
+*****
+
+####  T_Hb  
+##### 8332#       发表于 2022-2-5 00:24
+
+又渡劫
+
+*****
+
+####  古战场亡魂  
+##### 8333#       发表于 2022-2-5 00:27
+
+ 本帖最后由 古战场亡魂 于 2022-2-5 00:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54552483&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-5 00:19</a>
+
+神分也适合波比的啊 短CD的Q可以频繁触发神分 波比的被动护盾还有神分的回血都挺适合的 ...</blockquote>
+左边打野推荐，右边上单推荐。mea原本一般是神分加荆棘加王者板甲，现在是霜火加荆棘加末日寒冬
+
+<img src="https://img.saraba1st.com/forum/202202/05/002536tfkafkyfkk6fbyby.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220205002513542.jpg</strong> (26.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 00:25 上传
+
+<img src="https://img.saraba1st.com/forum/202202/05/002402zz8l01oo8ekg1zz1.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220205002343933.jpg</strong> (27.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 00:24 上传
+
+
+
+*****
+
+####  Klience  
+##### 8334#       发表于 2022-2-5 00:33
+
+这个我知道啊 以前看她波比出装都是第一件神分 后面全出肉的 不过自从冰泉改了之后合成没有了耀光 她现在这种霜火凛冬就纯抗伤害 没啥伤害的 全靠Q的百分比伤害打 挺吃队友的
+
+*****
+
+####  Klience  
+##### 8335#       发表于 2022-2-5 00:36
+
+好了 晋级赛第一局输了 这赛娜出的什么东西 第一件出死舞？ 死舞就算改了也不应该第一件出的啊
+
+*****
+
+####  古战场亡魂  
+##### 8336#       发表于 2022-2-5 00:37
+
+寄，主播的上分之路并不理想。
+
+中单飞机22分钟的局2/11/6？？？？？
+
+*****
+
+####  Klience  
+##### 8337#       发表于 2022-2-5 00:43
+
+飞机削弱了 炸药包8分钟变成了10分钟 对面还是龙王 估计是推线配合赵信去做事了
+
+
+
+*****
+
+####  T_Hb  
+##### 8338#       发表于 2022-2-5 02:35
+
+生死局又来了
+
+*****
+
+####  路人庚  
+##### 8339#       发表于 2022-2-5 02:36
+
+又两胜两负了，阿咩会三度迎来落日吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 8340#       发表于 2022-2-5 02:44
+
+为小麻祈祷。咩门
+
+
+
+*****
+
+####  T_Hb  
+##### 8341#       发表于 2022-2-5 02:45
+
+ 本帖最后由 T_Hb 于 2022-2-5 02:47 编辑 
+
+怎么还没开，早打完我好睡觉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祈祷没卵用，那天人了一万次还不是给给
+
+*****
+
+####  路人庚  
+##### 8342#       发表于 2022-2-5 02:53
+
+开了开了，奶一口把上分的镜头留到直播的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8343#       发表于 2022-2-5 03:23
+
+ 本帖最后由 路人庚 于 2022-2-5 03:54 编辑 
+
+gg，黄金1 90LP
+
+syl，然鹅阿咩并没有放弃，刚赢了一把又100LP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+zsyl，vcp企划内容微相关（看来立本挺喜欢在年末、年初搞瀑布冲凉
+
+<img src="https://img.saraba1st.com/forum/202202/05/035405jqv9e2cu9s4svyec.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>13476395-27B7-44A3-AAA5-6FE8E092EFAC.jpeg</strong> (337.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 03:54 上传
+
+
+
+*****
+
+####  古战场亡魂  
+##### 8344#       发表于 2022-2-5 07:58
+
+主播的辅助还是再练练吧。
+
+<img src="https://img.saraba1st.com/forum/202202/05/075800wiyx4luzeo0jrq0a.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20220205073530177.jpg</strong> (4.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 07:58 上传
+
+
+
+*****
+
+####  ashero  
+##### 8345#       发表于 2022-2-5 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553734&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-2-5 07:58</a>
+
+三过白金而不入，主播的辅助还是再练练吧。一到晋级赛第五把，就不敢选上单证明自己……你的辅助能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经不是上单证不证明自己的问题了 她波比现在胜率趋近于5050 就是没有左右对局天平的能力了 所以这个晋级赛就完全看运气
+
+
+
+*****
+
+####  我单推副会长  
+##### 8346#       发表于 2022-2-5 10:32
+
+ 本帖最后由 我单推副会长 于 2022-2-5 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554292&amp;ptid=2018830" target="_blank">ashero 发表于 2022-2-5 10:19</a>
+
+已经不是上单证不证明自己的问题了 她波比现在胜率趋近于5050 就是没有左右对局天平的能力了 所以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">……s2022总体波比87场，60%胜率，最近19场有11场波比7胜4负……波比胜率64%，已经不错了。
+
+选波比确实可能没有太左右对局天平的能力……但是她选辅助尤其选露露的时候可太有决定能力了，打团空蓝等于少个人。就算要消除不稳定因素，她也该玩波比啊。
+
+搞笑的是，对面抢了波比的情况下，她会选蛤蟆，配合打野疯狂欺负波比。蛤蟆开团抗伤配合gank也比波比方便多了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  十九号大侠  
+##### 8347#       发表于 2022-2-5 11:01
+
+蛤蟆不可爱，不会玩的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  往世雷书  
+##### 8348#       发表于 2022-2-5 11:07
+
+魔法少女厄加特，魔法少女塔姆安排上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我单推副会长  
+##### 8349#       发表于 2022-2-5 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554595&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-2-5 11:01</a>
+
+蛤蟆不可爱，不会玩的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.5.2</blockquote>
+她今天早上晋级赛对线波比玩了蛤蟆我才说的。
+
+
+
+*****
+
+####  我单推副会长  
+##### 8350#       发表于 2022-2-5 11:29
+
+如果上了白金，可能b限还能炫耀炫耀，可惜可惜。
+
+*****
+
+####  T_Hb  
+##### 8351#       发表于 2022-2-5 11:31
+
+那肯定是加急发推呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  呓亘  
+##### 8352#       发表于 2022-2-5 13:03
+
+这人...今晚B限能起来吗……
+
+
+
+*****
+
+####  clvan_  
+##### 8353#       发表于 2022-2-5 14:32
+
+反正还没预告时间，怕什么
+
+
+
+*****
+
+####  冬瓜饭  
+##### 8354#       发表于 2022-2-5 15:12
+
+隔壁带天使打游戏还是好看，好久没看打apex竟然能上大师了，不过所谓偶像活动就一言难尽。吊人打游戏不带脑子，菜还想上分打的难看死了，不如当年打lol猴叫好玩，还是老老实实唱歌唠嗑有意思啊。
+
+*****
+
+####  十九号大侠  
+##### 8355#       发表于 2022-2-5 15:19
+
+怎么就不动脑子，只是不够用罢了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  呓亘  
+##### 8356#       发表于 2022-2-5 15:21
+
+阿咩还是搞点杂谈企划或者吃瘪小游戏有节目效果
+
+
+
+*****
+
+####  路人庚  
+##### 8357#       发表于 2022-2-5 16:56
+
+今天有预告时间“可能晚点的时间，可能会来”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（怎么总感觉要摸了
+
+
+
+*****
+
+####  我单推副会长  
+##### 8358#       发表于 2022-2-5 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54557697&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-2-5 16:56</a>
+
+今天有预告时间“可能晚点的时间，可能会来”（怎么总感觉要摸了</blockquote>
+你对一个正常预告说明天直播，然后第二天早上2点开播的主播说晚？？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 8359#       发表于 2022-2-5 17:03
+
+摸了吧，爷爬山腿已经断了
+
+*****
+
+####  yywzjsw  
+##### 8360#       发表于 2022-2-5 17:04
+
+能不能有：主播女孩重度依赖的投票
+
+*****
+
+####  我单推副会长  
+##### 8361#       发表于 2022-2-5 17:07
+
+虽然投票没了，我估摸着是 雀魂  lol  歌回 
+
+*****
+
+####  我单推副会长  
+##### 8362#       发表于 2022-2-5 17:08
+
+什么直播币，正面歌回，反面lol？？？
+
+*****
+
+####  yywzjsw  
+##### 8363#       发表于 2022-2-5 17:08
+
+又是lol，累了换个其它不好
+
+*****
+
+####  我单推副会长  
+##### 8364#       发表于 2022-2-5 17:13
+
+我倒是想看lol，但是参与型匹配不刺激，如果能耐久冲白金该多有节目效果，可惜。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8365#       发表于 2022-2-5 17:13
+
+咩姐：因为我就想玩101所以不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（）
+
+*****
+
+####  我单推副会长  
+##### 8366#       发表于 2022-2-5 17:14
+
+真是的，就不能一边打一边唱吗，反正匹配也不用太严谨。
+
+*****
+
+####  yywzjsw  
+##### 8367#       发表于 2022-2-5 17:15
+
+唱女武神的歌打lol好像不错
+
+*****
+
+####  我单推副会长  
+##### 8368#       发表于 2022-2-5 17:19
+
+我突然想起来了，她有一票否决权，所以投票卵用没有……
+
+*****
+
+####  时间在我手中  
+##### 8369#       发表于 2022-2-5 17:19
+
+打几把撸，唱歌给爷唱，撸🐶cbddl
+
+
+
+*****
+
+####  呓亘  
+##### 8370#       发表于 2022-2-5 17:21
+
+LOL都要看吐了 我选的歌回 并且歌回比较容易吸金啊
+
+
+
+*****
+
+####  我单推副会长  
+##### 8371#       发表于 2022-2-5 17:26
+
+10点这个时间很微妙啊，今天油管也要播一下吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 8372#       发表于 2022-2-5 17:30
+
+反正一小时结束走人
+
+*****
+
+####  Klience  
+##### 8373#       发表于 2022-2-5 17:31
+
+ 本帖最后由 Klience 于 2022-2-5 17:34 编辑 
+
+那就一边唱歌一边LOL吧 两边都能受益<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llconforever  
+##### 8374#       发表于 2022-2-5 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">能不能别撸了。一看到撸我身上就像有小麻蚁在爬<strong></strong>
+
+*****
+
+####  我单推副会长  
+##### 8375#       发表于 2022-2-5 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54557982&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-5 17:31</a>
+
+那就一边唱歌一边LOL吧 两边都能受益 我怀疑这人昨晚都没睡觉 排位打到快4点了 然后快7点的时候换号 ...</blockquote>
+这种企划得有人和她提啊……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+或者直播lol的时候发个sc尝试呼吁一下。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 8376#       发表于 2022-2-5 17:37
+
+单排一库走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clvan_  
+##### 8377#       发表于 2022-2-5 17:38
+
+老鼠台播了打撸
+
+*****
+
+####  我单推副会长  
+##### 8378#       发表于 2022-2-5 17:39
+
+第四次白金冲击开始！！！！！！！！
+
+*****
+
+####  我单推副会长  
+##### 8379#       发表于 2022-2-5 17:40
+
+怎么就第五次了？？？我统计错了？？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我单推副会长  
+##### 8380#       发表于 2022-2-5 17:41
+
+经典开局1-5
+
+*****
+
+####  Klience  
+##### 8381#       发表于 2022-2-5 17:41
+
+对面纳尔也算是个绝活了 看他战绩大多数用纳尔上分 看这把打成什么样吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8382#       发表于 2022-2-5 17:48
+
+出装正确的重要性，出耀光早被遛死了
+
+*****
+
+####  Klience  
+##### 8383#       发表于 2022-2-5 17:51
+
+不如说她最近都在这样出装了
+
+*****
+
+####  Klience  
+##### 8384#       发表于 2022-2-5 17:54
+
+好 这把寄了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8385#       发表于 2022-2-5 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54558154&amp;ptid=2018830" target="_blank">Klience 发表于 2022-2-5 17:51</a>
+
+不如说她最近都在这样出装了</blockquote>
+最近？今天和昨天√
+
+
+
+*****
+
+####  路人庚  
+##### 8386#       发表于 2022-2-5 18:09
+
+阿咩：做梦都在打晋级赛，而且三连胜直接升上去了
+
+*****
+
+####  Klience  
+##### 8387#       发表于 2022-2-5 18:10
+
+确实是个好梦呢 做多点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8388#       发表于 2022-2-5 18:12
+
+做梦多不敢做大点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正是做梦直接冲王者
+
+
+
+*****
+
+####  makourisu-2  
+##### 8389#       发表于 2022-2-5 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这把又要寄了
+
+*****
+
+####  我单推副会长  
+##### 8390#       发表于 2022-2-5 18:23
+
+反思一下为什么不玩纳尔
+
+*****
+
+####  我单推副会长  
+##### 8391#       发表于 2022-2-5 18:25
+
+跑了
+
+*****
+
+####  我单推副会长  
+##### 8392#       发表于 2022-2-5 18:26
+
+我怀疑这速度是直接按了重启，或者拔了网线
+
+*****
+
+####  路人庚  
+##### 8393#       发表于 2022-2-5 18:28
+
+ 本帖最后由 路人庚 于 2022-2-5 18:36 编辑 
+
+可能是网络断了一下？看样子还在打来着
+好吧应该是手动下播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8394#       发表于 2022-2-5 18:29
+
+这把纳尔和上把纳尔一个人
+
+*****
+
+####  我单推副会长  
+##### 8395#       发表于 2022-2-5 18:32
+
+ 本帖最后由 我单推副会长 于 2022-2-5 18:33 编辑 
+
+晋级赛前两把输了，感觉很尬的。后面打不打都不痛快。
+
+*****
+
+####  Klience  
+##### 8396#       发表于 2022-2-5 18:34
+
+这纳尔把咩当猪宰啊 经验包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Klience  
+##### 8397#       发表于 2022-2-5 18:45
+
+晋级赛第二场输了 被纳尔吊起来打 开始了第三场 对面上单鳄鱼 哦 我看错了 我看到波比以为是咩的波比 这场是辅助露露<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8398#       发表于 2022-2-5 18:58
+
+卑鄙的长手打短手，mea还不醒悟吗，兽耳波比多可爱啊，纳尔。
+
+
+
+*****
+
+####  Klience  
+##### 8399#       发表于 2022-2-5 19:13
+
+第三局输了 辅助露露0/8 紧急失败 61胜点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pei23333  
+##### 8400#       发表于 2022-2-5 19:17
+
+心态炸了，b限延到明天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  路人庚  
+##### 8401#       发表于 2022-2-5 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这101真是一件美逝啊
+
+*****
+
+####  我单推副会长  
+##### 8402#       发表于 2022-2-5 19:19
+
+被干碎了
+
+
+
+*****
+
+####  kenjjj  
+##### 8403#       发表于 2022-2-5 19:21
+
+两把0/8确实是被干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kenjjj  
+##### 8404#       发表于 2022-2-5 19:21
+
+风怒编辑
+
+*****
+
+####  时间在我手中  
+##### 8405#       发表于 2022-2-5 19:22
+
+建议戒掉垃圾游戏，满怀期待拥抱阿尔宙斯！
+
+*****
+
+####  甘栗No.007  
+##### 8406#       发表于 2022-2-5 19:23
+
+这都几次了，铁折磨
+但这折磨说不定能让她意识到动脑打游戏的重要性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Klience  
+##### 8407#       发表于 2022-2-5 19:34
+
+没脑子的人就算动脑子也没用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我单推副会长  
+##### 8408#       发表于 2022-2-5 19:46
+
+重点是两把0/8分别是上路和辅助，对位都是mvp，太惨了。
+
+*****
+
+####  呓亘  
+##### 8409#       发表于 2022-2-5 19:51
+
+emmmmmmm
+
+*****
+
+####  T_Hb  
+##### 8410#       发表于 2022-2-5 19:52
+
+不如进行一个猛汉人观众参加型挖矿
+
+*****
+
+####  呓亘  
+##### 8411#       发表于 2022-2-5 19:53
+
+不如打原神
+
+*****
+
+####  freeze_雪风  
+##### 8412#       发表于 2022-2-5 19:54
+
+不播挺好，多开太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我单推副会长  
+##### 8413#       发表于 2022-2-5 19:55
+
+也就现在有偶像包袱了，放几年前，已经在表演砸桌，拆楼，怒吼，崩溃了，都是一等一的节目效果。这白金真的是个坎。
+
+
+
+*****
+
+####  T_Hb  
+##### 8414#       发表于 2022-2-5 20:05
+
+ 本帖最后由 T_Hb 于 2022-2-5 20:06 编辑 
+
+有没有可能节目效果才是演的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在属于是不想演了
+
+*****
+
+####  我单推副会长  
+##### 8415#       发表于 2022-2-5 20:19
+
+不存在的，lol主播破防算是常态了，随便搜搜都有一堆直播破防的。人在绷不住的时候确实是绷不住的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  呓亘  
+##### 8416#       发表于 2022-2-5 20:21
+
+阿咩的情绪控制能力确实强了不少
+
+
+
+*****
+
+####  Ky·Kiske  
+##### 8417#       发表于 2022-2-5 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">天杀的LOL
+
+*****
+
+####  路人庚  
+##### 8418#       发表于 2022-2-5 20:58
+
+阿咩：压力⬆️⬆️⬆️⬆️
+
+
+
+*****
+
+####  十九号大侠  
+##### 8419#       发表于 2022-2-5 21:02
+
+哈哈哈，笑
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  十九号大侠  
+##### 8420#       发表于 2022-2-5 21:04
+
+实在不行求大天使带一带
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Klience  
+##### 8421#       发表于 2022-2-5 21:12
+
+大亏算了吧 都多久没打了 恐怕以后都不会见到她上lol了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  古战场亡魂  
+##### 8422#       发表于 2022-2-5 21:26
+
+虽然这些年经历了那么多大风大浪，但是这种细小的绝望mea还是体会的少了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Cortana  
+##### 8423#       发表于 2022-2-5 22:52
+
+有一说一，还是挺想看她躺地上打滚撒泼的，像是在发脾气，又像在撒娇，充满了女友感。
+
+
+
+*****
+
+####  andeloz  
+##### 8424#       发表于 2022-2-6 05:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我单推副会长  
+##### 8425#       发表于 2022-2-6 13:27
+
+团体真是个消磨个性化的东西，去年那个老年人短视频多棒啊。
+
+*****
+
+####  2014720  
+##### 8426#       发表于 2022-2-6 13:30
+
+心思都在lol上呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直播？事业？能上白金吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  往世雷书  
+##### 8427#       发表于 2022-2-6 13:31
+
+目前来看vcp不如犬兔咩，但毕竟是个进步
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  古战场亡魂  
+##### 8428#       发表于 2022-2-6 13:59
+
+<blockquote>往世雷书 发表于 2022-2-6 13:31
+目前来看vcp不如犬兔咩，但毕竟是个进步
+
+—— 来自 S1Fun</blockquote>
+很少见的能看到mea做mc，毕竟和犬山组长在一起怎么也轮不到mea做mc。
+
+
+
+*****
+
+####  Dualist彩  
+##### 8429#       发表于 2022-2-6 14:29
+
+还不是其他人太fw，上次我一时间竟分不清是在谁的直播间直播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

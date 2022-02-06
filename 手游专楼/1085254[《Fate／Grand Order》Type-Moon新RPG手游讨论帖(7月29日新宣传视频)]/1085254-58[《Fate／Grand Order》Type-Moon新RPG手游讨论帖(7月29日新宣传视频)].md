@@ -13340,3 +13340,57 @@ Sengle had considerable impact on the military strengthening of Malta, notably b
 
 惊了 fgo都要关服了突然new了个嫁尼禄
 
+
+
+*****
+
+####  sk86  
+##### 86789#       发表于 2022-2-4 16:32
+
+好耶，fgo要关服，蘑菇终于有时间搞别的系列了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  AbigailWilliams  
+##### 86790#       发表于 2022-2-4 21:56
+
+隔壁那个喷剧情之前先按死是樱井写的然后被实锤反杀的楼太tmd乐了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  angelooo  
+##### 86791#       发表于 2022-2-4 23:24
+
+<blockquote>AbigailWilliams 发表于 2022-2-4 21:56
+隔壁那个喷剧情之前先按死是樱井写的然后被实锤反杀的楼太tmd乐了</blockquote>
+那楼笑死我了，还有魔怔人死不认错说我就是要当小丑的，属实是真爱了
+
+*****
+
+####  qixinno2  
+##### 86792#       发表于 2022-2-5 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">全抽BX结果对不起和狼王+1 难受
+
+*****
+
+####  霧谷藤乃  
+##### 86793#       发表于 2022-2-5 10:27
+
+有＃之后想随便抽抽又觉得该攒着，不太自在……
+
+
+
+*****
+
+####  qixinno2  
+##### 86794#       发表于 2022-2-5 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那傻逼井对我来说跟不存在没区别
+

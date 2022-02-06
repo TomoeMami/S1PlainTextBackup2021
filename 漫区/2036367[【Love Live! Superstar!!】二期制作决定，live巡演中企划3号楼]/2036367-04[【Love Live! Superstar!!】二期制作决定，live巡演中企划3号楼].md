@@ -6327,3 +6327,670 @@ A86D0E47-12D5-45A6-89F4-D60282921C48.jpeg
 
 <img src="https://img.saraba1st.com/forum/202202/04/072052cuukrdij1usuioju.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cqc1021  
+##### 5017#       发表于 2022-2-4 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54536159&amp;ptid=2036367" target="_blank">player3960 发表于 2022-2-3 21:16</a>
+下午贴吧闹得不可开交，我都看无语了
+鲤鱼想涩涩得发挥优势，上身不行就多拍腿，结合以前的cos照， ...</blockquote>
+你鲤鱼姐腿更不行啊，虽然长，但是单独看腿会显粗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是拍全身照的好。
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  player3960  
+##### 5018#       发表于 2022-2-4 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540745&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-02-04 09:59:29</a>
+你鲤鱼姐腿更不行啊，虽然长，但是单独看腿会显粗 v2.5.2</blockquote>所以才要黑丝啊，显瘦，而且腿粗也只是和其他四个横向比较而已，单看没那么过分。
+我觉得蛮饱满的，之前看鲤鱼cos的高雄真的很<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  lj205  
+##### 5019#       发表于 2022-2-4 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54540745&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-2-4 09:59</a>
+你鲤鱼姐腿更不行啊，虽然长，但是单独看腿会显粗还是拍全身照的好。
+
+—— 来自 samsung SM-N986 ...</blockquote>
+肉腿最棒<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cqc1021  
+##### 5020#       发表于 2022-2-4 11:05
+
+ 本帖最后由 cqc1021 于 2022-2-4 11:07 编辑 
+
+去日亚买了，加上封面一共48页，880日元，YJ电子写真集的正常价格。有几张LS要的肉腿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202202/04/110524m14s1d44ildl5dl7.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片编辑_20220204110440.jpg</strong> (416.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 11:05 上传
+
+
+
+*****
+
+####  yevvet  
+##### 5021#       发表于 2022-2-4 11:28
+
+没有人觉得鲤鱼像西野七濑吗
+
+
+
+*****
+
+####  lj205  
+##### 5022#       发表于 2022-2-4 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541317&amp;ptid=2036367" target="_blank">cqc1021 发表于 2022-2-4 11:05</a>
+去日亚买了，加上封面一共48页，880日元，YJ电子写真集的正常价格。有几张LS要的肉腿</blockquote>
+虽然我第一时间已经同时下单写真和YJ，不过还是谢谢支持<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 5023#       发表于 2022-2-4 13:23
+
+小百合的那个广播拿到了三个提名，我记得她是最后一天才发的拉票的推特吧，好强啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 5024#       发表于 2022-2-4 13:34
+
+还是不开新帖搭楼问一下，现在日亚的kindle电子书和礼品卡充值是不是限制了大陆的visa卡，昨晚买鲤鱼的写真折腾了半天都付不了款，客服只说近期大陆卡会有支付障碍，最后只能找TB买卡充值<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前两三年还能直邮的时候买起来明明没什么障碍
+
+*****
+
+####  cqc1021  
+##### 5025#       发表于 2022-2-4 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542711&amp;ptid=2036367" target="_blank">starring 发表于 2022-2-4 13:34</a>
+还是不开新帖搭楼问一下，现在日亚的kindle电子书和礼品卡充值是不是限制了大陆的visa卡，昨晚买鲤鱼的写真 ...</blockquote>
+中行JCB卡，你值得拥有<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  lj205  
+##### 5026#       发表于 2022-2-4 13:48
+
+其实不是非日亚的话购买渠道还是很多的，我现在固定是在週プレ或者DMM买，或者去杂志官网看看有没有多的购买渠道
+
+*****
+
+####  starring  
+##### 5027#       发表于 2022-2-4 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54542829&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-4 13:48</a>
+其实不是非日亚的话购买渠道还是很多的，我现在固定是在週プレ或者DMM买，或者去杂志官网看看有没有多的购 ...</blockquote>
+以前在日亚买些什么都没遇到问题，没想到这次会付款卡壳
+
+
+
+*****
+
+####  saya1892  
+##### 5028#       发表于 2022-2-4 14:20
+
+问最苦战的部分，鱼说是摇滚和rap，因为之前没唱过摇滚，鹫崎健问那K-ON呢，鱼说那个不算，然后鹫崎健就说其实你来之前嘉宾就是丰崎爱生，鱼大呼能见一面就好了
+
+然后MV拍摄趣事是ルルカワイマ有一幕躺在床上的，鱼说真的睡着了
+
+
+
+*****
+
+####  a92063256  
+##### 5029#       发表于 2022-2-4 15:33
+
+刚才在週プレ买了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">这个有没有方法能保存下来到本地的啊，我想在本地保存一份高清的
+
+*****
+
+####  仟音一心  
+##### 5030#       发表于 2022-2-4 15:49
+
+<blockquote>#Liyuu[超话]# 🌼「周刊 YoungJump」
+
+小运动风一下🤣 </blockquote>
+
+B0DA3988-1AE2-4B2D-95C8-FE0CE6659824.jpeg
+(1.02 MB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/154926htsvp4nsvxxn4na1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E12B3EBE-4410-4F11-9171-B625ADD12777.jpeg
+(1.01 MB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/154927fehopy2ispspffsg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+61C1F9BC-CE5F-4B19-A7FA-3C82016BC93C.jpeg
+(1.08 MB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/154929prv1vndd566c8zdg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 5031#       发表于 2022-2-4 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54544170&amp;ptid=2036367" target="_blank">仟音一心 发表于 2022-02-04 15:49:31</a></blockquote>这个帽子像是和ambition一套的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  优妮可  
+##### 5032#       发表于 2022-2-4 18:38
+
+<img src="https://img.saraba1st.com/forum/202202/04/183800crz7h64z3eh5z5sz.jpg" referrerpolicy="no-referrer">
+
+<strong>20220204_183258.jpg</strong> (151.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/183800cgedkoiidyb6yfq3.jpg" referrerpolicy="no-referrer">
+
+<strong>20220204_183254.jpg</strong> (60.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/183800m1qn7o3l2eo6n7yh.jpg" referrerpolicy="no-referrer">
+
+<strong>9a4654194aa7daa694080ee05f5fd091.jpg</strong> (44.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202202/04/183800atirrfe7ncrfdid5.jpg" referrerpolicy="no-referrer">
+
+<strong>20220204_183250.jpg</strong> (42.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-4 18:38 上传
+
+*****
+
+####  sjbssd  
+##### 5033#       发表于 2022-2-4 18:39
+
+泪目了，鲤鱼现在黑粉好多，太好了，终于有黑粉了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 5034#       发表于 2022-2-4 18:40
+
+<blockquote>引用第5032楼sjbssd于2022-02-04 18:39发表的  :
+
+泪目了，鲤鱼现在黑粉好多，太好了，终于有黑粉了</blockquote>
+@sjbssd
+
+紫吧吗？别地儿不多，站一般都会被举报。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  lj205  
+##### 5035#       发表于 2022-2-4 18:48
+
+忘记下单声ani了……晚上回去买……来得及吗……
+
+*****
+
+####  cxj649  
+##### 5036#       发表于 2022-2-4 18:49
+
+现在紫吧吧主都觉的玩脱装怂中，当然紫吧会不会彻底转型LL抗亚吧就不知道了233
+
+*****
+
+####  lj205  
+##### 5037#       发表于 2022-2-4 18:54
+
+没必要继续讨论垃圾场
+
+*****
+
+####  sjbssd  
+##### 5038#       发表于 2022-2-4 19:00
+
+我觉得anti是很有必要的，我看过的没有anti的明星基本上都糊了，亡灵天灾必须存在，而且必须要有一个巫妖王
+
+*****
+
+####  优妮可  
+##### 5039#       发表于 2022-2-4 19:11
+
+别吧，泄露信息那叫罪犯，不叫anti
+
+*****
+
+####  cat1230  
+##### 5040#       发表于 2022-2-4 19:13
+
+鲤鱼黑可以说由来已久，或者说大手coser没有黑才奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  lj205  
+##### 5041#       发表于 2022-2-4 19:17
+
+A店怎么选的照片……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想要虎穴的特典……
+
+
+
+*****
+
+####  Enakina  
+##### 5042#       发表于 2022-2-4 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54546121&amp;ptid=2036367" target="_blank">优妮可 发表于 2022-02-04 19:11:46</a>
+别吧，泄露信息那叫罪犯，不叫anti</blockquote>同意，一般黑爱咋咋，厕所里自己蹦跶吧。但拿人家个人信息招摇过市的，只会让人想把他送进去。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  一个陆仁贾  
+##### 5043#       发表于 2022-2-4 20:32
+
+水黑都走了的水团过得不也很好（指国内），没必要
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  任天索尼子  
+##### 5044#       发表于 2022-2-5 00:28
+
+鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作
+
+
+
+*****
+
+####  player3960  
+##### 5045#       发表于 2022-2-5 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54552585&amp;ptid=2036367" target="_blank">任天索尼子 发表于 2022-02-05 00:28:09</a>
+鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作 ...</blockquote>我记得上石白萌音当时才配过两部电影就能得声优大赏（虽然被质疑演员来抢饭碗）。而ll这长期饭票，不到企划入土，鲤鱼就得一直给可可配音，虽然就一个角色，就未来的工作量和时长来看，称为声优也不过分吧，不过她都已经歌手出道了，声优方面业务估计也不会怎么开展了，虽然我也想她再接几个角色。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  lj205  
+##### 5046#       发表于 2022-2-5 08:46
+
+说鲤鱼现在配可可是玩票不太对吧？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就比较好奇事务所对鲤鱼的定位，是歌手嘛但是又出写真，可是写真又一点都不露，写着cos呢却暂时没有这方面的安排。
+我是比较希望她以后能接到国民番就更好，多几个长期饭票，不过这个也不是想想就有的，很多时候也看运气了
+
+
+
+*****
+
+####  梶原ひかり  
+##### 5047#       发表于 2022-2-5 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553855&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-5 08:46</a>
+
+说鲤鱼现在配可可是玩票不太对吧？
+
+不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就 ...</blockquote><blockquote>中国上海出身の歌手・コスプレイヤー。そのフォトジェニックなビジュアルからSNS総フォロワー数190万人を超えており、中国のみならず世界中のコスプレファンから圧倒的な人気を誇っている。2020年1月22日ランティスレーベルより、TVアニメ「はてな☆イリュージョン」OP主題歌「Magic Words」でアーティストデビュー！2nd singleとして、TVアニメ「100万の命の上に俺は立っている」ED主題歌「カルぺ・ディエム」を2020年11月25日にリリース。
+
+2022年2月9日にはファーストアルバム「Fo(u)r YuU」のリリースが決定。2022年2月11日には初のソロコンサート、Liyuu First Concert2022「Fo(u)r YuU」をパシフィコ横浜国立大ホールで開催する。
+
+また、ソロ活動と並行して「ラブライブ！スーパースター!!」のスクールアイドルグループ「Liella!」のメンバー・唐 可可役を務めている。
+
+Birthday:January 9th, 1997
+
+City:中国・上海</blockquote>
+
+定位可能就是歌手吧...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好多新人就配一个角色也是把声优写上的..但是鲤鱼简介里没有..
+
+至于COS可能从事务所角度跟出写真大同小异吧 也考虑的商业化COS需要版权？不太方便 不如直接卖鲤鱼
+
+*****
+
+####  Enakina  
+##### 5048#       发表于 2022-2-5 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54552585&amp;ptid=2036367" target="_blank">任天索尼子 发表于 2022-02-05 00:28:09</a>
+鲤鱼真的能算声优么，起码现阶段还是属于一次性的玩票性质，看看LL完了以后能不能有别的声优工作 ...</blockquote>有角色，还都上了声优杂志了，先不说会不会发展声优方向，但称作声优还是没问题的。当然事务所和她个人的简介很谦虚的从来没写声优，可见也没想往声优发展
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  秋月艾莉  
+##### 5049#       发表于 2022-2-5 10:21
+
+没记错的话，去horipro官网按标签筛人，可以在偶像、模特、歌手那里筛出来
+
+但就是没有声优hhhhhh
+
+*****
+
+####  lj205  
+##### 5050#       发表于 2022-2-5 10:32
+
+<img src="https://img.saraba1st.com/forum/202202/05/103152utlnnmh8ln39rtn1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A848FDBF-C001-454D-BDEC-830A50EF9581.jpeg</strong> (167.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 10:31 上传
+
+<img src="https://img.saraba1st.com/forum/202202/05/103153kpe855hopzm5k0o8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>516D58D4-E022-4C94-AAC4-025AAE9C805D.jpeg</strong> (181.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-5 10:31 上传
+
+
+
+*****
+
+####  Karin11974  
+##### 5051#       发表于 2022-2-5 11:18
+
+个人是觉得鲤鱼当声优比歌手有潜力，至少可可听着挺舒服，有机会还是应该多争取声优工作，多一条出路，除非自己完全没意愿。反正自己拎得清就好，现在这波热度还是靠着唐可可来的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  cat1230  
+##### 5052#       发表于 2022-2-5 11:36
+
+我觉得吧声优比起天赋努力占比更大，相反歌手对比努力天赋占比更大。如果鲤鱼有打铁那副嗓子，估摸着大家也不会思考要不要她去做声优更好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  Enakina  
+##### 5053#       发表于 2022-2-5 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554891&amp;ptid=2036367" target="_blank">cat1230 发表于 2022-02-05 11:36:33</a>
+我觉得吧声优比起天赋努力占比更大，相反歌手对比努力天赋占比更大。如果鲤鱼有打铁那副嗓子，估摸着大家也 ...</blockquote>换种想法不也挺励志的吗，也是从无到有自己努力来的。倒是小百合，企划出道就是天才素人，天籁之音，各种buff给拉满了，人气也是高得离谱，甚至有反哺kanon的感觉了，都高到5厕有一些逆反心理了，天天爱拿她钓鱼。可以等个个人出道，肯定无比风光，出道单初动破万不是梦（误）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  仟音一心  
+##### 5054#       发表于 2022-2-5 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54554734&amp;ptid=2036367" target="_blank">Karin11974 发表于 2022-2-5 11:18</a>
+个人是觉得鲤鱼当声优比歌手有潜力，至少可可听着挺舒服，有机会还是应该多争取声优工作，多一条出路，除非 ...</blockquote>
+走声优发展的最大问题是没这么多角色给你，除非是设定的中国人或者需要说大量汉语的角色，否则真的不是非选你不可，毕竟声优界非常之卷。
+
+*****
+
+####  cybernetics31  
+##### 5055#       发表于 2022-2-5 12:31
+
+………………歌手也卷，说实话都卷，走声优这条路无非希望她多走条路罢了
+
+
+
+*****
+
+####  player3960  
+##### 5056#       发表于 2022-2-5 12:54
+
+别人都是先当声优混脸熟，然后歌手出道唱个几年，最后要不搞几张固定饭票养老要不结婚。
+鲤鱼这都已经歌手出道了，再回去补声优这块其实有点晚了，语言也是一个问题，可以观察一下第二季还有没有菜宝协力。我觉得不如想办法多几个新番或者游戏的歌曲tie。
+而且有ll这个饭票，加上个人事业，如果疫情结束了，再跑跑国内，拉些业务的话，乐观接下来几年应该还是蛮充实的。
+想想以前那个给战场女武神动画唱op的那个加拿大人HIMEKA，发展几年就混不下去了，我就觉得外国人想在这业界发展是真不容易，也不求她大红大紫，她只要能像现在这样能站稳几年，还有资源进一步发展我觉得已经强过业界不少人了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  稀勢のささ  
+##### 5057#       发表于 2022-2-5 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">糊也有糊的过法  不是事业民的我能看点广播eventlive之类的觉得也不错了（
+
+
+
+*****
+
+####  梶原ひかり  
+##### 5058#       发表于 2022-2-5 13:24
+
+鲤鱼声优之路...问题是日语不是母语 养成所也没去过 优势是会中文...可以说是原石版法院明菜
+同样问题可能也是两个人的 声线不突出 业界也没有那么多说中文角色 所以声优路比较难的..
+
+
+
+*****
+
+####  Enakina  
+##### 5059#       发表于 2022-2-5 13:52
+
+走不走声优再看吧，现在就是在专心发展歌手。不过horipro愿意给资源，事务所也不算差这点还是挺好的，和一些没啥资源的小事务所比也算赢在起点上了（说的就是你holy peak，明明至今没见nako有企划外工作，还二次感染了）目前各种杂志，广播，live全给安排上了。之前fc有说，社长还去看过liella的live，还是挺关注他的。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  cqc1021  
+##### 5060#       发表于 2022-2-5 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54553855&amp;ptid=2036367" target="_blank">lj205 发表于 2022-2-5 08:46</a>
+
+说鲤鱼现在配可可是玩票不太对吧？
+
+不过我觉得她其实声线一般，后面可能会有，但是可能得等久点。就 ...</blockquote>
+出写真太正常了，毕竟现在是在日本发展的，日本女星有几个不拍写真的，而且鲤鱼还是coser。最近几年enako和伊织萌还有前两年开始走红的桃月梨子，上杂志拍写真的次数远比出cos的次数多。可能是拍写真更赚钱吧。至于尺度就是事务所和本人意愿的问题了。
+
+
+
+*****
+
+####  tagerto  
+##### 5061#       发表于 2022-2-5 19:03
+
+其实因为可可在国内的热度其实可以试试国内的手游能不能混到角色，直接搞个中日同一人配音的噱头也不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cat1230  
+##### 5062#       发表于 2022-2-5 22:18
+
+国内外最热的2次元手游不就原神么，不知道有没有希望混到个角色。
+
+
+
+*****
+
+####  stygian  
+##### 5063#       发表于 2022-2-5 23:00
+
+事务所可是horipro你们眼界放开点，只要她自己乐意捧个令和陈美龄不是问题
+
+
+
+*****
+
+####  lj205  
+##### 5064#       发表于 2022-2-5 23:28
+
+Nagi还没换手机<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Enakina  
+##### 5065#       发表于 2022-2-5 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54561839&amp;ptid=2036367" target="_blank">stygian 发表于 2022-02-05 23:00:07</a>
+事务所可是horipro你们眼界放开点，只要她自己乐意捧个令和陈美龄不是问题</blockquote>没那么夸张吧，horipro是牛逼，但horipro international能动用的资源肯定没那么多吧，但估计也能沾沾本社的光吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cqc1021  
+##### 5066#       发表于 2022-2-6 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54541553&amp;ptid=2036367" target="_blank">yevvet 发表于 2022-2-4 11:28</a>
+没有人觉得鲤鱼像西野七濑吗</blockquote>
+其实是像渡边理佐
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  csolfans  
+##### 5067#       发表于 2022-2-6 01:21
+
+<blockquote>lj205 发表于 2022-2-5 23:28
+Nagi还没换手机</blockquote>
+Nagi之前说她手机的home键都已经按爆了(好像是iPhone8来着
+
+*****
+
+####  Norkey1  
+##### 5068#       发表于 2022-2-6 01:40
+
+主要是配音这块再怎么样需求还是大，国内声优市场也还没成熟，鲤鱼真往歌手走两边都难。作为国内拉拉人不推她也支持了两张，但后面没有了热度加持只能看她造化了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cat1230  
+##### 5069#       发表于 2022-2-6 10:15
+
+，
+
+ 本帖最后由 cat1230 于 2022-2-6 10:16 编辑 
+
+Lantis EXPO广播鲤鱼出演，一个人的广播，日语水平进步真快<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  优妮可  
+##### 5070#       发表于 2022-2-6 12:19
+
+<img src="https://img.saraba1st.com/forum/202202/06/121849dvezvwmz6e625wvo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20220206_110709_com.huawei.browser_edit_11347910046705.jpg</strong> (193.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-2-6 12:18 上传
+
+三团这个节目星这里换人了
+
+
+
+*****
+
+####  lj205  
+##### 5071#       发表于 2022-2-6 13:00
+
+都10天了，岬还是一点消息都没吗？
+
+
+
+*****
+
+####  player3960  
+##### 5072#       发表于 2022-2-6 13:38
+
+Nako什么时候能报个平安啊，这都一个星期没动静了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
