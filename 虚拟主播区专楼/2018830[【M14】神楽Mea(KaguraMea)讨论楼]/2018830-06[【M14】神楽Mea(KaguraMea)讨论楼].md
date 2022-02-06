@@ -8056,3 +8056,12 @@ emmmmmmm
 —— 来自 S1Fun</blockquote>
 很少见的能看到mea做mc，毕竟和犬山组长在一起怎么也轮不到mea做mc。
 
+
+
+*****
+
+####  Dualist彩  
+##### 8429#       发表于 2022-2-6 14:29
+
+还不是其他人太fw，上次我一时间竟分不清是在谁的直播间直播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
